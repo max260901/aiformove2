@@ -1,14 +1,15 @@
 
 # 灌南华侨小说网笔趣阁_书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-01 03:25:11
+更新时间：2026-09-02 03:25:15
 
 灌南华侨小说网笔趣阁海量免费小说在线阅读平台，汇聚玄幻、都市、言情、科幻、悬疑等全品类热门小说，实时更新全网爆款佳作。无广告干扰，支持缓存离线看，让你随时随地沉浸阅读世界，找书看书就来笔趣阁，满足你的所有阅读渴望。
 
 - [灌南华侨小说网](https://www.gnhqbs.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.gnhqbs.com/book/1cqms1l/)
+- [宠妃岂敢压我！](https://www.gnhqbs.com/book/1cqms1n/)
+- [死遁后，师弟他不哄不停](https://www.gnhqbs.com/book/1cqms1m/)
 - [发家致富小夫郎](https://www.gnhqbs.com/book/1cqms1k/)
 - [宫陷](https://www.gnhqbs.com/book/1cqms1j/)
 - [身为人造人的我梦想是成为救世主](https://www.gnhqbs.com/book/1cqms1i/)
@@ -63,15 +64,13 @@
 - [我真的只会Ctrl啊！！！](https://www.gnhqbs.com/book/1cqmn9l/)
 - [灭世龙崽有什么错](https://www.gnhqbs.com/book/1cqmi9l/)
 - [春归燕](https://www.gnhqbs.com/book/1cqmi43/)
+- [假少爷有特殊的算命技巧](https://www.gnhqbs.com/book/1cqmdtn/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.gnhqbs.com/book/1cqm5fu/)
 - [九零重组小家庭](https://www.gnhqbs.com/book/1cqm0eq/)
 - [在虫族世界逃命升级](https://www.gnhqbs.com/book/1cqlunj/)
 - [神豪文男主是我爸](https://www.gnhqbs.com/book/1cqltjf/)
 - [从维多利亚时代开始](https://www.gnhqbs.com/book/1cqllbm/)
-- [我有特殊的升官技巧](https://www.gnhqbs.com/book/1cqli9k/)
 - [反派人生，易如反掌[快穿]](https://www.gnhqbs.com/book/1cqlevb/)
-- [养父](https://www.gnhqbs.com/book/1cql6s0/)
-- [人妻O救赎指南](https://www.gnhqbs.com/book/1cql6qs/)
 - [摄政王家的咸鱼夫郎](https://www.gnhqbs.com/book/1cqkr4p/)
 - [绿叶](https://www.gnhqbs.com/book/1cqkpf5/)
 - [枕边热吻](https://www.gnhqbs.com/book/1cqkpb1/)
@@ -88,7 +87,6 @@
 - [[全职高手]霸图老板是叶修](https://www.gnhqbs.com/book/1cqk7h5/)
 - [当我穿为龙傲天的情敌](https://www.gnhqbs.com/book/1cqk78f/)
 - [假金丝雀深陷修罗场](https://www.gnhqbs.com/book/1cqk6p8/)
-- [社恐直播鉴宝，但带球跑](https://www.gnhqbs.com/book/1cqk627/)
 - [高嫁之后](https://www.gnhqbs.com/book/1cqk581/)
 - [养成游戏，但破解版](https://www.gnhqbs.com/book/1cqk08f/)
 - [[综英美]让我统治哥谭！！！](https://www.gnhqbs.com/book/1cqk00b/)
@@ -137,25 +135,23 @@
 - [搭档，一起来玩求生游戏吧！](https://www.gnhqbs.com/book/1cqie33/)
 - [暴君偏头痛](https://www.gnhqbs.com/book/1cqicg3/)
 - [绿茶病秧子骗他说喜欢](https://www.gnhqbs.com/book/1cqic0f/)
+- [绝不会喜欢五条君的！](https://www.gnhqbs.com/book/1cqiaq9/)
 - [我真的没想在选秀炒CP](https://www.gnhqbs.com/book/1cqi89p/)
 - [把清冷权臣调成荡夫后](https://www.gnhqbs.com/book/1cqi84u/)
 - [欢迎来到纳萨力克丧葬公司](https://www.gnhqbs.com/book/1cqi6kl/)
 - [[群穿]我在御兽番抢人气](https://www.gnhqbs.com/book/1cqi50v/)
-- [在医院旧楼捡到个外科鼻祖](https://www.gnhqbs.com/book/1cqi4sl/)
 - [我，恶女，在线搞事](https://www.gnhqbs.com/book/1cqi1qq/)
 - [十九世纪贵族厨房（美食）](https://www.gnhqbs.com/book/1cqha97/)
 - [八零恶毒后妈杀疯了](https://www.gnhqbs.com/book/1cqha4m/)
 - [星际团宠小人鱼](https://www.gnhqbs.com/book/1cqh9or/)
 - [六零之成了卷王的妹妹](https://www.gnhqbs.com/book/1cqh9o0/)
 - [高调装神，猥琐发育](https://www.gnhqbs.com/book/1cqh9jg/)
-- [警察，但犯罪大师系统[刑侦]](https://www.gnhqbs.com/book/1cqh9e5/)
 - [穿成炮灰后我封神了［快穿］](https://www.gnhqbs.com/book/1cqh9cc/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.gnhqbs.com/book/1cqh9ca/)
 - [在民俗惊悚片被诸神庇护](https://www.gnhqbs.com/book/1cqh9b3/)
 - [为诡异打工，但反封建迷信](https://www.gnhqbs.com/book/1cqh99c/)
 - [我有一座安全城](https://www.gnhqbs.com/book/1cqh93e/)
 - [我是唯一地上神国](https://www.gnhqbs.com/book/1cqh93b/)
-- [替嫁后咸鱼继母佛系日常](https://www.gnhqbs.com/book/1cqh92m/)
 - [95美国贵族高中模拟](https://www.gnhqbs.com/book/1cqh8ve/)
 - [海岛求生：生活玩家种田囤货](https://www.gnhqbs.com/book/1cqh8u8/)
 - [御兽师，我打工养你啊](https://www.gnhqbs.com/book/1cqh8sa/)
@@ -164,7 +160,6 @@
 - [全民求生:从小木屋到魔法农场](https://www.gnhqbs.com/book/1cqh8h9/)
 - [古代种田养娃日常](https://www.gnhqbs.com/book/1cqh8d4/)
 - [大瑛弟国](https://www.gnhqbs.com/book/1cqh8ai/)
-- [卧底后被港岛大小姐缠上了](https://www.gnhqbs.com/book/1cqh85j/)
 - [假少爷不想活了](https://www.gnhqbs.com/book/1cqh837/)
 - [千禧年，拆迁分了十栋楼！](https://www.gnhqbs.com/book/1cqh81d/)
 - [日化人生[科研]](https://www.gnhqbs.com/book/1cqh7s4/)
@@ -175,7 +170,6 @@
 - [高门小婢](https://www.gnhqbs.com/book/1cqh76i/)
 - [猫猫也要养家糊口](https://www.gnhqbs.com/book/1cqh75t/)
 - [成为养成系练习生后](https://www.gnhqbs.com/book/1cqh732/)
-- [如何扮演源氏重宝](https://www.gnhqbs.com/book/1cqh70l/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1378/index.md)

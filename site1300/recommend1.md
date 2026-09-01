@@ -1,14 +1,15 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-09-01 03:30:35
+更新时间：2026-09-02 03:30:40
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。
 
 - [棉花糖小说网](https://www.littlemissribbon.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.littlemissribbon.com/book/5asij27/)
+- [宠妃岂敢压我！](https://www.littlemissribbon.com/book/5asij29/)
+- [死遁后，师弟他不哄不停](https://www.littlemissribbon.com/book/5asij28/)
 - [发家致富小夫郎](https://www.littlemissribbon.com/book/5asij26/)
 - [乖乖小宝被豪门长兄娇养了](https://www.littlemissribbon.com/book/5asij21/)
 - [败类游戏](https://www.littlemissribbon.com/book/5asij1u/)
@@ -69,7 +70,6 @@
 - [氪金游戏，从养成林太郎开始](https://www.littlemissribbon.com/book/5asiit8/)
 - [被怪物女友始乱终弃后[gb]](https://www.littlemissribbon.com/book/5asiit7/)
 - [凤凰男就该窝里下蛋](https://www.littlemissribbon.com/book/5asiit4/)
-- [养父](https://www.littlemissribbon.com/book/5asiit1/)
 - [十九世纪贵族厨房（美食）](https://www.littlemissribbon.com/book/5asiisb/)
 - [星际团宠小人鱼](https://www.littlemissribbon.com/book/5asiire/)
 - [九零首富的替嫁小媳妇](https://www.littlemissribbon.com/book/5asiiqv/)
@@ -79,14 +79,15 @@
 - [高嫁之后](https://www.littlemissribbon.com/book/5asiip4/)
 - [满级大佬制霸热血运动番](https://www.littlemissribbon.com/book/5asihei/)
 - [六零之成了卷王的妹妹](https://www.littlemissribbon.com/book/5asihea/)
+- [绝不会喜欢五条君的！](https://www.littlemissribbon.com/book/5asihe0/)
 - [我不是御兽大师](https://www.littlemissribbon.com/book/5asihdp/)
 - [古代种田养娃日常](https://www.littlemissribbon.com/book/5ashsab/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.littlemissribbon.com/book/5ashrs2/)
 - [灭世龙崽有什么错](https://www.littlemissribbon.com/book/5ash09v/)
 - [九零重组小家庭](https://www.littlemissribbon.com/book/5asgvoq/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.littlemissribbon.com/book/5asgq6f/)
+- [假少爷有特殊的算命技巧](https://www.littlemissribbon.com/book/5asgnei/)
 - [从维多利亚时代开始](https://www.littlemissribbon.com/book/5asg8jb/)
-- [我有特殊的升官技巧](https://www.littlemissribbon.com/book/5asg5pi/)
 - [御兽师，我打工养你啊](https://www.littlemissribbon.com/book/5asg3p9/)
 - [反派人生，易如反掌[快穿]](https://www.littlemissribbon.com/book/5asg2bc/)
 - [啊？我是万人迷？［虫族］](https://www.littlemissribbon.com/book/5asfq5f/)
@@ -99,7 +100,6 @@
 - [日化人生[科研]](https://www.littlemissribbon.com/book/5asfff9/)
 - [巨物致富：回乡开钓场](https://www.littlemissribbon.com/book/5asfcme/)
 - [趁她之危](https://www.littlemissribbon.com/book/5asf5es/)
-- [人妻O救赎指南](https://www.littlemissribbon.com/book/5asf4kn/)
 - [第一游侠[全息]](https://www.littlemissribbon.com/book/5asf47h/)
 - [始皇闺女躺平失败的日子](https://www.littlemissribbon.com/book/5asf0p2/)
 - [摄政王家的咸鱼夫郎](https://www.littlemissribbon.com/book/5asf0eb/)
@@ -109,7 +109,6 @@
 - [不当救世主就要当人类恶了吗](https://www.littlemissribbon.com/book/h2tlnk/)
 - [枕边热吻](https://www.littlemissribbon.com/book/h2tjvu/)
 - [[全职高手]霸图老板是叶修](https://www.littlemissribbon.com/book/h2tiq5/)
-- [社恐直播鉴宝，但带球跑](https://www.littlemissribbon.com/book/h2tili/)
 - [误标记隔壁阿姨O之后](https://www.littlemissribbon.com/book/h2tg2q/)
 - [养成游戏，但破解版](https://www.littlemissribbon.com/book/h2teoi/)
 - [成为养成系练习生后](https://www.littlemissribbon.com/book/h2teo9/)
@@ -156,21 +155,16 @@
 - [今天在伟大航路抽到SSR了吗](https://www.littlemissribbon.com/book/h2rr0c/)
 - [我真的没想在选秀炒CP](https://www.littlemissribbon.com/book/h2rqu4/)
 - [搭档，一起来玩求生游戏吧！](https://www.littlemissribbon.com/book/h2rqm2/)
-- [在医院旧楼捡到个外科鼻祖](https://www.littlemissribbon.com/book/h2rnr2/)
 - [把清冷权臣调成荡夫后](https://www.littlemissribbon.com/book/h2rmko/)
 - [95美国贵族高中模拟](https://www.littlemissribbon.com/book/1mluv6/)
-- [替嫁后咸鱼继母佛系日常](https://www.littlemissribbon.com/book/1mluof/)
 - [五十年代港城日常](https://www.littlemissribbon.com/book/1mluj7/)
-- [如何扮演源氏重宝](https://www.littlemissribbon.com/book/1mluei/)
 - [当恶女捡回高岭之花](https://www.littlemissribbon.com/book/1mlu2c/)
 - [大瑛弟国](https://www.littlemissribbon.com/book/1mltqc/)
 - [科学主义魔法学院](https://www.littlemissribbon.com/book/1mltnh/)
-- [卧底后被港岛大小姐缠上了](https://www.littlemissribbon.com/book/1mltlu/)
 - [猫猫也要养家糊口](https://www.littlemissribbon.com/book/1mltic/)
 - [我有一座安全城](https://www.littlemissribbon.com/book/1mltgd/)
 - [高门小婢](https://www.littlemissribbon.com/book/1mltf3/)
 - [海岛求生：生活玩家种田囤货](https://www.littlemissribbon.com/book/1mltd0/)
-- [警察，但犯罪大师系统[刑侦]](https://www.littlemissribbon.com/book/1mltbg/)
 - [清澈女大的六零年代](https://www.littlemissribbon.com/book/1mltb5/)
 - [全民求生:从小木屋到魔法农场](https://www.littlemissribbon.com/book/1mlt9v/)
 - [[娱乐圈]过分美丽的她](https://www.littlemissribbon.com/book/5f01d/)

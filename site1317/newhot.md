@@ -1,7 +1,7 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-01 03:45:24
+更新时间：2026-09-02 03:45:34
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。
 
@@ -9,23 +9,30 @@
 
 ## 最新小说
 - [井闼山经理每天都被挖墙脚](https://www.zuopin666.com/book/8befhhh/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.zuopin666.com/book/8befhgm/)
+- [从异世界穿回来后](https://www.zuopin666.com/book/8befhg1/)
+- [失而复得的白月光[快穿]](https://www.zuopin666.com/book/8befhfr/)
+- [躲避原书剧情五年后](https://www.zuopin666.com/book/8befhfk/)
 - [阿竹与野桃](https://www.zuopin666.com/book/8befhe0/)
 - [你，后室管理员](https://www.zuopin666.com/book/8befhcs/)
 - [星际团宠小人鱼](https://www.zuopin666.com/book/8befhcl/)
 - [[封神]圣人生欲](https://www.zuopin666.com/book/8befhcb/)
+- [原配夫人](https://www.zuopin666.com/book/8befhc2/)
+- [被四皇错看成小动物后](https://www.zuopin666.com/book/8befhao/)
 - [高调装神，猥琐发育](https://www.zuopin666.com/book/8befhaf/)
 - [纯爱宇智波基本恋爱法](https://www.zuopin666.com/book/8befh9v/)
 - [直男咒术师的限制级游戏](https://www.zuopin666.com/book/8befh71/)
-- [女扮男装科举和皇帝撞脸了！](https://www.zuopin666.com/book/8befh5l/)
-- [寻真](https://www.zuopin666.com/book/8bebr0h/)
+- [某柯学的正义伙伴](https://www.zuopin666.com/book/8becook/)
+- [男朋友买一送一](https://www.zuopin666.com/book/8beccng/)
+- [我有嘉宾](https://www.zuopin666.com/book/8bec8g7/)
+- [沈助理又在隐藏他的超能力](https://www.zuopin666.com/book/qntaf1/)
+- [系统不许我摆烂](https://www.zuopin666.com/book/qnt82i/)
 - [逝水](https://www.zuopin666.com/book/qnstdk/)
-- [这谁的沙雕二次元心声！](https://www.zuopin666.com/book/qnsd0o/)
-- [老公是松散生命体](https://www.zuopin666.com/book/qnsd0c/)
-- [青空来信](https://www.zuopin666.com/book/qnsbqv/)
+- [隔壁班的松田君](https://www.zuopin666.com/book/qnsjps/)
+- [你也没死？](https://www.zuopin666.com/book/qnsfkg/)
+- [误入反派培养直播后](https://www.zuopin666.com/book/qns0iu/)
 - [多梦你一会儿](https://www.zuopin666.com/book/qns012/)
-- [拯救世界从扮演反派开始](https://www.zuopin666.com/book/qnrv9u/)
 - [[足球]罗蜜第一志愿](https://www.zuopin666.com/book/qnrtla/)
+- [哥你不能不要我](https://www.zuopin666.com/book/qnrd1o/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1317/index.md)

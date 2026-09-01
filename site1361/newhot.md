@@ -1,40 +1,49 @@
 
 # 情感小说-精彩小说推荐网,涵盖言情都市历史科幻等多种类型
 
-更新时间：2026-09-01 03:33:37
+更新时间：2026-09-02 03:33:42
 
 情感小说致力于为广大书友推荐各种类型好看的小说，包括但不限于言情、都市、历史、科幻、灵异、军事、悬疑、玄幻、武侠、末世等。看小说，找小说就上书格格小说推荐网！
 
 - [情感小说](https://www.qinggan1687.com/)
 
 ## 最新小说
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.qinggan1687.com/book/3qc56b7/)
 - [阿竹与野桃](https://www.qinggan1687.com/book/3qc569u/)
+- [从异世界穿回来后](https://www.qinggan1687.com/book/3qc51vs/)
+- [我有嘉宾](https://www.qinggan1687.com/book/3qc51m3/)
 - [你，后室管理员](https://www.qinggan1687.com/book/3qc474s/)
 - [星际团宠小人鱼](https://www.qinggan1687.com/book/3qc474b/)
+- [原配夫人](https://www.qinggan1687.com/book/3qc46rr/)
 - [高调装神，猥琐发育](https://www.qinggan1687.com/book/3qc401u/)
+- [男朋友买一送一](https://www.qinggan1687.com/book/3qc3ld4/)
+- [失而复得的白月光[快穿]](https://www.qinggan1687.com/book/3qc3ga3/)
+- [躲避原书剧情五年后](https://www.qinggan1687.com/book/3qc3d3q/)
 - [如何正确哄睡暴君](https://www.qinggan1687.com/book/3qc3c9g/)
-- [寻真](https://www.qinggan1687.com/book/3qc33l0/)
+- [我不可能舔一个漂亮捞子](https://www.qinggan1687.com/book/3qc34b1/)
+- [你也没死？](https://www.qinggan1687.com/book/3qc348j/)
 - [逝水](https://www.qinggan1687.com/book/3qc330p/)
-- [老公是松散生命体](https://www.qinggan1687.com/book/3qc2ti4/)
+- [沈助理又在隐藏他的超能力](https://www.qinggan1687.com/book/3qc2va3/)
+- [被鬼怪宠爱的漂亮书生](https://www.qinggan1687.com/book/3qc2v4m/)
 - [微臣怜惜公主](https://www.qinggan1687.com/book/3qc2rt8/)
+- [系统不许我摆烂](https://www.qinggan1687.com/book/3qc2njq/)
+- [误入反派培养直播后](https://www.qinggan1687.com/book/3qc2j3e/)
+- [哥你不能不要我](https://www.qinggan1687.com/book/3qc2dqm/)
 - [炮灰的我该如何上位？](https://www.qinggan1687.com/book/3qc2d4j/)
 - [多梦你一会儿](https://www.qinggan1687.com/book/3qc2c9j/)
+- [被四皇错看成小动物后](https://www.qinggan1687.com/book/3qc2bpe/)
 - [[封神]圣人生欲](https://www.qinggan1687.com/book/3qc2b8n/)
-- [善逸拒绝成为咒术师](https://www.qinggan1687.com/book/3qc2ai3/)
-- [这谁的沙雕二次元心声！](https://www.qinggan1687.com/book/3qc29hh/)
-- [青空来信](https://www.qinggan1687.com/book/3qc24ha/)
+- [隔壁班的松田君](https://www.qinggan1687.com/book/3qc275m/)
+- [某柯学的正义伙伴](https://www.qinggan1687.com/book/3qc24qr/)
 - [[足球]罗蜜第一志愿](https://www.qinggan1687.com/book/3qc24fu/)
 - [井闼山经理每天都被挖墙脚](https://www.qinggan1687.com/book/3qc20vg/)
 - [[足球]小小鸟堂堂来袭](https://www.qinggan1687.com/book/3qc1o09/)
 - [法外狂猫](https://www.qinggan1687.com/book/3qc1idb/)
 - [好兄弟暴富后非要跟我结婚](https://www.qinggan1687.com/book/3qc1hdo/)
-- [关于我虚构了一个男友这件事](https://www.qinggan1687.com/book/3qc1ejt/)
+- [侯府打工人](https://www.qinggan1687.com/book/3qc1h2t/)
+- [我，剑圣，养生中，勿扰](https://www.qinggan1687.com/book/3qc1frg/)
 - [和室友他爸恋爱后](https://www.qinggan1687.com/book/3qc1645/)
 - [纯爱宇智波基本恋爱法](https://www.qinggan1687.com/book/3qc013k/)
-- [拯救世界从扮演反派开始](https://www.qinggan1687.com/book/3qc00tm/)
 - [直男咒术师的限制级游戏](https://www.qinggan1687.com/book/3qc007n/)
-- [女扮男装科举和皇帝撞脸了！](https://www.qinggan1687.com/book/3qbvvcg/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1361/index.md)

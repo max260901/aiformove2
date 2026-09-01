@@ -1,14 +1,15 @@
 
 # 看剧文学网 - 书友最值得收藏的小说阅读网
 
-更新时间：2026-09-01 03:28:24
+更新时间：2026-09-02 03:28:29
 
 看剧文学网，精选最好看的小说推荐给大家在线阅读。这里有网络小说大全，包括最火、最热门的小说最新章节，是书友最值得收藏的免费小说阅读网。
 
 - [看剧文学网](https://www.kanju788.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.kanju788.com/book/to4pag/)
+- [死遁后，师弟他不哄不停](https://www.kanju788.com/book/to4rl3/)
+- [宠妃岂敢压我！](https://www.kanju788.com/book/to4rkj/)
 - [发家致富小夫郎](https://www.kanju788.com/book/to4kma/)
 - [卡尔蜜拉也能成为特利迦白月光？](https://www.kanju788.com/book/to4idu/)
 - [春归燕](https://www.kanju788.com/book/to4idt/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.kanju788.com/book/to4g04/)
 - [灭世龙崽有什么错](https://www.kanju788.com/book/to48n1/)
 - [九零重组小家庭](https://www.kanju788.com/book/to46s2/)
-- [养父](https://www.kanju788.com/book/to46dk/)
-- [人妻O救赎指南](https://www.kanju788.com/book/to4691/)
+- [假少爷有特殊的算命技巧](https://www.kanju788.com/book/to45ur/)
 - [在虫族世界逃命升级](https://www.kanju788.com/book/to42af/)
 - [神豪文男主是我爸](https://www.kanju788.com/book/to41c6/)
 - [从维多利亚时代开始](https://www.kanju788.com/book/to3oms/)
-- [我有特殊的升官技巧](https://www.kanju788.com/book/to3lpa/)
 - [星际团宠小人鱼](https://www.kanju788.com/book/to3jnv/)
 - [十九世纪贵族厨房（美食）](https://www.kanju788.com/book/to3jme/)
 - [反派人生，易如反掌[快穿]](https://www.kanju788.com/book/to3i45/)
@@ -90,14 +89,12 @@
 - [当我穿为龙傲天的情敌](https://www.kanju788.com/book/to2ak4/)
 - [不当救世主就要当人类恶了吗](https://www.kanju788.com/book/to2991/)
 - [在民俗惊悚片被诸神庇护](https://www.kanju788.com/book/to292n/)
-- [社恐直播鉴宝，但带球跑](https://www.kanju788.com/book/to28nj/)
 - [十福晋吃瓜日常(清穿)](https://www.kanju788.com/book/to28eu/)
 - [[全职高手]霸图老板是叶修](https://www.kanju788.com/book/to27m8/)
 - [当菟丝花要分手后](https://www.kanju788.com/book/to26j8/)
 - [假金丝雀深陷修罗场](https://www.kanju788.com/book/to25ue/)
 - [养成游戏，但破解版](https://www.kanju788.com/book/to21m7/)
 - [霓虹夏日](https://www.kanju788.com/book/to1t7k/)
-- [替嫁后咸鱼继母佛系日常](https://www.kanju788.com/book/to1sie/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.kanju788.com/book/to1oba/)
 - [[综英美]让我统治哥谭！！！](https://www.kanju788.com/book/to1nli/)
 - [啊？我是万人迷？［虫族］](https://www.kanju788.com/book/to1mf8/)
@@ -146,10 +143,10 @@
 - [绿茶病秧子骗他说喜欢](https://www.kanju788.com/book/to0fs1/)
 - [我真的没想在选秀炒CP](https://www.kanju788.com/book/to0cfa/)
 - [徐娘子的美食发家日常](https://www.kanju788.com/book/to0arc/)
-- [在医院旧楼捡到个外科鼻祖](https://www.kanju788.com/book/to0al5/)
 - [把清冷权臣调成荡夫后](https://www.kanju788.com/book/to09jl/)
 - [[群穿]我在御兽番抢人气](https://www.kanju788.com/book/to08js/)
 - [假少爷不想活了](https://www.kanju788.com/book/tnvdfj/)
+- [绝不会喜欢五条君的！](https://www.kanju788.com/book/tnvdff/)
 - [巨物致富：回乡开钓场](https://www.kanju788.com/book/tnvdcj/)
 - [我有一座安全城](https://www.kanju788.com/book/tnvcrk/)
 - [成为养成系练习生后](https://www.kanju788.com/book/tnvcll/)
@@ -164,8 +161,6 @@
 - [刑部的小衙门](https://www.kanju788.com/book/tnvbgj/)
 - [高嫁之后](https://www.kanju788.com/book/tnvbep/)
 - [五十年代港城日常](https://www.kanju788.com/book/tnvbe3/)
-- [如何扮演源氏重宝](https://www.kanju788.com/book/tnvb54/)
-- [警察，但犯罪大师系统[刑侦]](https://www.kanju788.com/book/tnvb24/)
 - [海岛求生：生活玩家种田囤货](https://www.kanju788.com/book/tnvau3/)
 - [我是唯一地上神国](https://www.kanju788.com/book/tnvapu/)
 - [日化人生[科研]](https://www.kanju788.com/book/tnvaor/)
@@ -175,7 +170,6 @@
 - [95美国贵族高中模拟](https://www.kanju788.com/book/tnvafg/)
 - [全民求生:从小木屋到魔法农场](https://www.kanju788.com/book/tnvaes/)
 - [高门小婢](https://www.kanju788.com/book/tnvae0/)
-- [卧底后被港岛大小姐缠上了](https://www.kanju788.com/book/tnvaa4/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1348/index.md)
