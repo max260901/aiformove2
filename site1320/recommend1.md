@@ -1,14 +1,15 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-09-01 03:25:41
+更新时间：2026-09-02 03:25:46
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
 - [故事文学网](https://www.gushi1314.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.gushi1314.com/book/8m9jua3/)
+- [宠妃岂敢压我！](https://www.gushi1314.com/book/8m9jua5/)
+- [死遁后，师弟他不哄不停](https://www.gushi1314.com/book/8m9jua4/)
 - [发家致富小夫郎](https://www.gushi1314.com/book/8m9jua2/)
 - [猫猫也要被魅魔魅惑吗？](https://www.gushi1314.com/book/8m9jua1/)
 - [游戏角色想和玩家谈恋爱](https://www.gushi1314.com/book/8m9ju9s/)
@@ -69,7 +70,6 @@
 - [被怪物女友始乱终弃后[gb]](https://www.gushi1314.com/book/8m9ju54/)
 - [水管工[GB]](https://www.gushi1314.com/book/8m9ju52/)
 - [太子哥哥不想当哥哥](https://www.gushi1314.com/book/8m9ju4v/)
-- [养父](https://www.gushi1314.com/book/8m9ju4t/)
 - [九零首富的替嫁小媳妇](https://www.gushi1314.com/book/8m9ju3k/)
 - [十九世纪贵族厨房（美食）](https://www.gushi1314.com/book/8m9ju2m/)
 - [星际团宠小人鱼](https://www.gushi1314.com/book/8m9ju2l/)
@@ -77,6 +77,7 @@
 - [假少爷不想活了](https://www.gushi1314.com/book/8m9ju2b/)
 - [千禧年，拆迁分了十栋楼！](https://www.gushi1314.com/book/8m9jtvo/)
 - [高嫁之后](https://www.gushi1314.com/book/8m9jtu2/)
+- [绝不会喜欢五条君的！](https://www.gushi1314.com/book/8m9jsm2/)
 - [六零之成了卷王的妹妹](https://www.gushi1314.com/book/8m9jsm0/)
 - [我不是御兽大师](https://www.gushi1314.com/book/8m9jslq/)
 - [满级大佬制霸热血运动番](https://www.gushi1314.com/book/8m9jslg/)
@@ -85,8 +86,8 @@
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.gushi1314.com/book/8m9icev/)
 - [九零重组小家庭](https://www.gushi1314.com/book/8m9i6se/)
 - [灭世龙崽有什么错](https://www.gushi1314.com/book/8m9i66j/)
+- [假少爷有特殊的算命技巧](https://www.gushi1314.com/book/8m9i5kf/)
 - [从维多利亚时代开始](https://www.gushi1314.com/book/8m9hicr/)
-- [我有特殊的升官技巧](https://www.gushi1314.com/book/8m9hfnn/)
 - [御兽师，我打工养你啊](https://www.gushi1314.com/book/8m9hdrb/)
 - [反派人生，易如反掌[快穿]](https://www.gushi1314.com/book/8m9hc90/)
 - [啊？我是万人迷？［虫族］](https://www.gushi1314.com/book/8m9h4d4/)
@@ -99,7 +100,6 @@
 - [日化人生[科研]](https://www.gushi1314.com/book/8m9gnpg/)
 - [巨物致富：回乡开钓场](https://www.gushi1314.com/book/8m9gjre/)
 - [趁她之危](https://www.gushi1314.com/book/8m9gj1l/)
-- [人妻O救赎指南](https://www.gushi1314.com/book/8m9gffk/)
 - [第一游侠[全息]](https://www.gushi1314.com/book/8m9gebv/)
 - [摄政王家的咸鱼夫郎](https://www.gushi1314.com/book/8m9gcr9/)
 - [寄人篱下](https://www.gushi1314.com/book/8m9g98b/)
@@ -107,7 +107,6 @@
 - [全球进化，而我保持不变](https://www.gushi1314.com/book/8m9g7m3/)
 - [当我穿为龙傲天的情敌](https://www.gushi1314.com/book/rqk9hd/)
 - [不当救世主就要当人类恶了吗](https://www.gushi1314.com/book/rqk8q9/)
-- [社恐直播鉴宝，但带球跑](https://www.gushi1314.com/book/rqk73n/)
 - [枕边热吻](https://www.gushi1314.com/book/rqk56d/)
 - [[全职高手]霸图老板是叶修](https://www.gushi1314.com/book/rqk3oc/)
 - [假金丝雀深陷修罗场](https://www.gushi1314.com/book/rqk1ip/)
@@ -157,7 +156,6 @@
 - [搭档，一起来玩求生游戏吧！](https://www.gushi1314.com/book/rqibh8/)
 - [绿茶病秧子骗他说喜欢](https://www.gushi1314.com/book/rqib83/)
 - [把清冷权臣调成荡夫后](https://www.gushi1314.com/book/rqi9e4/)
-- [在医院旧楼捡到个外科鼻祖](https://www.gushi1314.com/book/rqi7mp/)
 - [[娱乐圈]过分美丽的她](https://www.gushi1314.com/book/2p1qis/)
 - [大瑛弟国](https://www.gushi1314.com/book/2p1qb8/)
 - [科学主义魔法学院](https://www.gushi1314.com/book/2p1q8l/)
@@ -165,15 +163,11 @@
 - [猫猫也要养家糊口](https://www.gushi1314.com/book/2p1q0i/)
 - [海岛求生：生活玩家种田囤货](https://www.gushi1314.com/book/2p1q07/)
 - [全民求生:从小木屋到魔法农场](https://www.gushi1314.com/book/2p1ptk/)
-- [替嫁后咸鱼继母佛系日常](https://www.gushi1314.com/book/2p1ps7/)
 - [当恶女捡回高岭之花](https://www.gushi1314.com/book/2p1prh/)
 - [95美国贵族高中模拟](https://www.gushi1314.com/book/2p1p7h/)
 - [五十年代港城日常](https://www.gushi1314.com/book/2p1or3/)
-- [卧底后被港岛大小姐缠上了](https://www.gushi1314.com/book/2p1omd/)
 - [米花无刁民](https://www.gushi1314.com/book/2p1ogs/)
-- [如何扮演源氏重宝](https://www.gushi1314.com/book/8svvf/)
 - [高门小婢](https://www.gushi1314.com/book/8svoa/)
-- [警察，但犯罪大师系统[刑侦]](https://www.gushi1314.com/book/8svnf/)
 - [我是唯一地上神国](https://www.gushi1314.com/book/8svmv/)
 - [清澈女大的六零年代](https://www.gushi1314.com/book/sfvp/)
 ## 相关内容

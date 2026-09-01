@@ -1,7 +1,7 @@
 
 # 思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-01 03:20:44
+更新时间：2026-09-02 03:20:48
 
 思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。
 
@@ -10,22 +10,29 @@
 ## 最新小说
 - [阿竹与野桃](https://www.968577.com/book/1b28mf4/)
 - [井闼山经理每天都被挖墙脚](https://www.968577.com/book/1b28mca/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.968577.com/book/1b28mbf/)
+- [躲避原书剧情五年后](https://www.968577.com/book/1b28mbs/)
+- [失而复得的白月光[快穿]](https://www.968577.com/book/1b28mbi/)
+- [被四皇错看成小动物后](https://www.968577.com/book/1b28mam/)
 - [星际团宠小人鱼](https://www.968577.com/book/1b28m9j/)
 - [你，后室管理员](https://www.968577.com/book/1b28m9i/)
 - [[封神]圣人生欲](https://www.968577.com/book/1b28m9c/)
+- [原配夫人](https://www.968577.com/book/1b28m90/)
 - [高调装神，猥琐发育](https://www.968577.com/book/1b28m8g/)
-- [女扮男装科举和皇帝撞脸了！](https://www.968577.com/book/1b28m46/)
+- [从异世界穿回来后](https://www.968577.com/book/1b28m5n/)
 - [纯爱宇智波基本恋爱法](https://www.968577.com/book/1b28m3q/)
 - [直男咒术师的限制级游戏](https://www.968577.com/book/1b28m3a/)
-- [寻真](https://www.968577.com/book/49sqpu/)
+- [某柯学的正义伙伴](https://www.968577.com/book/1b25thr/)
+- [男朋友买一送一](https://www.968577.com/book/1b25gnd/)
+- [我有嘉宾](https://www.968577.com/book/1b25arh/)
+- [沈助理又在隐藏他的超能力](https://www.968577.com/book/49sk3i/)
+- [系统不许我摆烂](https://www.968577.com/book/49sja7/)
 - [逝水](https://www.968577.com/book/49s6fb/)
-- [青空来信](https://www.968577.com/book/49rmu1/)
-- [这谁的沙雕二次元心声！](https://www.968577.com/book/49rlcv/)
-- [老公是松散生命体](https://www.968577.com/book/49rl15/)
+- [隔壁班的松田君](https://www.968577.com/book/49rsrb/)
+- [你也没死？](https://www.968577.com/book/49rnpe/)
+- [误入反派培养直播后](https://www.968577.com/book/49rdi5/)
 - [多梦你一会儿](https://www.968577.com/book/49r9le/)
-- [拯救世界从扮演反派开始](https://www.968577.com/book/49r7fl/)
 - [[足球]罗蜜第一志愿](https://www.968577.com/book/49r7cu/)
+- [哥你不能不要我](https://www.968577.com/book/49ql9h/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1294/index.md)

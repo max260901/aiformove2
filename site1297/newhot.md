@@ -1,31 +1,38 @@
 
 # 笔趣阁_书友最值得收藏的网络小说阅读网_新笔趣阁5200
 
-更新时间：2026-09-01 03:27:51
+更新时间：2026-09-02 03:27:56
 
 笔趣阁是广大书友最值得收藏的网络小说阅读网，新笔趣阁网站收录了当前最火热的网络小说，笔趣阁5200免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
 - [笔趣阁](https://www.kangrunwangye.com/)
 
 ## 最新小说
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kangrunwangye.com/book/1o9mg6m/)
+- [从异世界穿回来后](https://www.kangrunwangye.com/book/1o9mg81/)
+- [失而复得的白月光[快穿]](https://www.kangrunwangye.com/book/1o9mg79/)
+- [躲避原书剧情五年后](https://www.kangrunwangye.com/book/1o9mg78/)
 - [阿竹与野桃](https://www.kangrunwangye.com/book/1o9mg5m/)
 - [井闼山经理每天都被挖墙脚](https://www.kangrunwangye.com/book/1o9mg36/)
 - [星际团宠小人鱼](https://www.kangrunwangye.com/book/1o9mg2c/)
+- [被四皇错看成小动物后](https://www.kangrunwangye.com/book/1o9mg2b/)
 - [你，后室管理员](https://www.kangrunwangye.com/book/1o9mg0v/)
+- [原配夫人](https://www.kangrunwangye.com/book/1o9mg0n/)
 - [[封神]圣人生欲](https://www.kangrunwangye.com/book/1o9mg0m/)
 - [高调装神，猥琐发育](https://www.kangrunwangye.com/book/1o9mg0i/)
-- [女扮男装科举和皇帝撞脸了！](https://www.kangrunwangye.com/book/1o9mfv9/)
 - [纯爱宇智波基本恋爱法](https://www.kangrunwangye.com/book/1o9mftb/)
 - [直男咒术师的限制级游戏](https://www.kangrunwangye.com/book/1o9mfri/)
-- [寻真](https://www.kangrunwangye.com/book/1o9ip7o/)
+- [某柯学的正义伙伴](https://www.kangrunwangye.com/book/1o9jns6/)
+- [男朋友买一送一](https://www.kangrunwangye.com/book/1o9jat9/)
+- [我有嘉宾](https://www.kangrunwangye.com/book/1o9j72g/)
+- [沈助理又在隐藏他的超能力](https://www.kangrunwangye.com/book/5k7iof/)
+- [系统不许我摆烂](https://www.kangrunwangye.com/book/5k7g1s/)
 - [逝水](https://www.kangrunwangye.com/book/5k77jl/)
-- [青空来信](https://www.kangrunwangye.com/book/5k6mgh/)
-- [老公是松散生命体](https://www.kangrunwangye.com/book/5k6kss/)
-- [这谁的沙雕二次元心声！](https://www.kangrunwangye.com/book/5k6kik/)
+- [隔壁班的松田君](https://www.kangrunwangye.com/book/5k6teh/)
+- [你也没死？](https://www.kangrunwangye.com/book/5k6pqj/)
+- [误入反派培养直播后](https://www.kangrunwangye.com/book/5k6dk8/)
 - [多梦你一会儿](https://www.kangrunwangye.com/book/5k6bao/)
-- [拯救世界从扮演反派开始](https://www.kangrunwangye.com/book/5k67r2/)
 - [[足球]罗蜜第一志愿](https://www.kangrunwangye.com/book/5k66hg/)
+- [哥你不能不要我](https://www.kangrunwangye.com/book/5k5l59/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1297/index.md)

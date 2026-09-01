@@ -1,14 +1,16 @@
 
 # 都来读小说网 - 免费电子书阅读平台
 
-更新时间：2026-09-01 03:37:09
+更新时间：2026-09-02 03:37:20
 
 都来读小说网提供快速更新的海量免费小说资源，主要以TXT格式为主，致力于为读者带来优质的阅读体验。
 
 - [都来读小说网](https://www.swazs.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.swazs.com/book/1u7jv8r/)
+- [宠妃岂敢压我！](https://www.swazs.com/book/1u7k6fb/)
+- [假少爷有特殊的算命技巧](https://www.swazs.com/book/1u7k6cr/)
+- [死遁后，师弟他不哄不停](https://www.swazs.com/book/1u7k6b5/)
 - [从维多利亚时代开始](https://www.swazs.com/book/1u7jtiv/)
 - [九零重组小家庭](https://www.swazs.com/book/1u7jodm/)
 - [发家致富小夫郎](https://www.swazs.com/book/1u7jhie/)
@@ -82,7 +84,6 @@
 - [当菟丝花要分手后](https://www.swazs.com/book/1u7ii70/)
 - [十福晋吃瓜日常(清穿)](https://www.swazs.com/book/1u7ih7f/)
 - [不当救世主就要当人类恶了吗](https://www.swazs.com/book/1u7igvp/)
-- [社恐直播鉴宝，但带球跑](https://www.swazs.com/book/1u7iggu/)
 - [当我穿为龙傲天的情敌](https://www.swazs.com/book/1u7ifl2/)
 - [[综英美]让我统治哥谭！！！](https://www.swazs.com/book/1u7iees/)
 - [霓虹夏日](https://www.swazs.com/book/1u7idak/)
@@ -126,7 +127,6 @@
 - [我不是御兽大师](https://www.swazs.com/book/1u7gvsa/)
 - [我真的只会Ctrl啊！！！](https://www.swazs.com/book/1u7gvhr/)
 - [如果时光不记得](https://www.swazs.com/book/1u7gv3b/)
-- [我有特殊的升官技巧](https://www.swazs.com/book/1u7gupi/)
 - [徐娘子的美食发家日常](https://www.swazs.com/book/1u7gsi9/)
 - [虫族之雌君的人设不对劲](https://www.swazs.com/book/1u7grh8/)
 - [搭档，一起来玩求生游戏吧！](https://www.swazs.com/book/1u7gr1q/)
@@ -135,32 +135,27 @@
 - [这男人该死的甜美](https://www.swazs.com/book/1u7goh1/)
 - [恶犬攻绑定上司的乖狗系统](https://www.swazs.com/book/1u7go2k/)
 - [红楼之霸总他被迫拯救女主角](https://www.swazs.com/book/1u7gnqq/)
+- [绝不会喜欢五条君的！](https://www.swazs.com/book/1u7glqu/)
 - [绿茶病秧子骗他说喜欢](https://www.swazs.com/book/1u7glla/)
 - [把清冷权臣调成荡夫后](https://www.swazs.com/book/1u7gke4/)
 - [我真的没想在选秀炒CP](https://www.swazs.com/book/1u7ggvb/)
 - [欢迎来到纳萨力克丧葬公司](https://www.swazs.com/book/1u7gerd/)
-- [养父](https://www.swazs.com/book/1u7gegs/)
-- [在医院旧楼捡到个外科鼻祖](https://www.swazs.com/book/1u7ge8f/)
 - [[群穿]我在御兽番抢人气](https://www.swazs.com/book/1u7gd9t/)
 - [我有一座安全城](https://www.swazs.com/book/1u7filg/)
 - [猫猫也要养家糊口](https://www.swazs.com/book/1u7fige/)
 - [海岛求生：生活玩家种田囤货](https://www.swazs.com/book/1u7fia2/)
 - [星际团宠小人鱼](https://www.swazs.com/book/1u7fi8l/)
-- [如何扮演源氏重宝](https://www.swazs.com/book/1u7fi4q/)
 - [御兽师，我打工养你啊](https://www.swazs.com/book/1u7fi42/)
 - [清澈女大的六零年代](https://www.swazs.com/book/1u7fi1e/)
 - [千禧年，拆迁分了十栋楼！](https://www.swazs.com/book/1u7fhib/)
 - [趁她之危](https://www.swazs.com/book/1u7fhf1/)
 - [我是唯一地上神国](https://www.swazs.com/book/1u7fhbm/)
-- [警察，但犯罪大师系统[刑侦]](https://www.swazs.com/book/1u7fha2/)
-- [人妻O救赎指南](https://www.swazs.com/book/1u7fh56/)
 - [[娱乐圈]过分美丽的她](https://www.swazs.com/book/1u7fh4o/)
 - [六零之成了卷王的妹妹](https://www.swazs.com/book/1u7fguu/)
 - [95美国贵族高中模拟](https://www.swazs.com/book/1u7fgsk/)
 - [在民俗惊悚片被诸神庇护](https://www.swazs.com/book/1u7fgme/)
 - [五十年代港城日常](https://www.swazs.com/book/1u7fgm8/)
 - [日化人生[科研]](https://www.swazs.com/book/1u7fgm3/)
-- [卧底后被港岛大小姐缠上了](https://www.swazs.com/book/1u7fgle/)
 - [全民求生:从小木屋到魔法农场](https://www.swazs.com/book/1u7fgkr/)
 - [假少爷不想活了](https://www.swazs.com/book/1u7fgdh/)
 - [高门小婢](https://www.swazs.com/book/1u7fgbg/)
@@ -175,7 +170,6 @@
 - [穿成炮灰后我封神了［快穿］](https://www.swazs.com/book/1u7ffnu/)
 - [大瑛弟国](https://www.swazs.com/book/1u7ffko/)
 - [为诡异打工，但反封建迷信](https://www.swazs.com/book/1u7ffif/)
-- [替嫁后咸鱼继母佛系日常](https://www.swazs.com/book/1u7ffh6/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1400/index.md)

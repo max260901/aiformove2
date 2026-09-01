@@ -1,42 +1,50 @@
 
 # 积家健康小说 - 无弹窗无广告小说在线阅读
 
-更新时间：2026-09-01 03:27:04
+更新时间：2026-09-02 03:27:09
 
 积家健康小说提供一个干净简洁的平台让您享受无弹窗无广告的小说在线阅读体验。无论是在线阅读还是下载小说，都是完全免费的。
 
 - [积家健康小说](https://www.jijiajk.com/)
 
 ## 最新小说
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.jijiajk.com/book/3ab1tr2/)
+- [从异世界穿回来后](https://www.jijiajk.com/book/3ab2hoc/)
+- [我有嘉宾](https://www.jijiajk.com/book/3ab2gqo/)
 - [阿竹与野桃](https://www.jijiajk.com/book/3ab1tq7/)
+- [失而复得的白月光[快穿]](https://www.jijiajk.com/book/3ab19kq/)
+- [男朋友买一送一](https://www.jijiajk.com/book/3ab17p8/)
+- [被鬼怪宠爱的漂亮书生](https://www.jijiajk.com/book/3ab15ah/)
 - [如何正确哄睡暴君](https://www.jijiajk.com/book/3ab10h1/)
+- [我不可能舔一个漂亮捞子](https://www.jijiajk.com/book/3ab0v6l/)
 - [逝水](https://www.jijiajk.com/book/3ab0td9/)
+- [你也没死？](https://www.jijiajk.com/book/3ab0oin/)
 - [微臣怜惜公主](https://www.jijiajk.com/book/3ab0n86/)
-- [老公是松散生命体](https://www.jijiajk.com/book/3ab0mu8/)
-- [寻真](https://www.jijiajk.com/book/3ab0l63/)
-- [豪门养子怀了大哥的崽](https://www.jijiajk.com/book/3ab0hth/)
-- [女扮男装科举和皇帝撞脸了！](https://www.jijiajk.com/book/3ab0e4g/)
+- [沈助理又在隐藏他的超能力](https://www.jijiajk.com/book/3ab0g9j/)
+- [哥你不能不要我](https://www.jijiajk.com/book/3ab0fan/)
+- [系统不许我摆烂](https://www.jijiajk.com/book/3ab09di/)
 - [直男咒术师的限制级游戏](https://www.jijiajk.com/book/3ab06lm/)
 - [多梦你一会儿](https://www.jijiajk.com/book/3ab03ug/)
-- [这谁的沙雕二次元心声！](https://www.jijiajk.com/book/3ab02fm/)
 - [穿为清冷影后的污点A](https://www.jijiajk.com/book/3ab01gf/)
-- [就算是龙傲天也不可以[快穿]](https://www.jijiajk.com/book/3ab018b/)
 - [炮灰的我该如何上位？](https://www.jijiajk.com/book/3aavvli/)
-- [拯救世界从扮演反派开始](https://www.jijiajk.com/book/3aavti0/)
-- [善逸拒绝成为咒术师](https://www.jijiajk.com/book/3aavsqn/)
+- [被豪门封建长兄娇养了](https://www.jijiajk.com/book/3aavskv/)
 - [井闼山经理每天都被挖墙脚](https://www.jijiajk.com/book/3aavqde/)
+- [侯府打工人](https://www.jijiajk.com/book/3aavqab/)
 - [[足球]罗蜜第一志愿](https://www.jijiajk.com/book/3aavop2/)
+- [隔壁班的松田君](https://www.jijiajk.com/book/3aavo66/)
+- [某柯学的正义伙伴](https://www.jijiajk.com/book/3aavnku/)
 - [[足球]小小鸟堂堂来袭](https://www.jijiajk.com/book/3aavmhk/)
-- [青空来信](https://www.jijiajk.com/book/3aavloq/)
 - [法外狂猫](https://www.jijiajk.com/book/3aavjto/)
 - [和室友他爸恋爱后](https://www.jijiajk.com/book/3aavie1/)
+- [撕毁女配剧本的我被神之子读心了](https://www.jijiajk.com/book/3aavh39/)
 - [好兄弟暴富后非要跟我结婚](https://www.jijiajk.com/book/3aavda1/)
-- [关于我虚构了一个男友这件事](https://www.jijiajk.com/book/3aavckk/)
+- [我，剑圣，养生中，勿扰](https://www.jijiajk.com/book/3aavbj8/)
 - [星际团宠小人鱼](https://www.jijiajk.com/book/3aatj10/)
 - [你，后室管理员](https://www.jijiajk.com/book/3aativ3/)
+- [误入反派培养直播后](https://www.jijiajk.com/book/3aatitm/)
 - [纯爱宇智波基本恋爱法](https://www.jijiajk.com/book/3aatiri/)
 - [[封神]圣人生欲](https://www.jijiajk.com/book/3aatin5/)
+- [被四皇错看成小动物后](https://www.jijiajk.com/book/3aath12/)
+- [原配夫人](https://www.jijiajk.com/book/3aatg9u/)
 - [高调装神，猥琐发育](https://www.jijiajk.com/book/3aatg0k/)
 ## 相关内容
 - [README](/README.md)

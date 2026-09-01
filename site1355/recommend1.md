@@ -1,14 +1,15 @@
 
 # 梦翔橙子小说网-全本小说最值得收藏的在线阅读平台
 
-更新时间：2026-09-01 03:31:25
+更新时间：2026-09-02 03:31:30
 
 梦翔橙子小说网为您提供最新、最热门的小说资源，拥有全网最全面的小说库。无论是全本还是连载中，都能在这里找到。是解决书荒问题的理想选择，让您的阅读体验更加流畅愉快。
 
 - [梦翔橙子小说网](https://www.mengxiang668.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.mengxiang668.com/book/2nrq1tt/)
+- [死遁后，师弟他不哄不停](https://www.mengxiang668.com/book/2nrq470/)
+- [宠妃岂敢压我！](https://www.mengxiang668.com/book/2nrq46m/)
 - [发家致富小夫郎](https://www.mengxiang668.com/book/2nrpt9f/)
 - [[原神+崩铁]在提瓦特隐居也未尝不可](https://www.mengxiang668.com/book/2nrpr0l/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.mengxiang668.com/book/2nrpr0h/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.mengxiang668.com/book/2nrpoji/)
 - [灭世龙崽有什么错](https://www.mengxiang668.com/book/2nrphke/)
 - [九零重组小家庭](https://www.mengxiang668.com/book/2nrpfof/)
-- [养父](https://www.mengxiang668.com/book/2nrpeke/)
-- [人妻O救赎指南](https://www.mengxiang668.com/book/2nrpejl/)
+- [假少爷有特殊的算命技巧](https://www.mengxiang668.com/book/2nrpetr/)
 - [在虫族世界逃命升级](https://www.mengxiang668.com/book/2nrpb3t/)
 - [神豪文男主是我爸](https://www.mengxiang668.com/book/2nrpacv/)
 - [从维多利亚时代开始](https://www.mengxiang668.com/book/2nrp1jp/)
-- [我有特殊的升官技巧](https://www.mengxiang668.com/book/2nroumt/)
 - [星际团宠小人鱼](https://www.mengxiang668.com/book/2nrorla/)
 - [十九世纪贵族厨房（美食）](https://www.mengxiang668.com/book/2nroriu/)
 - [反派人生，易如反掌[快穿]](https://www.mengxiang668.com/book/2nror1s/)
@@ -89,7 +88,6 @@
 - [为诡异打工，但反封建迷信](https://www.mengxiang668.com/book/2nrnlrj/)
 - [不当救世主就要当人类恶了吗](https://www.mengxiang668.com/book/2nrnj1q/)
 - [十福晋吃瓜日常(清穿)](https://www.mengxiang668.com/book/2nrniq6/)
-- [社恐直播鉴宝，但带球跑](https://www.mengxiang668.com/book/2nrnik5/)
 - [当我穿为龙傲天的情敌](https://www.mengxiang668.com/book/2nrnib6/)
 - [在民俗惊悚片被诸神庇护](https://www.mengxiang668.com/book/2nrnhva/)
 - [当菟丝花要分手后](https://www.mengxiang668.com/book/2nrnh6f/)
@@ -97,7 +95,6 @@
 - [假金丝雀深陷修罗场](https://www.mengxiang668.com/book/2nrnero/)
 - [养成游戏，但破解版](https://www.mengxiang668.com/book/2nrna58/)
 - [霓虹夏日](https://www.mengxiang668.com/book/2nrn75m/)
-- [替嫁后咸鱼继母佛系日常](https://www.mengxiang668.com/book/2nrn3t2/)
 - [[综英美]让我统治哥谭！！！](https://www.mengxiang668.com/book/2nrn0b1/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.mengxiang668.com/book/2nrmvtv/)
 - [重力系杀手误入忍界记实录](https://www.mengxiang668.com/book/2nrmvji/)
@@ -147,9 +144,7 @@
 - [徐娘子的美食发家日常](https://www.mengxiang668.com/book/2nrllim/)
 - [我真的没想在选秀炒CP](https://www.mengxiang668.com/book/2nrll46/)
 - [把清冷权臣调成荡夫后](https://www.mengxiang668.com/book/2nrlj6j/)
-- [在医院旧楼捡到个外科鼻祖](https://www.mengxiang668.com/book/2nrlih2/)
 - [[群穿]我在御兽番抢人气](https://www.mengxiang668.com/book/2nrli2g/)
-- [警察，但犯罪大师系统[刑侦]](https://www.mengxiang668.com/book/2nrkmb2/)
 - [科学主义魔法学院](https://www.mengxiang668.com/book/2nrkm44/)
 - [清澈女大的六零年代](https://www.mengxiang668.com/book/2nrkm1t/)
 - [猫猫也要养家糊口](https://www.mengxiang668.com/book/2nrkm1j/)
@@ -165,15 +160,14 @@
 - [高门小婢](https://www.mengxiang668.com/book/2nrkkm3/)
 - [御兽师，我打工养你啊](https://www.mengxiang668.com/book/2nrkkgk/)
 - [大瑛弟国](https://www.mengxiang668.com/book/2nrkkg5/)
-- [卧底后被港岛大小姐缠上了](https://www.mengxiang668.com/book/2nrkkf2/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.mengxiang668.com/book/2nrkkc9/)
 - [我有一座安全城](https://www.mengxiang668.com/book/2nrkk9q/)
 - [全民求生:从小木屋到魔法农场](https://www.mengxiang668.com/book/2nrkk5p/)
+- [绝不会喜欢五条君的！](https://www.mengxiang668.com/book/2nrkjrs/)
 - [高嫁之后](https://www.mengxiang668.com/book/2nrkjnl/)
 - [五十年代港城日常](https://www.mengxiang668.com/book/2nrkjjj/)
 - [日化人生[科研]](https://www.mengxiang668.com/book/2nrkjib/)
 - [我是唯一地上神国](https://www.mengxiang668.com/book/2nrkj84/)
-- [如何扮演源氏重宝](https://www.mengxiang668.com/book/2nrkj7t/)
 - [古代种田养娃日常](https://www.mengxiang668.com/book/2nrkj5u/)
 - [六零之成了卷王的妹妹](https://www.mengxiang668.com/book/2nrkj3r/)
 ## 相关内容

@@ -1,14 +1,15 @@
 
 # 无瑕天涯在线书库 - 免费小说在线阅读
 
-更新时间：2026-09-01 03:40:22
+更新时间：2026-09-02 03:40:37
 
 无瑕天涯在线书库自2003年创立至今，致力于提供包括武侠、言情、科幻等多种类型的小说免费在线阅读服务。页面设计简洁，持续优化用户体验，旨在为读者带来更好的阅读享受。
 
 - [无瑕天涯书库](https://www.wuxia688.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.wuxia688.com/book/2bjrame/)
+- [宠妃岂敢压我！](https://www.wuxia688.com/book/2bjrd2r/)
+- [死遁后，师弟他不哄不停](https://www.wuxia688.com/book/2bjrd2g/)
 - [发家致富小夫郎](https://www.wuxia688.com/book/2bjr64c/)
 - [[娱乐圈]穿进同人文里哦多尅](https://www.wuxia688.com/book/2bjr3qq/)
 - [影帝今天分手了吗[娱乐圈]](https://www.wuxia688.com/book/2bjr3qk/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.wuxia688.com/book/2bjr1c3/)
 - [灭世龙崽有什么错](https://www.wuxia688.com/book/2bjqqfv/)
 - [九零重组小家庭](https://www.wuxia688.com/book/2bjqojj/)
-- [养父](https://www.wuxia688.com/book/2bjqnhv/)
-- [人妻O救赎指南](https://www.wuxia688.com/book/2bjqncn/)
+- [假少爷有特殊的算命技巧](https://www.wuxia688.com/book/2bjqnnu/)
 - [在虫族世界逃命升级](https://www.wuxia688.com/book/2bjqk0l/)
 - [神豪文男主是我爸](https://www.wuxia688.com/book/2bjqj1s/)
 - [从维多利亚时代开始](https://www.wuxia688.com/book/2bjqaai/)
-- [我有特殊的升官技巧](https://www.wuxia688.com/book/2bjq7dh/)
 - [十九世纪贵族厨房（美食）](https://www.wuxia688.com/book/2bjq4d4/)
 - [星际团宠小人鱼](https://www.wuxia688.com/book/2bjq4bv/)
 - [反派人生，易如反掌[快穿]](https://www.wuxia688.com/book/2bjq3t8/)
@@ -91,13 +90,11 @@
 - [当我穿为龙傲天的情敌](https://www.wuxia688.com/book/2bjosgf/)
 - [不当救世主就要当人类恶了吗](https://www.wuxia688.com/book/2bjosdv/)
 - [十福晋吃瓜日常(清穿)](https://www.wuxia688.com/book/2bjoqun/)
-- [社恐直播鉴宝，但带球跑](https://www.wuxia688.com/book/2bjoqp7/)
 - [假金丝雀深陷修罗场](https://www.wuxia688.com/book/2bjoopl/)
 - [[全职高手]霸图老板是叶修](https://www.wuxia688.com/book/2bjondj/)
 - [当菟丝花要分手后](https://www.wuxia688.com/book/2bjon4t/)
 - [养成游戏，但破解版](https://www.wuxia688.com/book/2bjoj5u/)
 - [霓虹夏日](https://www.wuxia688.com/book/2bjofvg/)
-- [替嫁后咸鱼继母佛系日常](https://www.wuxia688.com/book/2bjocie/)
 - [[综英美]让我统治哥谭！！！](https://www.wuxia688.com/book/2bjoah6/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.wuxia688.com/book/2bjo9fr/)
 - [八零恶毒后妈杀疯了](https://www.wuxia688.com/book/2bjo7j3/)
@@ -146,17 +143,14 @@
 - [我不是御兽大师](https://www.wuxia688.com/book/2bjmvs1/)
 - [徐娘子的美食发家日常](https://www.wuxia688.com/book/2bjmum3/)
 - [我真的没想在选秀炒CP](https://www.wuxia688.com/book/2bjmsnf/)
-- [在医院旧楼捡到个外科鼻祖](https://www.wuxia688.com/book/2bjmrr6/)
 - [把清冷权臣调成荡夫后](https://www.wuxia688.com/book/2bjmqqj/)
 - [[群穿]我在御兽番抢人气](https://www.wuxia688.com/book/2bjmprd/)
 - [刑部的小衙门](https://www.wuxia688.com/book/2bjlv5q/)
 - [我是唯一地上神国](https://www.wuxia688.com/book/2bjlv5n/)
-- [警察，但犯罪大师系统[刑侦]](https://www.wuxia688.com/book/2bjlv16/)
 - [95美国贵族高中模拟](https://www.wuxia688.com/book/2bjluga/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.wuxia688.com/book/2bjlug3/)
 - [六零之成了卷王的妹妹](https://www.wuxia688.com/book/2bjlufm/)
 - [日化人生[科研]](https://www.wuxia688.com/book/2bjlu7h/)
-- [卧底后被港岛大小姐缠上了](https://www.wuxia688.com/book/2bjlu7d/)
 - [巨物致富：回乡开钓场](https://www.wuxia688.com/book/2bjlu62/)
 - [清澈女大的六零年代](https://www.wuxia688.com/book/2bjlu54/)
 - [海岛求生：生活玩家种田囤货](https://www.wuxia688.com/book/2bjlu3s/)
@@ -166,12 +160,12 @@
 - [御兽师，我打工养你啊](https://www.wuxia688.com/book/2bjlta8/)
 - [我有一座安全城](https://www.wuxia688.com/book/2bjlt5a/)
 - [猫猫也要养家糊口](https://www.wuxia688.com/book/2bjlt2v/)
+- [绝不会喜欢五条君的！](https://www.wuxia688.com/book/2bjlstc/)
 - [[娱乐圈]过分美丽的她](https://www.wuxia688.com/book/2bjlso5/)
 - [全民求生:从小木屋到魔法农场](https://www.wuxia688.com/book/2bjlsnr/)
 - [千禧年，拆迁分了十栋楼！](https://www.wuxia688.com/book/2bjlskd/)
 - [穿成炮灰后我封神了［快穿］](https://www.wuxia688.com/book/2bjlsj4/)
 - [古代种田养娃日常](https://www.wuxia688.com/book/2bjlsfb/)
-- [如何扮演源氏重宝](https://www.wuxia688.com/book/2bjls9s/)
 - [五十年代港城日常](https://www.wuxia688.com/book/2bjls7k/)
 - [假少爷不想活了](https://www.wuxia688.com/book/2bjls1s/)
 - [成为养成系练习生后](https://www.wuxia688.com/book/2bjlrus/)

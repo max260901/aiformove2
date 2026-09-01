@@ -1,31 +1,38 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-09-01 03:30:53
+更新时间：2026-09-02 03:30:58
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
 - [爱你中文网](https://www.longjiangstone.com/)
 
 ## 最新小说
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.longjiangstone.com/book/34b4kh/)
+- [躲避原书剧情五年后](https://www.longjiangstone.com/book/34b4m9/)
+- [从异世界穿回来后](https://www.longjiangstone.com/book/34b4l5/)
 - [井闼山经理每天都被挖墙脚](https://www.longjiangstone.com/book/34b4k0/)
+- [失而复得的白月光[快穿]](https://www.longjiangstone.com/book/34b4jc/)
 - [阿竹与野桃](https://www.longjiangstone.com/book/34b4j4/)
+- [原配夫人](https://www.longjiangstone.com/book/34b4it/)
 - [星际团宠小人鱼](https://www.longjiangstone.com/book/34b4hq/)
 - [你，后室管理员](https://www.longjiangstone.com/book/34b4hl/)
 - [[封神]圣人生欲](https://www.longjiangstone.com/book/34b4ha/)
+- [被四皇错看成小动物后](https://www.longjiangstone.com/book/34b4h7/)
 - [高调装神，猥琐发育](https://www.longjiangstone.com/book/34b4gf/)
-- [女扮男装科举和皇帝撞脸了！](https://www.longjiangstone.com/book/34b4fn/)
 - [纯爱宇智波基本恋爱法](https://www.longjiangstone.com/book/34b4f0/)
 - [直男咒术师的限制级游戏](https://www.longjiangstone.com/book/34b4cq/)
-- [寻真](https://www.longjiangstone.com/book/347dic/)
+- [某柯学的正义伙伴](https://www.longjiangstone.com/book/348c4v/)
+- [男朋友买一送一](https://www.longjiangstone.com/book/3480qj/)
+- [我有嘉宾](https://www.longjiangstone.com/book/347r4j/)
+- [沈助理又在隐藏他的超能力](https://www.longjiangstone.com/book/a3a1f/)
+- [系统不许我摆烂](https://www.longjiangstone.com/book/a35t6/)
 - [逝水](https://www.longjiangstone.com/book/a2tc1/)
-- [这谁的沙雕二次元心声！](https://www.longjiangstone.com/book/a2c9m/)
-- [青空来信](https://www.longjiangstone.com/book/a2av6/)
-- [老公是松散生命体](https://www.longjiangstone.com/book/a2a1j/)
+- [隔壁班的松田君](https://www.longjiangstone.com/book/a2h9n/)
+- [你也没死？](https://www.longjiangstone.com/book/a2e9u/)
+- [误入反派培养直播后](https://www.longjiangstone.com/book/a22i7/)
 - [多梦你一会儿](https://www.longjiangstone.com/book/a1vpn/)
-- [拯救世界从扮演反派开始](https://www.longjiangstone.com/book/a1rdl/)
 - [[足球]罗蜜第一志愿](https://www.longjiangstone.com/book/a1rb2/)
+- [哥你不能不要我](https://www.longjiangstone.com/book/a1apr/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1284/index.md)

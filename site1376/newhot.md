@@ -1,41 +1,51 @@
 
 # 零点看书吧-书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-01 03:24:56
+更新时间：2026-09-02 03:25:01
 
 零点看书吧是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节。作为无弹窗的小说阅读平台，零点看书吧成为网络小说爱好者必备的选择。
 
 - [零点看书吧](https://www.gjnbgb.com/)
 
 ## 最新小说
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.gjnbgb.com/book/2s9shih/)
+- [从异世界穿回来后](https://www.gjnbgb.com/book/2s9souq/)
+- [我有嘉宾](https://www.gjnbgb.com/book/2s9socc/)
 - [阿竹与野桃](https://www.gjnbgb.com/book/2s9shfu/)
+- [男朋友买一送一](https://www.gjnbgb.com/book/2s9rfcq/)
+- [躲避原书剧情五年后](https://www.gjnbgb.com/book/2s9rf2q/)
+- [失而复得的白月光[快穿]](https://www.gjnbgb.com/book/2s9rctv/)
 - [如何正确哄睡暴君](https://www.gjnbgb.com/book/2s9r6me/)
+- [被鬼怪宠爱的漂亮书生](https://www.gjnbgb.com/book/2s9r5j3/)
+- [你也没死？](https://www.gjnbgb.com/book/2s9r01k/)
+- [我不可能舔一个漂亮捞子](https://www.gjnbgb.com/book/2s9qvvp/)
 - [逝水](https://www.gjnbgb.com/book/2s9quef/)
-- [老公是松散生命体](https://www.gjnbgb.com/book/2s9qtd5/)
-- [寻真](https://www.gjnbgb.com/book/2s9qt3c/)
 - [微臣怜惜公主](https://www.gjnbgb.com/book/2s9qo7e/)
-- [女扮男装科举和皇帝撞脸了！](https://www.gjnbgb.com/book/2s9qkh4/)
+- [沈助理又在隐藏他的超能力](https://www.gjnbgb.com/book/2s9ql97/)
+- [哥你不能不要我](https://www.gjnbgb.com/book/2s9qisr/)
+- [系统不许我摆烂](https://www.gjnbgb.com/book/2s9qgu7/)
 - [直男咒术师的限制级游戏](https://www.gjnbgb.com/book/2s9qdut/)
 - [穿为清冷影后的污点A](https://www.gjnbgb.com/book/2s9q94g/)
 - [炮灰的我该如何上位？](https://www.gjnbgb.com/book/2s9q87b/)
 - [多梦你一会儿](https://www.gjnbgb.com/book/2s9q82r/)
-- [这谁的沙雕二次元心声！](https://www.gjnbgb.com/book/2s9q7c0/)
-- [善逸拒绝成为咒术师](https://www.gjnbgb.com/book/2s9q58s/)
-- [拯救世界从扮演反派开始](https://www.gjnbgb.com/book/2s9q2ep/)
 - [井闼山经理每天都被挖墙脚](https://www.gjnbgb.com/book/2s9q1ub/)
+- [隔壁班的松田君](https://www.gjnbgb.com/book/2s9pu3b/)
 - [[足球]罗蜜第一志愿](https://www.gjnbgb.com/book/2s9ptsc/)
-- [青空来信](https://www.gjnbgb.com/book/2s9ptm2/)
+- [某柯学的正义伙伴](https://www.gjnbgb.com/book/2s9prst/)
+- [侯府打工人](https://www.gjnbgb.com/book/2s9pr9u/)
 - [[足球]小小鸟堂堂来袭](https://www.gjnbgb.com/book/2s9pml6/)
+- [撕毁女配剧本的我被神之子读心了](https://www.gjnbgb.com/book/2s9pl2a/)
 - [法外狂猫](https://www.gjnbgb.com/book/2s9pip8/)
 - [好兄弟暴富后非要跟我结婚](https://www.gjnbgb.com/book/2s9phnb/)
-- [关于我虚构了一个男友这件事](https://www.gjnbgb.com/book/2s9pehf/)
+- [我，剑圣，养生中，勿扰](https://www.gjnbgb.com/book/2s9pdh8/)
 - [和室友他爸恋爱后](https://www.gjnbgb.com/book/2s9pc8e/)
 - [纯爱宇智波基本恋爱法](https://www.gjnbgb.com/book/2s9np8v/)
 - [高调装神，猥琐发育](https://www.gjnbgb.com/book/2s9np4t/)
+- [误入反派培养直播后](https://www.gjnbgb.com/book/2s9nos4/)
 - [[封神]圣人生欲](https://www.gjnbgb.com/book/2s9nom2/)
+- [被四皇错看成小动物后](https://www.gjnbgb.com/book/2s9noj3/)
 - [你，后室管理员](https://www.gjnbgb.com/book/2s9nnk3/)
 - [星际团宠小人鱼](https://www.gjnbgb.com/book/2s9nn9s/)
+- [原配夫人](https://www.gjnbgb.com/book/2s9nn6p/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1376/index.md)

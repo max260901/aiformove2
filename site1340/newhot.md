@@ -1,7 +1,7 @@
 
 # 时光树园-热门小说大全-小说排行榜-好看的小说推荐-热门小说推荐
 
-更新时间：2026-09-01 03:29:27
+更新时间：2026-09-02 03:29:31
 
 时光树园是一个热门小说推荐网站，这里有热门全本小说大全、好看的小说推荐、小说排行榜等。您可以在这里无广告在线阅读优质的豪门总裁小说、现代言情小说、古代言情小说、都市小说、穿越小说、玄幻小说、武侠仙侠等各类热门小说。
 
@@ -9,29 +9,36 @@
 
 ## 最新小说
 - [阿竹与野桃](https://www.kltbl.com/book/5achbu5/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kltbl.com/book/5achbrc/)
+- [躲避原书剧情五年后](https://www.kltbl.com/book/5ach9nt/)
+- [我有嘉宾](https://www.kltbl.com/book/5ach0lu/)
+- [从异世界穿回来后](https://www.kltbl.com/book/5ach007/)
 - [星际团宠小人鱼](https://www.kltbl.com/book/5acgrm2/)
 - [你，后室管理员](https://www.kltbl.com/book/5acgrll/)
+- [原配夫人](https://www.kltbl.com/book/5acgrgt/)
 - [高调装神，猥琐发育](https://www.kltbl.com/book/5acffu7/)
-- [女扮男装科举和皇帝撞脸了！](https://www.kltbl.com/book/5acf92p/)
+- [男朋友买一送一](https://www.kltbl.com/book/5acfenb/)
 - [直男咒术师的限制级游戏](https://www.kltbl.com/book/5acf8bv/)
 - [如何正确哄睡暴君](https://www.kltbl.com/book/5acf18r/)
-- [寻真](https://www.kltbl.com/book/5acet45/)
+- [失而复得的白月光[快穿]](https://www.kltbl.com/book/5acf0q9/)
 - [逝水](https://www.kltbl.com/book/5aces50/)
+- [你也没死？](https://www.kltbl.com/book/5acen0o/)
+- [沈助理又在隐藏他的超能力](https://www.kltbl.com/book/5acemjs/)
+- [我不可能舔一个漂亮捞子](https://www.kltbl.com/book/5acelqg/)
+- [系统不许我摆烂](https://www.kltbl.com/book/5aceja9/)
+- [误入反派培养直播后](https://www.kltbl.com/book/5acea3b/)
 - [微臣怜惜公主](https://www.kltbl.com/book/5ace4rm/)
 - [多梦你一会儿](https://www.kltbl.com/book/5ace3el/)
+- [哥你不能不要我](https://www.kltbl.com/book/5ace2up/)
+- [被鬼怪宠爱的漂亮书生](https://www.kltbl.com/book/5ace2p7/)
 - [炮灰的我该如何上位？](https://www.kltbl.com/book/5acdvc8/)
-- [拯救世界从扮演反派开始](https://www.kltbl.com/book/5acdvb5/)
-- [这谁的沙雕二次元心声！](https://www.kltbl.com/book/5acdtlo/)
-- [青空来信](https://www.kltbl.com/book/5acdqv1/)
+- [隔壁班的松田君](https://www.kltbl.com/book/5acdugc/)
+- [某柯学的正义伙伴](https://www.kltbl.com/book/5acdr7m/)
 - [[封神]圣人生欲](https://www.kltbl.com/book/5acdpre/)
 - [纯爱宇智波基本恋爱法](https://www.kltbl.com/book/5acdp37/)
-- [老公是松散生命体](https://www.kltbl.com/book/5acdp14/)
-- [善逸拒绝成为咒术师](https://www.kltbl.com/book/5acdna1/)
+- [被四皇错看成小动物后](https://www.kltbl.com/book/5acdlif/)
 - [[足球]罗蜜第一志愿](https://www.kltbl.com/book/5acdk9c/)
 - [井闼山经理每天都被挖墙脚](https://www.kltbl.com/book/5acdj20/)
 - [好兄弟暴富后非要跟我结婚](https://www.kltbl.com/book/5acd7id/)
-- [关于我虚构了一个男友这件事](https://www.kltbl.com/book/5acd5p4/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1340/index.md)

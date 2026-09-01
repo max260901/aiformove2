@@ -1,40 +1,50 @@
 
 # 湾里早市时间小说网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-01 03:39:50
+更新时间：2026-09-02 03:40:05
 
 湾里早市时间小说网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
 - [湾里早市时间小说网](https://www.wlzssj.com/)
 
 ## 最新小说
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wlzssj.com/book/4pmeocf/)
+- [从异世界穿回来后](https://www.wlzssj.com/book/4pmevml/)
+- [我有嘉宾](https://www.wlzssj.com/book/4pmev4g/)
 - [阿竹与野桃](https://www.wlzssj.com/book/4pmeo6u/)
+- [躲避原书剧情五年后](https://www.wlzssj.com/book/4pmdljk/)
+- [男朋友买一送一](https://www.wlzssj.com/book/4pmdles/)
+- [失而复得的白月光[快穿]](https://www.wlzssj.com/book/4pmdkvc/)
+- [被鬼怪宠爱的漂亮书生](https://www.wlzssj.com/book/4pmdcp9/)
 - [如何正确哄睡暴君](https://www.wlzssj.com/book/4pmdckp/)
+- [你也没死？](https://www.wlzssj.com/book/4pmd6fp/)
 - [逝水](https://www.wlzssj.com/book/4pmd5ed/)
-- [老公是松散生命体](https://www.wlzssj.com/book/4pmd2vj/)
-- [寻真](https://www.wlzssj.com/book/4pmd1qq/)
+- [我不可能舔一个漂亮捞子](https://www.wlzssj.com/book/4pmd4t8/)
 - [微臣怜惜公主](https://www.wlzssj.com/book/4pmd19v/)
-- [女扮男装科举和皇帝撞脸了！](https://www.wlzssj.com/book/4pmcpg1/)
+- [沈助理又在隐藏他的超能力](https://www.wlzssj.com/book/4pmcsva/)
+- [哥你不能不要我](https://www.wlzssj.com/book/4pmcp8d/)
+- [系统不许我摆烂](https://www.wlzssj.com/book/4pmcor9/)
 - [直男咒术师的限制级游戏](https://www.wlzssj.com/book/4pmclkv/)
 - [穿为清冷影后的污点A](https://www.wlzssj.com/book/4pmcfvq/)
-- [这谁的沙雕二次元心声！](https://www.wlzssj.com/book/4pmcdp8/)
 - [炮灰的我该如何上位？](https://www.wlzssj.com/book/4pmcdjm/)
 - [多梦你一会儿](https://www.wlzssj.com/book/4pmcdc6/)
-- [善逸拒绝成为咒术师](https://www.wlzssj.com/book/4pmccel/)
 - [井闼山经理每天都被挖墙脚](https://www.wlzssj.com/book/4pmc7th/)
-- [拯救世界从扮演反派开始](https://www.wlzssj.com/book/4pmc7g3/)
 - [[足球]罗蜜第一志愿](https://www.wlzssj.com/book/4pmc73m/)
-- [青空来信](https://www.wlzssj.com/book/4pmc2n5/)
+- [隔壁班的松田君](https://www.wlzssj.com/book/4pmc5q6/)
+- [某柯学的正义伙伴](https://www.wlzssj.com/book/4pmc307/)
+- [侯府打工人](https://www.wlzssj.com/book/4pmc2h2/)
+- [撕毁女配剧本的我被神之子读心了](https://www.wlzssj.com/book/4pmbshp/)
 - [[足球]小小鸟堂堂来袭](https://www.wlzssj.com/book/4pmbs7r/)
 - [法外狂猫](https://www.wlzssj.com/book/4pmbq55/)
 - [好兄弟暴富后非要跟我结婚](https://www.wlzssj.com/book/4pmbni3/)
+- [我，剑圣，养生中，勿扰](https://www.wlzssj.com/book/4pmbl2g/)
 - [和室友他爸恋爱后](https://www.wlzssj.com/book/4pmbkp5/)
-- [关于我虚构了一个男友这件事](https://www.wlzssj.com/book/4pmbjt0/)
 - [你，后室管理员](https://www.wlzssj.com/book/4pma0ue/)
 - [纯爱宇智波基本恋爱法](https://www.wlzssj.com/book/4pma04q/)
 - [高调装神，猥琐发育](https://www.wlzssj.com/book/4pma045/)
 - [[封神]圣人生欲](https://www.wlzssj.com/book/4pm9vuc/)
+- [误入反派培养直播后](https://www.wlzssj.com/book/4pm9va0/)
+- [被四皇错看成小动物后](https://www.wlzssj.com/book/4pm9ul5/)
+- [原配夫人](https://www.wlzssj.com/book/4pm9ukm/)
 - [星际团宠小人鱼](https://www.wlzssj.com/book/4pm9u6f/)
 ## 相关内容
 - [README](/README.md)

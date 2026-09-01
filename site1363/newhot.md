@@ -1,7 +1,7 @@
 
 # 无瑕天涯在线书库 - 免费小说在线阅读
 
-更新时间：2026-09-01 03:40:22
+更新时间：2026-09-02 03:40:37
 
 无瑕天涯在线书库自2003年创立至今，致力于提供包括武侠、言情、科幻等多种类型的小说免费在线阅读服务。页面设计简洁，持续优化用户体验，旨在为读者带来更好的阅读享受。
 
@@ -9,32 +9,41 @@
 
 ## 最新小说
 - [阿竹与野桃](https://www.wuxia688.com/book/2bjr3pp/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wuxia688.com/book/2bjr3nu/)
+- [从异世界穿回来后](https://www.wuxia688.com/book/2bjqvcr/)
+- [我有嘉宾](https://www.wuxia688.com/book/2bjqv37/)
+- [原配夫人](https://www.wuxia688.com/book/2bjq4du/)
 - [你，后室管理员](https://www.wuxia688.com/book/2bjq4ch/)
 - [星际团宠小人鱼](https://www.wuxia688.com/book/2bjq4bv/)
 - [高调装神，猥琐发育](https://www.wuxia688.com/book/2bjptcu/)
+- [男朋友买一送一](https://www.wuxia688.com/book/2bjpj0v/)
+- [失而复得的白月光[快穿]](https://www.wuxia688.com/book/2bjpdol/)
 - [如何正确哄睡暴君](https://www.wuxia688.com/book/2bjpaj1/)
-- [寻真](https://www.wuxia688.com/book/2bjp161/)
+- [躲避原书剧情五年后](https://www.wuxia688.com/book/2bjp9hn/)
+- [你也没死？](https://www.wuxia688.com/book/2bjp2nb/)
+- [我不可能舔一个漂亮捞子](https://www.wuxia688.com/book/2bjp168/)
 - [逝水](https://www.wuxia688.com/book/2bjp0rd/)
-- [老公是松散生命体](https://www.wuxia688.com/book/2bjord5/)
+- [被鬼怪宠爱的漂亮书生](https://www.wuxia688.com/book/2bjoqvp/)
+- [沈助理又在隐藏他的超能力](https://www.wuxia688.com/book/2bjoq58/)
 - [微臣怜惜公主](https://www.wuxia688.com/book/2bjonss/)
+- [系统不许我摆烂](https://www.wuxia688.com/book/2bjok6e/)
+- [误入反派培养直播后](https://www.wuxia688.com/book/2bjoh5e/)
+- [被四皇错看成小动物后](https://www.wuxia688.com/book/2bjoa9v/)
 - [炮灰的我该如何上位？](https://www.wuxia688.com/book/2bjoa2u/)
+- [哥你不能不要我](https://www.wuxia688.com/book/2bjo8pc/)
 - [[封神]圣人生欲](https://www.wuxia688.com/book/2bjo8kt/)
 - [多梦你一会儿](https://www.wuxia688.com/book/2bjo8ke/)
-- [这谁的沙雕二次元心声！](https://www.wuxia688.com/book/2bjo64q/)
-- [善逸拒绝成为咒术师](https://www.wuxia688.com/book/2bjo5p6/)
-- [青空来信](https://www.wuxia688.com/book/2bjo26v/)
+- [隔壁班的松田君](https://www.wuxia688.com/book/2bjo485/)
+- [某柯学的正义伙伴](https://www.wuxia688.com/book/2bjo286/)
 - [[足球]罗蜜第一志愿](https://www.wuxia688.com/book/2bjo1fd/)
 - [井闼山经理每天都被挖墙脚](https://www.wuxia688.com/book/2bjntbf/)
 - [[足球]小小鸟堂堂来袭](https://www.wuxia688.com/book/2bjnlm0/)
 - [好兄弟暴富后非要跟我结婚](https://www.wuxia688.com/book/2bjngui/)
+- [侯府打工人](https://www.wuxia688.com/book/2bjnfl0/)
 - [法外狂猫](https://www.wuxia688.com/book/2bjne6u/)
-- [关于我虚构了一个男友这件事](https://www.wuxia688.com/book/2bjnc8p/)
+- [我，剑圣，养生中，勿扰](https://www.wuxia688.com/book/2bjnd8i/)
 - [和室友他爸恋爱后](https://www.wuxia688.com/book/2bjn2ed/)
-- [女扮男装科举和皇帝撞脸了！](https://www.wuxia688.com/book/2bjlunc/)
 - [直男咒术师的限制级游戏](https://www.wuxia688.com/book/2bjltog/)
 - [纯爱宇智波基本恋爱法](https://www.wuxia688.com/book/2bjltmg/)
-- [拯救世界从扮演反派开始](https://www.wuxia688.com/book/2bjlsds/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1363/index.md)

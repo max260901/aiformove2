@@ -1,7 +1,7 @@
 
 # 笔架中文小说_书友必备的无弹窗小说阅读网
 
-更新时间：2026-09-01 03:21:47
+更新时间：2026-09-02 03:21:51
 
 笔架中文小说致力于打造国内最权威免费小说阅读网, 提供小说在线阅读, 小说TXT下载, 网站页面清爽简洁是广大网络小说爱好者必备的小说阅读网。
 
@@ -9,31 +9,40 @@
 
 ## 最新小说
 - [阿竹与野桃](https://www.bijia188.com/book/6tola8j/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.bijia188.com/book/6tola76/)
+- [从异世界穿回来后](https://www.bijia188.com/book/6tol5tv/)
+- [我有嘉宾](https://www.bijia188.com/book/6tol5lv/)
 - [星际团宠小人鱼](https://www.bijia188.com/book/6tokb0f/)
 - [你，后室管理员](https://www.bijia188.com/book/6tokavc/)
+- [原配夫人](https://www.bijia188.com/book/6tokape/)
 - [高调装神，猥琐发育](https://www.bijia188.com/book/6tok3td/)
+- [男朋友买一送一](https://www.bijia188.com/book/6tojqip/)
+- [失而复得的白月光[快穿]](https://www.bijia188.com/book/6tojkii/)
+- [躲避原书剧情五年后](https://www.bijia188.com/book/6tojgct/)
 - [如何正确哄睡暴君](https://www.bijia188.com/book/6tojfnu/)
-- [寻真](https://www.bijia188.com/book/6toj7sk/)
 - [逝水](https://www.bijia188.com/book/6toj787/)
-- [老公是松散生命体](https://www.bijia188.com/book/6toj1cc/)
+- [我不可能舔一个漂亮捞子](https://www.bijia188.com/book/6toj6mb/)
+- [你也没死？](https://www.bijia188.com/book/6toj6m7/)
+- [沈助理又在隐藏他的超能力](https://www.bijia188.com/book/6toj34k/)
+- [被鬼怪宠爱的漂亮书生](https://www.bijia188.com/book/6toj0t6/)
 - [微臣怜惜公主](https://www.bijia188.com/book/6toiuvi/)
+- [系统不许我摆烂](https://www.bijia188.com/book/6tois1b/)
+- [误入反派培养直播后](https://www.bijia188.com/book/6toili0/)
 - [炮灰的我该如何上位？](https://www.bijia188.com/book/6toihsg/)
 - [多梦你一会儿](https://www.bijia188.com/book/6toihs0/)
 - [[封神]圣人生欲](https://www.bijia188.com/book/6toih01/)
-- [这谁的沙雕二次元心声！](https://www.bijia188.com/book/6toienn/)
-- [善逸拒绝成为咒术师](https://www.bijia188.com/book/6toien4/)
+- [被四皇错看成小动物后](https://www.bijia188.com/book/6toigj4/)
+- [哥你不能不要我](https://www.bijia188.com/book/6toifmu/)
+- [隔壁班的松田君](https://www.bijia188.com/book/6toiaee/)
 - [[足球]罗蜜第一志愿](https://www.bijia188.com/book/6toi8dr/)
-- [青空来信](https://www.bijia188.com/book/6toi842/)
+- [某柯学的正义伙伴](https://www.bijia188.com/book/6toi7cc/)
 - [井闼山经理每天都被挖墙脚](https://www.bijia188.com/book/6toi5d5/)
 - [[足球]小小鸟堂堂来袭](https://www.bijia188.com/book/6toht9h/)
 - [法外狂猫](https://www.bijia188.com/book/6tohn9t/)
 - [好兄弟暴富后非要跟我结婚](https://www.bijia188.com/book/6tohmvo/)
-- [关于我虚构了一个男友这件事](https://www.bijia188.com/book/6tohk1g/)
+- [侯府打工人](https://www.bijia188.com/book/6tohmgn/)
+- [我，剑圣，养生中，勿扰](https://www.bijia188.com/book/6tohibb/)
 - [和室友他爸恋爱后](https://www.bijia188.com/book/6toh928/)
 - [纯爱宇智波基本恋爱法](https://www.bijia188.com/book/6tog53m/)
-- [女扮男装科举和皇帝撞脸了！](https://www.bijia188.com/book/6tog40u/)
-- [拯救世界从扮演反派开始](https://www.bijia188.com/book/6tog3g3/)
 - [直男咒术师的限制级游戏](https://www.bijia188.com/book/6tog31j/)
 ## 相关内容
 - [README](/README.md)
