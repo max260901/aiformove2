@@ -1,0 +1,58 @@
+
+# 云南野人山野小说网 - 创意小说与文学作品分享平台
+
+更新时间：2026-09-01 03:42:55
+
+欢迎来到云南野人山野小说网 - 专注于创意小说和文学作品分享的在线平台。探索精选的小说系列及文学佳作，加入我们，与众多才华横溢的作者交流心得，共同创造美好的阅读旅程。
+
+- [云南野人山野小说网](https://www.ynyrsy.com/)
+
+## 最新小说
+- [阿竹与野桃](https://www.ynyrsy.com/book/dfdhr3/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.ynyrsy.com/book/dfdhmj/)
+- [如何正确哄睡暴君](https://www.ynyrsy.com/book/dfc4sb/)
+- [逝水](https://www.ynyrsy.com/book/dfc0n7/)
+- [寻真](https://www.ynyrsy.com/book/dfbsb3/)
+- [老公是松散生命体](https://www.ynyrsy.com/book/dfbru3/)
+- [微臣怜惜公主](https://www.ynyrsy.com/book/dfbolh/)
+- [女扮男装科举和皇帝撞脸了！](https://www.ynyrsy.com/book/dfbjio/)
+- [直男咒术师的限制级游戏](https://www.ynyrsy.com/book/dfbdc1/)
+- [多梦你一会儿](https://www.ynyrsy.com/book/dfb8r8/)
+- [穿为清冷影后的污点A](https://www.ynyrsy.com/book/dfb814/)
+- [炮灰的我该如何上位？](https://www.ynyrsy.com/book/dfb72s/)
+- [这谁的沙雕二次元心声！](https://www.ynyrsy.com/book/dfb6nf/)
+- [善逸拒绝成为咒术师](https://www.ynyrsy.com/book/dfb5gf/)
+- [井闼山经理每天都被挖墙脚](https://www.ynyrsy.com/book/dfb3f6/)
+- [拯救世界从扮演反派开始](https://www.ynyrsy.com/book/dfb1ak/)
+- [[足球]罗蜜第一志愿](https://www.ynyrsy.com/book/dfb0lp/)
+- [青空来信](https://www.ynyrsy.com/book/dfata0/)
+- [[足球]小小鸟堂堂来袭](https://www.ynyrsy.com/book/dfamv4/)
+- [法外狂猫](https://www.ynyrsy.com/book/dfak0o/)
+- [好兄弟暴富后非要跟我结婚](https://www.ynyrsy.com/book/dfagl7/)
+- [关于我虚构了一个男友这件事](https://www.ynyrsy.com/book/dfaddr/)
+- [和室友他爸恋爱后](https://www.ynyrsy.com/book/dfacgp/)
+- [你，后室管理员](https://www.ynyrsy.com/book/df8q1k/)
+- [纯爱宇智波基本恋爱法](https://www.ynyrsy.com/book/df8p9l/)
+- [星际团宠小人鱼](https://www.ynyrsy.com/book/df8otm/)
+- [高调装神，猥琐发育](https://www.ynyrsy.com/book/df8olq/)
+- [[封神]圣人生欲](https://www.ynyrsy.com/book/df8oj6/)
+## 相关内容
+- [README](/README.md)
+- [首页](/site1379/index.md)
+- [最新热点小说](/site1379/newhot.md)
+- [人气小说](/site1379/b111.md)
+- [推荐小说](/site1379/recommend1.md)
+- [推荐小说列表](/site1379/recommend/index.md)
+- [热点小说](/site1379/hot/index.md)
+- [全本小说](/site1379/quanben/index.md)
+- [网站地图](/site1379/sitemap/index.md)
+- [标签](/site1379/tag/index.md)
+- [爱情小说](/site1379/category101/index.md)
+- [武侠小说](/site1379/category102/index.md)
+- [奇幻小说](/site1379/category103/index.md)
+- [仙侠小说](/site1379/category104/index.md)
+- [游戏小说](/site1379/category105/index.md)
+- [传奇小说](/site1379/category106/index.md)
+- [科幻小说](/site1379/category107/index.md)
+- [惊悚小说](/site1379/category109/index.md)
+- [悬疑小说](/site1379/category110/index.md)
