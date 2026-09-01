@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-09-01 03:22:33
+更新时间：2026-09-02 03:22:38
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -10,22 +10,29 @@
 ## 最新小说
 - [阿竹与野桃](https://www.chuangyi1687.com/book/1hvgov0/)
 - [井闼山经理每天都被挖墙脚](https://www.chuangyi1687.com/book/1hvgouu/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.chuangyi1687.com/book/1hvgor5/)
+- [躲避原书剧情五年后](https://www.chuangyi1687.com/book/1hvgotm/)
+- [失而复得的白月光[快穿]](https://www.chuangyi1687.com/book/1hvgosl/)
+- [被四皇错看成小动物后](https://www.chuangyi1687.com/book/1hvgoqo/)
 - [[封神]圣人生欲](https://www.chuangyi1687.com/book/1hvgoq7/)
+- [原配夫人](https://www.chuangyi1687.com/book/1hvgoq2/)
 - [星际团宠小人鱼](https://www.chuangyi1687.com/book/1hvgopt/)
 - [你，后室管理员](https://www.chuangyi1687.com/book/1hvgop8/)
 - [高调装神，猥琐发育](https://www.chuangyi1687.com/book/1hvgooe/)
-- [女扮男装科举和皇帝撞脸了！](https://www.chuangyi1687.com/book/1hvgoo3/)
+- [从异世界穿回来后](https://www.chuangyi1687.com/book/1hvgoo4/)
 - [纯爱宇智波基本恋爱法](https://www.chuangyi1687.com/book/1hvgojv/)
 - [直男咒术师的限制级游戏](https://www.chuangyi1687.com/book/1hvgojn/)
-- [寻真](https://www.chuangyi1687.com/book/1hvd37t/)
+- [某柯学的正义伙伴](https://www.chuangyi1687.com/book/1hve06a/)
+- [男朋友买一送一](https://www.chuangyi1687.com/book/1hvdjlf/)
+- [我有嘉宾](https://www.chuangyi1687.com/book/1hvdfa8/)
+- [沈助理又在隐藏他的超能力](https://www.chuangyi1687.com/book/500j2q/)
+- [系统不许我摆烂](https://www.chuangyi1687.com/book/500fl8/)
 - [逝水](https://www.chuangyi1687.com/book/5008in/)
-- [这谁的沙雕二次元心声！](https://www.chuangyi1687.com/book/4vvm7l/)
-- [老公是松散生命体](https://www.chuangyi1687.com/book/4vvljq/)
-- [青空来信](https://www.chuangyi1687.com/book/4vvlbc/)
+- [隔壁班的松田君](https://www.chuangyi1687.com/book/4vvsmo/)
+- [你也没死？](https://www.chuangyi1687.com/book/4vvpnn/)
+- [误入反派培养直播后](https://www.chuangyi1687.com/book/4vvef4/)
 - [多梦你一会儿](https://www.chuangyi1687.com/book/4vvakb/)
 - [[足球]罗蜜第一志愿](https://www.chuangyi1687.com/book/4vv7ka/)
-- [拯救世界从扮演反派开始](https://www.chuangyi1687.com/book/4vv7fs/)
+- [哥你不能不要我](https://www.chuangyi1687.com/book/4vumbd/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1316/index.md)

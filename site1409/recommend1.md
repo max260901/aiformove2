@@ -1,14 +1,16 @@
 
 # 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
 
-更新时间：2026-09-01 03:20:31
+更新时间：2026-09-02 03:20:35
 
 瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！
 
 - [瑞文文学网](https://www.49ig.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.49ig.com/book/436dl0c/)
+- [死遁后，师弟他不哄不停](https://www.49ig.com/book/436ds2c/)
+- [宠妃岂敢压我！](https://www.49ig.com/book/436ds21/)
+- [假少爷有特殊的算命技巧](https://www.49ig.com/book/436drvl/)
 - [从维多利亚时代开始](https://www.49ig.com/book/436dj9u/)
 - [九零重组小家庭](https://www.49ig.com/book/436ddsl/)
 - [发家致富小夫郎](https://www.49ig.com/book/436d78h/)
@@ -83,7 +85,6 @@
 - [十福晋吃瓜日常(清穿)](https://www.49ig.com/book/436c71u/)
 - [当菟丝花要分手后](https://www.49ig.com/book/436c6rk/)
 - [当我穿为龙傲天的情敌](https://www.49ig.com/book/436c5qn/)
-- [社恐直播鉴宝，但带球跑](https://www.49ig.com/book/436c5g1/)
 - [[综英美]让我统治哥谭！！！](https://www.49ig.com/book/436c480/)
 - [霓虹夏日](https://www.49ig.com/book/436c1uu/)
 - [我司艺人永不塌房](https://www.49ig.com/book/436bvbi/)
@@ -118,7 +119,6 @@
 - [今天在伟大航路抽到SSR了吗](https://www.49ig.com/book/436aq0t/)
 - [悟咪观察笔记](https://www.49ig.com/book/436ap7f/)
 - [直男误入攻略天龙人游戏](https://www.49ig.com/book/436ao09/)
-- [我有特殊的升官技巧](https://www.49ig.com/book/436an43/)
 - [反派人生，易如反掌[快穿]](https://www.49ig.com/book/436amt2/)
 - [萩原警官的咒术大冒险](https://www.49ig.com/book/436amg3/)
 - [我不是御兽大师](https://www.49ig.com/book/436ambd/)
@@ -137,22 +137,17 @@
 - [红楼之霸总他被迫拯救女主角](https://www.49ig.com/book/436ad93/)
 - [把清冷权臣调成荡夫后](https://www.49ig.com/book/436abgh/)
 - [绿茶病秧子骗他说喜欢](https://www.49ig.com/book/436a9vg/)
+- [绝不会喜欢五条君的！](https://www.49ig.com/book/436a9f5/)
 - [我真的没想在选秀炒CP](https://www.49ig.com/book/436a7ah/)
 - [[群穿]我在御兽番抢人气](https://www.49ig.com/book/436a4p4/)
-- [在医院旧楼捡到个外科鼻祖](https://www.49ig.com/book/436a49u/)
-- [养父](https://www.49ig.com/book/436a38i/)
 - [欢迎来到纳萨力克丧葬公司](https://www.49ig.com/book/436a2sq/)
 - [海岛求生：生活玩家种田囤货](https://www.49ig.com/book/43698bi/)
-- [替嫁后咸鱼继母佛系日常](https://www.49ig.com/book/43698ba/)
 - [十九世纪贵族厨房（美食）](https://www.49ig.com/book/436988r/)
 - [九零首富的替嫁小媳妇](https://www.49ig.com/book/4369885/)
 - [古代种田养娃日常](https://www.49ig.com/book/436987a/)
-- [人妻O救赎指南](https://www.49ig.com/book/436982j/)
 - [千禧年，拆迁分了十栋楼！](https://www.49ig.com/book/43697p6/)
-- [卧底后被港岛大小姐缠上了](https://www.49ig.com/book/43697di/)
 - [假少爷不想活了](https://www.49ig.com/book/43697ag/)
 - [高调装神，猥琐发育](https://www.49ig.com/book/4369798/)
-- [警察，但犯罪大师系统[刑侦]](https://www.49ig.com/book/436978k/)
 - [趁她之危](https://www.49ig.com/book/436976s/)
 - [[娱乐圈]过分美丽的她](https://www.49ig.com/book/436975g/)
 - [穿成炮灰后我封神了［快穿］](https://www.49ig.com/book/4369746/)
@@ -169,7 +164,6 @@
 - [大瑛弟国](https://www.49ig.com/book/436965v/)
 - [御兽师，我打工养你啊](https://www.49ig.com/book/4369622/)
 - [成为养成系练习生后](https://www.49ig.com/book/43695od/)
-- [如何扮演源氏重宝](https://www.49ig.com/book/43695o6/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.49ig.com/book/43695jp/)
 - [五十年代港城日常](https://www.49ig.com/book/43695i9/)
 - [清澈女大的六零年代](https://www.49ig.com/book/43695dl/)

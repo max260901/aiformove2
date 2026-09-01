@@ -1,14 +1,15 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-09-01 03:39:36
+更新时间：2026-09-02 03:39:50
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。
 
 - [三哥小说网](https://www.wkntmcb.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.wkntmcb.com/book/48j2es6/)
+- [宠妃岂敢压我！](https://www.wkntmcb.com/book/48j2es8/)
+- [死遁后，师弟他不哄不停](https://www.wkntmcb.com/book/48j2es7/)
 - [发家致富小夫郎](https://www.wkntmcb.com/book/48j2es5/)
 - [我夫君怎会是龙傲天？](https://www.wkntmcb.com/book/48j2e32/)
 - [我要当厨修啊[美食]](https://www.wkntmcb.com/book/48j2e30/)
@@ -64,16 +65,14 @@
 - [当织田作绑定魅魔系统](https://www.wkntmcb.com/book/48j2dub/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.wkntmcb.com/book/48j28na/)
 - [我真的只会Ctrl啊！！！](https://www.wkntmcb.com/book/48j24t2/)
-- [养父](https://www.wkntmcb.com/book/48j24no/)
-- [人妻O救赎指南](https://www.wkntmcb.com/book/48j24fr/)
 - [星际团宠小人鱼](https://www.wkntmcb.com/book/48j1tq7/)
 - [灭世龙崽有什么错](https://www.wkntmcb.com/book/48j1pja/)
 - [九零重组小家庭](https://www.wkntmcb.com/book/48j1p78/)
+- [假少爷有特殊的算命技巧](https://www.wkntmcb.com/book/48j1n7f/)
 - [神豪文男主是我爸](https://www.wkntmcb.com/book/48j1jtl/)
 - [在虫族世界逃命升级](https://www.wkntmcb.com/book/48j1il6/)
 - [趁她之危](https://www.wkntmcb.com/book/48j1gn6/)
 - [从维多利亚时代开始](https://www.wkntmcb.com/book/48j1915/)
-- [我有特殊的升官技巧](https://www.wkntmcb.com/book/48j161l/)
 - [反派人生，易如反掌[快穿]](https://www.wkntmcb.com/book/48j12up/)
 - [假少爷不想活了](https://www.wkntmcb.com/book/48j12li/)
 - [十九世纪贵族厨房（美食）](https://www.wkntmcb.com/book/48j0lsv/)
@@ -96,7 +95,6 @@
 - [误标记隔壁阿姨O之后](https://www.wkntmcb.com/book/48ivp48/)
 - [不当救世主就要当人类恶了吗](https://www.wkntmcb.com/book/48ivp0u/)
 - [[全职高手]霸图老板是叶修](https://www.wkntmcb.com/book/48ivob1/)
-- [社恐直播鉴宝，但带球跑](https://www.wkntmcb.com/book/48ivn4e/)
 - [假金丝雀深陷修罗场](https://www.wkntmcb.com/book/48ivivp/)
 - [在民俗惊悚片被诸神庇护](https://www.wkntmcb.com/book/48ivipt/)
 - [养成游戏，但破解版](https://www.wkntmcb.com/book/48ivhsc/)
@@ -106,7 +104,6 @@
 - [今天又该给祖宗哭坟了[快穿]](https://www.wkntmcb.com/book/48iv7ea/)
 - [啊？我是万人迷？［虫族］](https://www.wkntmcb.com/book/48iv6kj/)
 - [米花无刁民](https://www.wkntmcb.com/book/48iv580/)
-- [替嫁后咸鱼继母佛系日常](https://www.wkntmcb.com/book/48iv4oi/)
 - [重力系杀手误入忍界记实录](https://www.wkntmcb.com/book/48iv2hr/)
 - [直男在耽美被迫万人迷［快穿］](https://www.wkntmcb.com/book/48iv1t6/)
 - [老婆是恋爱脑女配](https://www.wkntmcb.com/book/48iuvqu/)
@@ -149,12 +146,10 @@
 - [绿茶病秧子骗他说喜欢](https://www.wkntmcb.com/book/48itu10/)
 - [徐娘子的美食发家日常](https://www.wkntmcb.com/book/48itttk/)
 - [我真的没想在选秀炒CP](https://www.wkntmcb.com/book/48itskm/)
-- [在医院旧楼捡到个外科鼻祖](https://www.wkntmcb.com/book/48itqso/)
 - [把清冷权臣调成荡夫后](https://www.wkntmcb.com/book/48itqku/)
 - [[群穿]我在御兽番抢人气](https://www.wkntmcb.com/book/48itljd/)
 - [日化人生[科研]](https://www.wkntmcb.com/book/48istsq/)
 - [大瑛弟国](https://www.wkntmcb.com/book/48istno/)
-- [警察，但犯罪大师系统[刑侦]](https://www.wkntmcb.com/book/48istkf/)
 - [我是唯一地上神国](https://www.wkntmcb.com/book/48isth6/)
 - [成为养成系练习生后](https://www.wkntmcb.com/book/48istdp/)
 - [清澈女大的六零年代](https://www.wkntmcb.com/book/48istan/)
@@ -167,7 +162,6 @@
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.wkntmcb.com/book/48issdk/)
 - [我有一座安全城](https://www.wkntmcb.com/book/48issd7/)
 - [猫猫也要养家糊口](https://www.wkntmcb.com/book/48isruo/)
-- [卧底后被港岛大小姐缠上了](https://www.wkntmcb.com/book/48isrtr/)
 - [[娱乐圈]过分美丽的她](https://www.wkntmcb.com/book/48isrsf/)
 - [海岛求生：生活玩家种田囤货](https://www.wkntmcb.com/book/48isrs8/)
 - [满级大佬制霸热血运动番](https://www.wkntmcb.com/book/48isrq5/)
@@ -175,7 +169,7 @@
 - [古代种田养娃日常](https://www.wkntmcb.com/book/48isr85/)
 - [五十年代港城日常](https://www.wkntmcb.com/book/48isqtt/)
 - [穿成炮灰后我封神了［快穿］](https://www.wkntmcb.com/book/48isqoi/)
-- [如何扮演源氏重宝](https://www.wkntmcb.com/book/48isqm5/)
+- [绝不会喜欢五条君的！](https://www.wkntmcb.com/book/48isqmt/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1339/index.md)

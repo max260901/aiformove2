@@ -1,14 +1,16 @@
 
 # 佚名奇书小说 - 免费更新的小说阅读网站
 
-更新时间：2026-09-01 03:42:41
+更新时间：2026-09-02 03:42:55
 
 佚名奇书小说提供全网各类热门小说在线阅读服务，支持免费观看。这里汇集了丰富的小说资源，包括但不限于都市、玄幻、武侠等多种类型，并且保证章节更新及时，页面设计清爽无广告干扰，是广大书友不可多得的好去处。
 
 - [佚名奇书小说](https://www.yimingeduai.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.yimingeduai.com/book/6adn69i/)
+- [宠妃岂敢压我！](https://www.yimingeduai.com/book/6adn93c/)
+- [假少爷有特殊的算命技巧](https://www.yimingeduai.com/book/6adn92n/)
+- [死遁后，师弟他不哄不停](https://www.yimingeduai.com/book/6adn920/)
 - [九零重组小家庭](https://www.yimingeduai.com/book/6adn1kr/)
 - [从维多利亚时代开始](https://www.yimingeduai.com/book/6adn07r/)
 - [发家致富小夫郎](https://www.yimingeduai.com/book/6admt0b/)
@@ -65,7 +67,6 @@
 - [痴情女配开始放手了（快穿）](https://www.yimingeduai.com/book/6admlr4/)
 - [万人嫌女配深陷修罗场](https://www.yimingeduai.com/book/6admlqt/)
 - [撕碎[刑侦]](https://www.yimingeduai.com/book/6admlql/)
-- [我有特殊的升官技巧](https://www.yimingeduai.com/book/6admf06/)
 - [反派人生，易如反掌[快穿]](https://www.yimingeduai.com/book/6admev3/)
 - [直男在耽美被迫万人迷［快穿］](https://www.yimingeduai.com/book/6admd0t/)
 - [[全职高手]霸图老板是叶修](https://www.yimingeduai.com/book/6admc44/)
@@ -122,7 +123,6 @@
 - [漫漫仙途](https://www.yimingeduai.com/book/6adk4ko/)
 - [恶犬攻绑定上司的乖狗系统](https://www.yimingeduai.com/book/6adk499/)
 - [你是我的根目录](https://www.yimingeduai.com/book/6adk42b/)
-- [社恐直播鉴宝，但带球跑](https://www.yimingeduai.com/book/6adk187/)
 - [人在虫族，写文爆红](https://www.yimingeduai.com/book/6adjvs2/)
 - [春归燕](https://www.yimingeduai.com/book/6adjsja/)
 - [魔尊和仙帝共坠爱河之后](https://www.yimingeduai.com/book/6adjs7v/)
@@ -136,12 +136,11 @@
 - [徐娘子的美食发家日常](https://www.yimingeduai.com/book/6adjgf8/)
 - [深渊if，从染血骑士迪卢克开始[原神]](https://www.yimingeduai.com/book/6adjg57/)
 - [绿茶病秧子骗他说喜欢](https://www.yimingeduai.com/book/6adjbs5/)
+- [绝不会喜欢五条君的！](https://www.yimingeduai.com/book/6adja9f/)
 - [把清冷权臣调成荡夫后](https://www.yimingeduai.com/book/6adj9at/)
 - [我真的没想在选秀炒CP](https://www.yimingeduai.com/book/6adj6r6/)
-- [在医院旧楼捡到个外科鼻祖](https://www.yimingeduai.com/book/6adj59s/)
 - [欢迎来到纳萨力克丧葬公司](https://www.yimingeduai.com/book/6adj4d4/)
 - [[群穿]我在御兽番抢人气](https://www.yimingeduai.com/book/6adj47c/)
-- [养父](https://www.yimingeduai.com/book/6adj3gk/)
 - [全民求生:从小木屋到魔法农场](https://www.yimingeduai.com/book/6adi8o2/)
 - [八零恶毒后妈杀疯了](https://www.yimingeduai.com/book/6adi8jp/)
 - [海岛求生：生活玩家种田囤货](https://www.yimingeduai.com/book/6adi8em/)
@@ -149,12 +148,9 @@
 - [十九世纪贵族厨房（美食）](https://www.yimingeduai.com/book/6adi841/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.yimingeduai.com/book/6adi811/)
 - [猫猫也要养家糊口](https://www.yimingeduai.com/book/6adi809/)
-- [警察，但犯罪大师系统[刑侦]](https://www.yimingeduai.com/book/6adi7uf/)
-- [卧底后被港岛大小姐缠上了](https://www.yimingeduai.com/book/6adi7sc/)
 - [在民俗惊悚片被诸神庇护](https://www.yimingeduai.com/book/6adi7kq/)
 - [巨物致富：回乡开钓场](https://www.yimingeduai.com/book/6adi7il/)
 - [为诡异打工，但反封建迷信](https://www.yimingeduai.com/book/6adi7hu/)
-- [如何扮演源氏重宝](https://www.yimingeduai.com/book/6adi7gf/)
 - [成为养成系练习生后](https://www.yimingeduai.com/book/6adi7bm/)
 - [清澈女大的六零年代](https://www.yimingeduai.com/book/6adi7ap/)
 - [趁她之危](https://www.yimingeduai.com/book/6adi7ae/)
@@ -163,7 +159,6 @@
 - [[娱乐圈]过分美丽的她](https://www.yimingeduai.com/book/6adi742/)
 - [古代种田养娃日常](https://www.yimingeduai.com/book/6adi72p/)
 - [我是唯一地上神国](https://www.yimingeduai.com/book/6adi70r/)
-- [替嫁后咸鱼继母佛系日常](https://www.yimingeduai.com/book/6adi6no/)
 - [五十年代港城日常](https://www.yimingeduai.com/book/6adi6nm/)
 - [我有一座安全城](https://www.yimingeduai.com/book/6adi6ln/)
 - [千禧年，拆迁分了十栋楼！](https://www.yimingeduai.com/book/6adi6ip/)
@@ -173,7 +168,6 @@
 - [大瑛弟国](https://www.yimingeduai.com/book/6adi6bh/)
 - [假少爷不想活了](https://www.yimingeduai.com/book/6adi6a2/)
 - [高门小婢](https://www.yimingeduai.com/book/6adi666/)
-- [人妻O救赎指南](https://www.yimingeduai.com/book/6adi5t3/)
 - [御兽师，我打工养你啊](https://www.yimingeduai.com/book/6adi5hc/)
 - [穿成炮灰后我封神了［快穿］](https://www.yimingeduai.com/book/6adi5gg/)
 ## 相关内容

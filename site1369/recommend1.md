@@ -1,14 +1,15 @@
 
 # 武侠文学网 - 值得收藏的小说阅读平台
 
-更新时间：2026-09-01 03:40:37
+更新时间：2026-09-02 03:40:52
 
 武侠文学网为您提供丰富多样的小说资源，在这里您可以找到最新最热门的小说作品。无论是经典文学还是现代流行小说，都是您值得收藏的阅读选择。
 
 - [武侠文学网](https://www.wuxia988.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.wuxia988.com/book/1ms335s/)
+- [宠妃岂敢压我！](https://www.wuxia988.com/book/1ms35i1/)
+- [死遁后，师弟他不哄不停](https://www.wuxia988.com/book/1ms35gr/)
 - [发家致富小夫郎](https://www.wuxia988.com/book/1ms2uki/)
 - [渡鬼](https://www.wuxia988.com/book/1ms2sab/)
 - [私恋旧星](https://www.wuxia988.com/book/1ms2sa9/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.wuxia988.com/book/1ms2pqs/)
 - [灭世龙崽有什么错](https://www.wuxia988.com/book/1ms2ivj/)
 - [九零重组小家庭](https://www.wuxia988.com/book/1ms2h1r/)
-- [养父](https://www.wuxia988.com/book/1ms2fv0/)
-- [人妻O救赎指南](https://www.wuxia988.com/book/1ms2fud/)
+- [假少爷有特殊的算命技巧](https://www.wuxia988.com/book/1ms2g5q/)
 - [在虫族世界逃命升级](https://www.wuxia988.com/book/1ms2cch/)
 - [神豪文男主是我爸](https://www.wuxia988.com/book/1ms2bf6/)
 - [从维多利亚时代开始](https://www.wuxia988.com/book/1ms22s1/)
-- [我有特殊的升官技巧](https://www.wuxia988.com/book/1ms2007/)
 - [星际团宠小人鱼](https://www.wuxia988.com/book/1ms1sq3/)
 - [十九世纪贵族厨房（美食）](https://www.wuxia988.com/book/1ms1soh/)
 - [反派人生，易如反掌[快穿]](https://www.wuxia988.com/book/1ms1s5c/)
@@ -90,14 +89,12 @@
 - [十福晋吃瓜日常(清穿)](https://www.wuxia988.com/book/1ms0ke4/)
 - [不当救世主就要当人类恶了吗](https://www.wuxia988.com/book/1ms0k4p/)
 - [在民俗惊悚片被诸神庇护](https://www.wuxia988.com/book/1ms0jjh/)
-- [社恐直播鉴宝，但带球跑](https://www.wuxia988.com/book/1ms0j5t/)
 - [当我穿为龙傲天的情敌](https://www.wuxia988.com/book/1ms0ivf/)
 - [假金丝雀深陷修罗场](https://www.wuxia988.com/book/1ms0iau/)
 - [[全职高手]霸图老板是叶修](https://www.wuxia988.com/book/1ms0i6s/)
 - [当菟丝花要分手后](https://www.wuxia988.com/book/1ms0h02/)
 - [养成游戏，但破解版](https://www.wuxia988.com/book/1ms0a6h/)
 - [霓虹夏日](https://www.wuxia988.com/book/1ms08k6/)
-- [替嫁后咸鱼继母佛系日常](https://www.wuxia988.com/book/1ms03td/)
 - [[综英美]让我统治哥谭！！！](https://www.wuxia988.com/book/1ms018p/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.wuxia988.com/book/1ms015e/)
 - [米花无刁民](https://www.wuxia988.com/book/1ms00rd/)
@@ -148,7 +145,7 @@
 - [我真的没想在选秀炒CP](https://www.wuxia988.com/book/1mrun7j/)
 - [[群穿]我在御兽番抢人气](https://www.wuxia988.com/book/1mrukh3/)
 - [把清冷权臣调成荡夫后](https://www.wuxia988.com/book/1mrujo7/)
-- [在医院旧楼捡到个外科鼻祖](https://www.wuxia988.com/book/1mruip5/)
+- [绝不会喜欢五条君的！](https://www.wuxia988.com/book/1mrtnib/)
 - [成为养成系练习生后](https://www.wuxia988.com/book/1mrtneq/)
 - [全民求生:从小木屋到魔法农场](https://www.wuxia988.com/book/1mrtnc2/)
 - [千禧年，拆迁分了十栋楼！](https://www.wuxia988.com/book/1mrtn8g/)
@@ -166,10 +163,7 @@
 - [六零之成了卷王的妹妹](https://www.wuxia988.com/book/1mrtmb0/)
 - [日化人生[科研]](https://www.wuxia988.com/book/1mrtm8j/)
 - [我有一座安全城](https://www.wuxia988.com/book/1mrtm1v/)
-- [警察，但犯罪大师系统[刑侦]](https://www.wuxia988.com/book/1mrtlrp/)
 - [高门小婢](https://www.wuxia988.com/book/1mrtlns/)
-- [卧底后被港岛大小姐缠上了](https://www.wuxia988.com/book/1mrtlkl/)
-- [如何扮演源氏重宝](https://www.wuxia988.com/book/1mrtlgt/)
 - [科学主义魔法学院](https://www.wuxia988.com/book/1mrtl9q/)
 - [穿成炮灰后我封神了［快穿］](https://www.wuxia988.com/book/1mrtl6n/)
 - [海岛求生：生活玩家种田囤货](https://www.wuxia988.com/book/1mrtl5h/)

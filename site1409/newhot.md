@@ -1,40 +1,46 @@
 
 # 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
 
-更新时间：2026-09-01 03:20:31
+更新时间：2026-09-02 03:20:35
 
 瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！
 
 - [瑞文文学网](https://www.49ig.com/)
 
 ## 最新小说
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.49ig.com/book/436cr8s/)
+- [被鬼怪宠爱的漂亮书生](https://www.49ig.com/book/436d0hf/)
+- [男朋友买一送一](https://www.49ig.com/book/436ctj2/)
 - [阿竹与野桃](https://www.49ig.com/book/436cr0k/)
+- [全天下都在求太子殿下别死！](https://www.49ig.com/book/436cqvu/)
 - [如何正确哄睡暴君](https://www.49ig.com/book/436cntc/)
 - [逝水](https://www.49ig.com/book/436cmg5/)
-- [老公是松散生命体](https://www.49ig.com/book/436chmq/)
+- [我不可能舔一个漂亮捞子](https://www.49ig.com/book/436cl3f/)
+- [你也没死？](https://www.49ig.com/book/436chnh/)
 - [微臣怜惜公主](https://www.49ig.com/book/436cen1/)
 - [法外狂猫](https://www.49ig.com/book/436ccqr/)
-- [寻真](https://www.49ig.com/book/436cbj1/)
+- [哥你不能不要我](https://www.49ig.com/book/436c795/)
 - [和室友他爸恋爱后](https://www.49ig.com/book/436c5vf/)
-- [就算是龙傲天也不可以[快穿]](https://www.49ig.com/book/436c48f/)
-- [女扮男装科举和皇帝撞脸了！](https://www.49ig.com/book/436c3f2/)
+- [沈助理又在隐藏他的超能力](https://www.49ig.com/book/436c5k5/)
+- [系统不许我摆烂](https://www.49ig.com/book/436bthh/)
 - [直男咒术师的限制级游戏](https://www.49ig.com/book/436bt93/)
+- [被豪门封建长兄娇养了](https://www.49ig.com/book/436bqpg/)
 - [穿为清冷影后的污点A](https://www.49ig.com/book/436bp45/)
-- [这谁的沙雕二次元心声！](https://www.49ig.com/book/436boel/)
 - [多梦你一会儿](https://www.49ig.com/book/436bnpv/)
-- [豪门养子怀了大哥的崽](https://www.49ig.com/book/436bn8t/)
-- [善逸拒绝成为咒术师](https://www.49ig.com/book/436bn4r/)
+- [侯府打工人](https://www.49ig.com/book/436bn0r/)
 - [炮灰的我该如何上位？](https://www.49ig.com/book/436bms8/)
-- [拯救世界从扮演反派开始](https://www.49ig.com/book/436bjn2/)
 - [井闼山经理每天都被挖墙脚](https://www.49ig.com/book/436biu0/)
 - [[足球]小小鸟堂堂来袭](https://www.49ig.com/book/436bi2v/)
 - [[足球]罗蜜第一志愿](https://www.49ig.com/book/436bgah/)
-- [青空来信](https://www.49ig.com/book/436bdpf/)
+- [隔壁班的松田君](https://www.49ig.com/book/436bd5o/)
+- [某柯学的正义伙伴](https://www.49ig.com/book/436bcih/)
+- [撕毁女配剧本的我被神之子读心了](https://www.49ig.com/book/436bb7j/)
 - [好兄弟暴富后非要跟我结婚](https://www.49ig.com/book/436bapo/)
-- [关于我虚构了一个男友这件事](https://www.49ig.com/book/436b9ks/)
+- [我，剑圣，养生中，勿扰](https://www.49ig.com/book/436b627/)
+- [误入反派培养直播后](https://www.49ig.com/book/43698eg/)
 - [纯爱宇智波基本恋爱法](https://www.49ig.com/book/436986d/)
 - [你，后室管理员](https://www.49ig.com/book/4369816/)
+- [原配夫人](https://www.49ig.com/book/43697s7/)
+- [被四皇错看成小动物后](https://www.49ig.com/book/43697ic/)
 - [高调装神，猥琐发育](https://www.49ig.com/book/4369798/)
 - [星际团宠小人鱼](https://www.49ig.com/book/43696p6/)
 - [[封神]圣人生欲](https://www.49ig.com/book/43696e5/)

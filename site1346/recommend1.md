@@ -1,14 +1,15 @@
 
 # 奇幻凤影台小说-都市玄幻言情仙侠免费小说在线阅读
 
-更新时间：2026-09-01 03:33:07
+更新时间：2026-09-02 03:33:12
 
 奇幻凤影台小说提供都市玄幻、言情仙侠等类型的小说在线免费阅读服务。让您的通勤路上不再无聊，无论是日常出行还是夜晚静谧时刻，总有一本好书陪伴您度过美好时光。
 
 - [奇幻凤影台小说](https://www.qihuan868.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.qihuan868.com/book/42ido6s/)
+- [宠妃岂敢压我！](https://www.qihuan868.com/book/42idqhl/)
+- [死遁后，师弟他不哄不停](https://www.qihuan868.com/book/42idqha/)
 - [发家致富小夫郎](https://www.qihuan868.com/book/42idjjh/)
 - [[原神+崩铁]在提瓦特隐居也未尝不可](https://www.qihuan868.com/book/42idhb5/)
 - [撕碎[刑侦]](https://www.qihuan868.com/book/42idhb3/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.qihuan868.com/book/42ideri/)
 - [灭世龙崽有什么错](https://www.qihuan868.com/book/42id7j4/)
 - [九零重组小家庭](https://www.qihuan868.com/book/42id5si/)
-- [养父](https://www.qihuan868.com/book/42id5br/)
-- [人妻O救赎指南](https://www.qihuan868.com/book/42id583/)
+- [假少爷有特殊的算命技巧](https://www.qihuan868.com/book/42id4q7/)
 - [在虫族世界逃命升级](https://www.qihuan868.com/book/42id15d/)
 - [神豪文男主是我爸](https://www.qihuan868.com/book/42id092/)
 - [从维多利亚时代开始](https://www.qihuan868.com/book/42icngl/)
-- [我有特殊的升官技巧](https://www.qihuan868.com/book/42icko4/)
 - [十九世纪贵族厨房（美食）](https://www.qihuan868.com/book/42icijr/)
 - [星际团宠小人鱼](https://www.qihuan868.com/book/42icifb/)
 - [反派人生，易如反掌[快穿]](https://www.qihuan868.com/book/42icgui/)
@@ -90,14 +89,12 @@
 - [十福晋吃瓜日常(清穿)](https://www.qihuan868.com/book/42iba27/)
 - [在民俗惊悚片被诸神庇护](https://www.qihuan868.com/book/42ib9df/)
 - [不当救世主就要当人类恶了吗](https://www.qihuan868.com/book/42ib90f/)
-- [社恐直播鉴宝，但带球跑](https://www.qihuan868.com/book/42ib8rq/)
 - [当我穿为龙傲天的情敌](https://www.qihuan868.com/book/42ib87v/)
 - [[全职高手]霸图老板是叶修](https://www.qihuan868.com/book/42ib6kn/)
 - [当菟丝花要分手后](https://www.qihuan868.com/book/42ib5fd/)
 - [假金丝雀深陷修罗场](https://www.qihuan868.com/book/42ib4gb/)
 - [养成游戏，但破解版](https://www.qihuan868.com/book/42ib05d/)
 - [霓虹夏日](https://www.qihuan868.com/book/42ias3i/)
-- [替嫁后咸鱼继母佛系日常](https://www.qihuan868.com/book/42iap6f/)
 - [[综英美]让我统治哥谭！！！](https://www.qihuan868.com/book/42ianjm/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.qihuan868.com/book/42iamvq/)
 - [米花无刁民](https://www.qihuan868.com/book/42ialf8/)
@@ -147,13 +144,12 @@
 - [徐娘子的美食发家日常](https://www.qihuan868.com/book/42i9civ/)
 - [我真的没想在选秀炒CP](https://www.qihuan868.com/book/42i9anm/)
 - [[群穿]我在御兽番抢人气](https://www.qihuan868.com/book/42i98pc/)
-- [在医院旧楼捡到个外科鼻祖](https://www.qihuan868.com/book/42i986c/)
 - [把清冷权臣调成荡夫后](https://www.qihuan868.com/book/42i97sd/)
 - [大瑛弟国](https://www.qihuan868.com/book/42i8cd9/)
+- [绝不会喜欢五条君的！](https://www.qihuan868.com/book/42i8ca7/)
 - [古代种田养娃日常](https://www.qihuan868.com/book/42i8c6r/)
 - [高门小婢](https://www.qihuan868.com/book/42i8c40/)
 - [巨物致富：回乡开钓场](https://www.qihuan868.com/book/42i8c2r/)
-- [警察，但犯罪大师系统[刑侦]](https://www.qihuan868.com/book/42i8bsf/)
 - [刑部的小衙门](https://www.qihuan868.com/book/42i8boc/)
 - [五十年代港城日常](https://www.qihuan868.com/book/42i8ben/)
 - [穿成炮灰后我封神了［快穿］](https://www.qihuan868.com/book/42i8bb2/)
@@ -163,7 +159,6 @@
 - [95美国贵族高中模拟](https://www.qihuan868.com/book/42i8amh/)
 - [清澈女大的六零年代](https://www.qihuan868.com/book/42i8alm/)
 - [成为养成系练习生后](https://www.qihuan868.com/book/42i8af4/)
-- [卧底后被港岛大小姐缠上了](https://www.qihuan868.com/book/42i8a8s/)
 - [科学主义魔法学院](https://www.qihuan868.com/book/42i8a6g/)
 - [全民求生:从小木屋到魔法农场](https://www.qihuan868.com/book/42i89vm/)
 - [猫猫也要养家糊口](https://www.qihuan868.com/book/42i89pp/)
@@ -173,7 +168,6 @@
 - [御兽师，我打工养你啊](https://www.qihuan868.com/book/42i89l9/)
 - [六零之成了卷王的妹妹](https://www.qihuan868.com/book/42i89ho/)
 - [日化人生[科研]](https://www.qihuan868.com/book/42i89et/)
-- [如何扮演源氏重宝](https://www.qihuan868.com/book/42i89el/)
 - [我有一座安全城](https://www.qihuan868.com/book/42i89dr/)
 - [[娱乐圈]过分美丽的她](https://www.qihuan868.com/book/42i8977/)
 ## 相关内容

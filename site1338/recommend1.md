@@ -1,14 +1,15 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-09-01 03:24:41
+更新时间：2026-09-02 03:24:46
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。
 
 - [笔下文学](https://www.fshxjd.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.fshxjd.com/book/74i3mo5/)
+- [宠妃岂敢压我！](https://www.fshxjd.com/book/74i3mo7/)
+- [死遁后，师弟他不哄不停](https://www.fshxjd.com/book/74i3mo6/)
 - [发家致富小夫郎](https://www.fshxjd.com/book/74i3mo4/)
 - [我夫君怎会是龙傲天？](https://www.fshxjd.com/book/74i3lv1/)
 - [猫猫也要被魅魔魅惑吗？](https://www.fshxjd.com/book/74i3luv/)
@@ -64,16 +65,14 @@
 - [下潜一万米，海渊求生](https://www.fshxjd.com/book/74i3lq8/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.fshxjd.com/book/74i3gio/)
 - [我真的只会Ctrl啊！！！](https://www.fshxjd.com/book/74i3co6/)
-- [养父](https://www.fshxjd.com/book/74i3cht/)
-- [人妻O救赎指南](https://www.fshxjd.com/book/74i3ccl/)
 - [星际团宠小人鱼](https://www.fshxjd.com/book/74i35i1/)
 - [灭世龙崽有什么错](https://www.fshxjd.com/book/74i31g6/)
 - [九零重组小家庭](https://www.fshxjd.com/book/74i316e/)
+- [假少爷有特殊的算命技巧](https://www.fshxjd.com/book/74i2v62/)
 - [神豪文男主是我爸](https://www.fshxjd.com/book/74i2rt2/)
 - [在虫族世界逃命升级](https://www.fshxjd.com/book/74i2qgk/)
 - [趁她之危](https://www.fshxjd.com/book/74i2odm/)
 - [从维多利亚时代开始](https://www.fshxjd.com/book/74i2grd/)
-- [我有特殊的升官技巧](https://www.fshxjd.com/book/74i2dvq/)
 - [反派人生，易如反掌[快穿]](https://www.fshxjd.com/book/74i2ao7/)
 - [假少爷不想活了](https://www.fshxjd.com/book/74i2abl/)
 - [十九世纪贵族厨房（美食）](https://www.fshxjd.com/book/74i1tu2/)
@@ -95,7 +94,6 @@
 - [误标记隔壁阿姨O之后](https://www.fshxjd.com/book/74i12sn/)
 - [不当救世主就要当人类恶了吗](https://www.fshxjd.com/book/74i11qr/)
 - [当我穿为龙傲天的情敌](https://www.fshxjd.com/book/74i10si/)
-- [社恐直播鉴宝，但带球跑](https://www.fshxjd.com/book/74i0vfv/)
 - [[全职高手]霸图老板是叶修](https://www.fshxjd.com/book/74i0uf8/)
 - [假金丝雀深陷修罗场](https://www.fshxjd.com/book/74i0raj/)
 - [当菟丝花要分手后](https://www.fshxjd.com/book/74i0q85/)
@@ -106,7 +104,6 @@
 - [高嫁之后](https://www.fshxjd.com/book/74i0frt/)
 - [米花无刁民](https://www.fshxjd.com/book/74i0f0l/)
 - [啊？我是万人迷？［虫族］](https://www.fshxjd.com/book/74i0e1a/)
-- [替嫁后咸鱼继母佛系日常](https://www.fshxjd.com/book/74i0d2h/)
 - [直男在耽美被迫万人迷［快穿］](https://www.fshxjd.com/book/74i0b32/)
 - [重力系杀手误入忍界记实录](https://www.fshxjd.com/book/74i0a7j/)
 - [八零恶毒后妈杀疯了](https://www.fshxjd.com/book/74i08g8/)
@@ -150,10 +147,8 @@
 - [徐娘子的美食发家日常](https://www.fshxjd.com/book/74hv5ia/)
 - [绿茶病秧子骗他说喜欢](https://www.fshxjd.com/book/74hv5bf/)
 - [把清冷权臣调成荡夫后](https://www.fshxjd.com/book/74hv2rr/)
-- [在医院旧楼捡到个外科鼻祖](https://www.fshxjd.com/book/74hv0o5/)
 - [[群穿]我在御兽番抢人气](https://www.fshxjd.com/book/74huuhi/)
 - [御兽师，我打工养你啊](https://www.fshxjd.com/book/74hu5qi/)
-- [卧底后被港岛大小姐缠上了](https://www.fshxjd.com/book/74hu5p6/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.fshxjd.com/book/74hu5nj/)
 - [[娱乐圈]过分美丽的她](https://www.fshxjd.com/book/74hu53j/)
 - [满级大佬制霸热血运动番](https://www.fshxjd.com/book/74hu53h/)
@@ -167,12 +162,11 @@
 - [日化人生[科研]](https://www.fshxjd.com/book/74hu43o/)
 - [95美国贵族高中模拟](https://www.fshxjd.com/book/74hu41o/)
 - [我有一座安全城](https://www.fshxjd.com/book/74hu3rs/)
-- [警察，但犯罪大师系统[刑侦]](https://www.fshxjd.com/book/74hu3nk/)
 - [六零之成了卷王的妹妹](https://www.fshxjd.com/book/74hu3kj/)
 - [全民求生:从小木屋到魔法农场](https://www.fshxjd.com/book/74hu3ha/)
 - [我是唯一地上神国](https://www.fshxjd.com/book/74hu3fj/)
+- [绝不会喜欢五条君的！](https://www.fshxjd.com/book/74hu3de/)
 - [古代种田养娃日常](https://www.fshxjd.com/book/74hu3cn/)
-- [如何扮演源氏重宝](https://www.fshxjd.com/book/74hu3ci/)
 - [高门小婢](https://www.fshxjd.com/book/74hu37m/)
 - [清澈女大的六零年代](https://www.fshxjd.com/book/74hu2vm/)
 - [猫猫也要养家糊口](https://www.fshxjd.com/book/74hu2k0/)

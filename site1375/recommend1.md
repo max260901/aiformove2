@@ -1,7 +1,7 @@
 
 # 精英文学 - 书友最值得收藏的小说免费阅读网
 
-更新时间：2026-09-01 03:40:51
+更新时间：2026-09-02 03:41:07
 
 精英文学为您提供一个干净舒适的阅读环境，作为书友最值得收藏的小说免费阅读网之一，我们致力于打造无广告干扰的最佳在线阅读体验。
 
@@ -154,7 +154,6 @@
 - [清澈女大的六零年代](https://www.xcposji.com/book/jnhfib/)
 - [趁她之危](https://www.xcposji.com/book/jnhfhp/)
 - [日化人生[科研]](https://www.xcposji.com/book/jnhfh2/)
-- [卧底后被港岛大小姐缠上了](https://www.xcposji.com/book/jnhfgl/)
 - [十九世纪贵族厨房（美食）](https://www.xcposji.com/book/jnhf8f/)
 - [六零之成了卷王的妹妹](https://www.xcposji.com/book/jnhf7n/)
 - [五十年代港城日常](https://www.xcposji.com/book/jnhf6m/)

@@ -1,7 +1,7 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-01 03:32:37
+更新时间：2026-09-02 03:32:43
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。
 
@@ -9,28 +9,35 @@
 
 ## 最新小说
 - [阿竹与野桃](https://www.pusytgp.com/book/7pbouiv/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.pusytgp.com/book/7pbouif/)
+- [躲避原书剧情五年后](https://www.pusytgp.com/book/7pbos9h/)
+- [我有嘉宾](https://www.pusytgp.com/book/7pbojan/)
+- [从异世界穿回来后](https://www.pusytgp.com/book/7pboil6/)
 - [星际团宠小人鱼](https://www.pusytgp.com/book/7pboe9n/)
+- [原配夫人](https://www.pusytgp.com/book/7pboe8b/)
 - [你，后室管理员](https://www.pusytgp.com/book/7pboe7m/)
+- [男朋友买一送一](https://www.pusytgp.com/book/7pbn3di/)
 - [高调装神，猥琐发育](https://www.pusytgp.com/book/7pbn366/)
-- [女扮男装科举和皇帝撞脸了！](https://www.pusytgp.com/book/7pbmrkh/)
 - [直男咒术师的限制级游戏](https://www.pusytgp.com/book/7pbmr4e/)
 - [如何正确哄睡暴君](https://www.pusytgp.com/book/7pbmkpg/)
-- [寻真](https://www.pusytgp.com/book/7pbmgei/)
+- [失而复得的白月光[快穿]](https://www.pusytgp.com/book/7pbmjnu/)
 - [逝水](https://www.pusytgp.com/book/7pbmcmb/)
+- [你也没死？](https://www.pusytgp.com/book/7pbm9a9/)
+- [沈助理又在隐藏他的超能力](https://www.pusytgp.com/book/7pbm95b/)
+- [我不可能舔一个漂亮捞子](https://www.pusytgp.com/book/7pbm8q2/)
+- [系统不许我摆烂](https://www.pusytgp.com/book/7pbm55e/)
+- [误入反派培养直播后](https://www.pusytgp.com/book/7pblqoq/)
+- [被鬼怪宠爱的漂亮书生](https://www.pusytgp.com/book/7pblmrr/)
 - [微臣怜惜公主](https://www.pusytgp.com/book/7pblm8r/)
+- [哥你不能不要我](https://www.pusytgp.com/book/7pbllsf/)
 - [多梦你一会儿](https://www.pusytgp.com/book/7pblljm/)
 - [炮灰的我该如何上位？](https://www.pusytgp.com/book/7pbljpr/)
-- [拯救世界从扮演反派开始](https://www.pusytgp.com/book/7pbljon/)
-- [这谁的沙雕二次元心声！](https://www.pusytgp.com/book/7pblhka/)
+- [隔壁班的松田君](https://www.pusytgp.com/book/7pblftf/)
 - [[封神]圣人生欲](https://www.pusytgp.com/book/7pblds0/)
-- [青空来信](https://www.pusytgp.com/book/7pblcej/)
+- [某柯学的正义伙伴](https://www.pusytgp.com/book/7pblc0i/)
 - [纯爱宇智波基本恋爱法](https://www.pusytgp.com/book/7pblbln/)
-- [善逸拒绝成为咒术师](https://www.pusytgp.com/book/7pblbde/)
-- [老公是松散生命体](https://www.pusytgp.com/book/7pblagb/)
 - [[足球]罗蜜第一志愿](https://www.pusytgp.com/book/7pbl90o/)
+- [被四皇错看成小动物后](https://www.pusytgp.com/book/7pbl7v1/)
 - [井闼山经理每天都被挖墙脚](https://www.pusytgp.com/book/7pbl5vo/)
-- [关于我虚构了一个男友这件事](https://www.pusytgp.com/book/7pbkpie/)
 - [好兄弟暴富后非要跟我结婚](https://www.pusytgp.com/book/7pbko4m/)
 ## 相关内容
 - [README](/README.md)

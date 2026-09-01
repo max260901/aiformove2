@@ -1,14 +1,15 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-09-01 03:21:29
+更新时间：2026-09-02 03:21:33
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。
 
 - [忆想小说网](https://www.bianlishihao.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.bianlishihao.com/book/2vr7am3/)
+- [死遁后，师弟他不哄不停](https://www.bianlishihao.com/book/2vr7am5/)
+- [宠妃岂敢压我！](https://www.bianlishihao.com/book/2vr7am4/)
 - [发家致富小夫郎](https://www.bianlishihao.com/book/2vr7am2/)
 - [九十年代从军记](https://www.bianlishihao.com/book/2vr7am1/)
 - [师姐她怎么还不来追求我](https://www.bianlishihao.com/book/2vr7alu/)
@@ -69,7 +70,6 @@
 - [我要当厨修啊[美食]](https://www.bianlishihao.com/book/2vr7ah8/)
 - [我的NPC队友全是火影天花板](https://www.bianlishihao.com/book/2vr7ah6/)
 - [[足球]顶级名帅](https://www.bianlishihao.com/book/2vr7ah5/)
-- [养父](https://www.bianlishihao.com/book/2vr7agt/)
 - [星际团宠小人鱼](https://www.bianlishihao.com/book/2vr7afa/)
 - [九零首富的替嫁小媳妇](https://www.bianlishihao.com/book/2vr7af8/)
 - [高调装神，猥琐发育](https://www.bianlishihao.com/book/2vr7adk/)
@@ -80,13 +80,14 @@
 - [满级大佬制霸热血运动番](https://www.bianlishihao.com/book/2vr792h/)
 - [我不是御兽大师](https://www.bianlishihao.com/book/2vr791u/)
 - [六零之成了卷王的妹妹](https://www.bianlishihao.com/book/2vr791i/)
+- [绝不会喜欢五条君的！](https://www.bianlishihao.com/book/2vr791g/)
 - [古代种田养娃日常](https://www.bianlishihao.com/book/2vr6ju9/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.bianlishihao.com/book/2vr6jbu/)
+- [假少爷有特殊的算命技巧](https://www.bianlishihao.com/book/2vr5pgm/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.bianlishihao.com/book/2vr5cg5/)
 - [灭世龙崽有什么错](https://www.bianlishihao.com/book/2vr5avp/)
 - [九零重组小家庭](https://www.bianlishihao.com/book/2vr59al/)
 - [从维多利亚时代开始](https://www.bianlishihao.com/book/2vr502m/)
-- [我有特殊的升官技巧](https://www.bianlishihao.com/book/2vr4tfa/)
 - [御兽师，我打工养你啊](https://www.bianlishihao.com/book/2vr4rg8/)
 - [反派人生，易如反掌[快穿]](https://www.bianlishihao.com/book/2vr4pui/)
 - [神豪文男主是我爸](https://www.bianlishihao.com/book/2vr4i8t/)
@@ -99,7 +100,6 @@
 - [日化人生[科研]](https://www.bianlishihao.com/book/2vr45b4/)
 - [巨物致富：回乡开钓场](https://www.bianlishihao.com/book/2vr42ci/)
 - [第一游侠[全息]](https://www.bianlishihao.com/book/2vr3t1g/)
-- [人妻O救赎指南](https://www.bianlishihao.com/book/2vr3suk/)
 - [趁她之危](https://www.bianlishihao.com/book/2vr3s1u/)
 - [摄政王家的咸鱼夫郎](https://www.bianlishihao.com/book/2vr3oar/)
 - [始皇闺女躺平失败的日子](https://www.bianlishihao.com/book/2vr3mt9/)
@@ -107,7 +107,6 @@
 - [全球进化，而我保持不变](https://www.bianlishihao.com/book/9ipe38/)
 - [当我穿为龙傲天的情敌](https://www.bianlishihao.com/book/9ipdlv/)
 - [不当救世主就要当人类恶了吗](https://www.bianlishihao.com/book/9ipauk/)
-- [社恐直播鉴宝，但带球跑](https://www.bianlishihao.com/book/9ip9a3/)
 - [枕边热吻](https://www.bianlishihao.com/book/9ip8cr/)
 - [[全职高手]霸图老板是叶修](https://www.bianlishihao.com/book/9ip8af/)
 - [误标记隔壁阿姨O之后](https://www.bianlishihao.com/book/9ip6ue/)
@@ -157,16 +156,12 @@
 - [搭档，一起来玩求生游戏吧！](https://www.bianlishihao.com/book/9infrv/)
 - [绿茶病秧子骗他说喜欢](https://www.bianlishihao.com/book/9inf9c/)
 - [把清冷权臣调成荡夫后](https://www.bianlishihao.com/book/9ine5g/)
-- [在医院旧楼捡到个外科鼻祖](https://www.bianlishihao.com/book/9ind7v/)
 - [全民求生:从小木屋到魔法农场](https://www.bianlishihao.com/book/ulhcl/)
 - [清澈女大的六零年代](https://www.bianlishihao.com/book/ulgse/)
-- [如何扮演源氏重宝](https://www.bianlishihao.com/book/ulgoa/)
 - [海岛求生：生活玩家种田囤货](https://www.bianlishihao.com/book/ulgfv/)
 - [科学主义魔法学院](https://www.bianlishihao.com/book/ulgba/)
 - [[娱乐圈]过分美丽的她](https://www.bianlishihao.com/book/ulgb1/)
 - [猫猫也要养家糊口](https://www.bianlishihao.com/book/ulg74/)
-- [替嫁后咸鱼继母佛系日常](https://www.bianlishihao.com/book/ulfto/)
-- [警察，但犯罪大师系统[刑侦]](https://www.bianlishihao.com/book/ulfs5/)
 - [当恶女捡回高岭之花](https://www.bianlishihao.com/book/ulfrp/)
 - [我有一座安全城](https://www.bianlishihao.com/book/ulfr1/)
 - [米花无刁民](https://www.bianlishihao.com/book/ulfnb/)
@@ -175,7 +170,6 @@
 - [我是唯一地上神国](https://www.bianlishihao.com/book/ulff4/)
 - [大瑛弟国](https://www.bianlishihao.com/book/3252s/)
 - [五十年代港城日常](https://www.bianlishihao.com/book/324t4/)
-- [卧底后被港岛大小姐缠上了](https://www.bianlishihao.com/book/324q6/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1281/index.md)

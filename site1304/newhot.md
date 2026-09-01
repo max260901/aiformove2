@@ -1,7 +1,7 @@
 
 # 唯我小说网-最新小说在线阅读,好看小说全文阅读
 
-更新时间：2026-09-01 03:26:29
+更新时间：2026-09-02 03:26:34
 
 唯我小说网提供最新最热门的小说在线阅读服务，包括但不限于各类好看的小说全文内容，满足广大读者的需求。
 
@@ -10,22 +10,29 @@
 ## 最新小说
 - [阿竹与野桃](https://www.hkffbw.com/book/4nr5rj0/)
 - [井闼山经理每天都被挖墙脚](https://www.hkffbw.com/book/4nr5ri0/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.hkffbw.com/book/4nr5rf8/)
+- [躲避原书剧情五年后](https://www.hkffbw.com/book/4nr5rhn/)
+- [失而复得的白月光[快穿]](https://www.hkffbw.com/book/4nr5rf5/)
 - [[封神]圣人生欲](https://www.hkffbw.com/book/4nr5ren/)
 - [你，后室管理员](https://www.hkffbw.com/book/4nr5rec/)
 - [星际团宠小人鱼](https://www.hkffbw.com/book/4nr5re4/)
+- [被四皇错看成小动物后](https://www.hkffbw.com/book/4nr5rd8/)
+- [原配夫人](https://www.hkffbw.com/book/4nr5rd2/)
 - [高调装神，猥琐发育](https://www.hkffbw.com/book/4nr5rcf/)
 - [直男咒术师的限制级游戏](https://www.hkffbw.com/book/4nr5r9h/)
 - [纯爱宇智波基本恋爱法](https://www.hkffbw.com/book/4nr5r9a/)
-- [女扮男装科举和皇帝撞脸了！](https://www.hkffbw.com/book/4nr5r8c/)
-- [寻真](https://www.hkffbw.com/book/4nr262p/)
+- [从异世界穿回来后](https://www.hkffbw.com/book/4nr5r7l/)
+- [某柯学的正义伙伴](https://www.hkffbw.com/book/4nr31f2/)
+- [男朋友买一送一](https://www.hkffbw.com/book/4nr2pi6/)
+- [我有嘉宾](https://www.hkffbw.com/book/4nr2j3l/)
+- [沈助理又在隐藏他的超能力](https://www.hkffbw.com/book/f5vf27/)
+- [系统不许我摆烂](https://www.hkffbw.com/book/f5vecf/)
 - [逝水](https://www.hkffbw.com/book/f5v6p9/)
-- [青空来信](https://www.hkffbw.com/book/f5uk8b/)
-- [这谁的沙雕二次元心声！](https://www.hkffbw.com/book/f5uk4n/)
-- [老公是松散生命体](https://www.hkffbw.com/book/f5uhrl/)
+- [隔壁班的松田君](https://www.hkffbw.com/book/f5uscb/)
+- [你也没死？](https://www.hkffbw.com/book/f5ujps/)
+- [误入反派培养直播后](https://www.hkffbw.com/book/f5u9od/)
 - [多梦你一会儿](https://www.hkffbw.com/book/f5u911/)
 - [[足球]罗蜜第一志愿](https://www.hkffbw.com/book/f5u6mh/)
-- [拯救世界从扮演反派开始](https://www.hkffbw.com/book/f5u20n/)
+- [哥你不能不要我](https://www.hkffbw.com/book/f5tj2g/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1304/index.md)
