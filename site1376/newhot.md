@@ -1,0 +1,58 @@
+
+# 零点看书吧-书友最值得收藏的网络小说阅读网
+
+更新时间：2026-09-01 03:24:56
+
+零点看书吧是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节。作为无弹窗的小说阅读平台，零点看书吧成为网络小说爱好者必备的选择。
+
+- [零点看书吧](https://www.gjnbgb.com/)
+
+## 最新小说
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.gjnbgb.com/book/2s9shih/)
+- [阿竹与野桃](https://www.gjnbgb.com/book/2s9shfu/)
+- [如何正确哄睡暴君](https://www.gjnbgb.com/book/2s9r6me/)
+- [逝水](https://www.gjnbgb.com/book/2s9quef/)
+- [老公是松散生命体](https://www.gjnbgb.com/book/2s9qtd5/)
+- [寻真](https://www.gjnbgb.com/book/2s9qt3c/)
+- [微臣怜惜公主](https://www.gjnbgb.com/book/2s9qo7e/)
+- [女扮男装科举和皇帝撞脸了！](https://www.gjnbgb.com/book/2s9qkh4/)
+- [直男咒术师的限制级游戏](https://www.gjnbgb.com/book/2s9qdut/)
+- [穿为清冷影后的污点A](https://www.gjnbgb.com/book/2s9q94g/)
+- [炮灰的我该如何上位？](https://www.gjnbgb.com/book/2s9q87b/)
+- [多梦你一会儿](https://www.gjnbgb.com/book/2s9q82r/)
+- [这谁的沙雕二次元心声！](https://www.gjnbgb.com/book/2s9q7c0/)
+- [善逸拒绝成为咒术师](https://www.gjnbgb.com/book/2s9q58s/)
+- [拯救世界从扮演反派开始](https://www.gjnbgb.com/book/2s9q2ep/)
+- [井闼山经理每天都被挖墙脚](https://www.gjnbgb.com/book/2s9q1ub/)
+- [[足球]罗蜜第一志愿](https://www.gjnbgb.com/book/2s9ptsc/)
+- [青空来信](https://www.gjnbgb.com/book/2s9ptm2/)
+- [[足球]小小鸟堂堂来袭](https://www.gjnbgb.com/book/2s9pml6/)
+- [法外狂猫](https://www.gjnbgb.com/book/2s9pip8/)
+- [好兄弟暴富后非要跟我结婚](https://www.gjnbgb.com/book/2s9phnb/)
+- [关于我虚构了一个男友这件事](https://www.gjnbgb.com/book/2s9pehf/)
+- [和室友他爸恋爱后](https://www.gjnbgb.com/book/2s9pc8e/)
+- [纯爱宇智波基本恋爱法](https://www.gjnbgb.com/book/2s9np8v/)
+- [高调装神，猥琐发育](https://www.gjnbgb.com/book/2s9np4t/)
+- [[封神]圣人生欲](https://www.gjnbgb.com/book/2s9nom2/)
+- [你，后室管理员](https://www.gjnbgb.com/book/2s9nnk3/)
+- [星际团宠小人鱼](https://www.gjnbgb.com/book/2s9nn9s/)
+## 相关内容
+- [README](/README.md)
+- [首页](/site1376/index.md)
+- [最新热点小说](/site1376/newhot.md)
+- [人气小说](/site1376/b111.md)
+- [推荐小说](/site1376/recommend1.md)
+- [推荐小说列表](/site1376/recommend/index.md)
+- [热点小说](/site1376/hot/index.md)
+- [全本小说](/site1376/quanben/index.md)
+- [网站地图](/site1376/sitemap/index.md)
+- [标签](/site1376/tag/index.md)
+- [爱情小说](/site1376/category101/index.md)
+- [武侠小说](/site1376/category102/index.md)
+- [奇幻小说](/site1376/category103/index.md)
+- [仙侠小说](/site1376/category104/index.md)
+- [游戏小说](/site1376/category105/index.md)
+- [传奇小说](/site1376/category106/index.md)
+- [科幻小说](/site1376/category107/index.md)
+- [惊悚小说](/site1376/category109/index.md)
+- [悬疑小说](/site1376/category110/index.md)
