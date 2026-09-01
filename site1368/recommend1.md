@@ -1,14 +1,15 @@
 
 # 探秘书院-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-01 03:37:37
+更新时间：2026-09-02 03:37:48
 
 探秘书院提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
 - [探秘书院](https://www.tanmi918.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.tanmi918.com/book/80r4na0/)
+- [宠妃岂敢压我！](https://www.tanmi918.com/book/80r4pkt/)
+- [死遁后，师弟他不哄不停](https://www.tanmi918.com/book/80r4pit/)
 - [发家致富小夫郎](https://www.tanmi918.com/book/80r4ili/)
 - [和光太郎谈恋爱](https://www.tanmi918.com/book/80r4gcr/)
 - [氪金游戏，从养成林太郎开始](https://www.tanmi918.com/book/80r4gcq/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.tanmi918.com/book/80r4du4/)
 - [灭世龙崽有什么错](https://www.tanmi918.com/book/80r470d/)
 - [九零重组小家庭](https://www.tanmi918.com/book/80r453p/)
-- [人妻O救赎指南](https://www.tanmi918.com/book/80r442f/)
-- [养父](https://www.tanmi918.com/book/80r4410/)
+- [假少爷有特殊的算命技巧](https://www.tanmi918.com/book/80r4458/)
 - [在虫族世界逃命升级](https://www.tanmi918.com/book/80r40dq/)
 - [神豪文男主是我爸](https://www.tanmi918.com/book/80r3vm9/)
 - [从维多利亚时代开始](https://www.tanmi918.com/book/80r3mpu/)
-- [我有特殊的升官技巧](https://www.tanmi918.com/book/80r3jrk/)
 - [星际团宠小人鱼](https://www.tanmi918.com/book/80r3h49/)
 - [十九世纪贵族厨房（美食）](https://www.tanmi918.com/book/80r3gv2/)
 - [反派人生，易如反掌[快穿]](https://www.tanmi918.com/book/80r3g8v/)
@@ -89,7 +88,6 @@
 - [误标记隔壁阿姨O之后](https://www.tanmi918.com/book/80r2bfr/)
 - [十福晋吃瓜日常(清穿)](https://www.tanmi918.com/book/80r29as/)
 - [在民俗惊悚片被诸神庇护](https://www.tanmi918.com/book/80r2966/)
-- [社恐直播鉴宝，但带球跑](https://www.tanmi918.com/book/80r285p/)
 - [不当救世主就要当人类恶了吗](https://www.tanmi918.com/book/80r2715/)
 - [当我穿为龙傲天的情敌](https://www.tanmi918.com/book/80r26u5/)
 - [当菟丝花要分手后](https://www.tanmi918.com/book/80r26bh/)
@@ -97,7 +95,6 @@
 - [[全职高手]霸图老板是叶修](https://www.tanmi918.com/book/80r24nf/)
 - [养成游戏，但破解版](https://www.tanmi918.com/book/80r1vvd/)
 - [霓虹夏日](https://www.tanmi918.com/book/80r1re2/)
-- [替嫁后咸鱼继母佛系日常](https://www.tanmi918.com/book/80r1nvm/)
 - [[综英美]让我统治哥谭！！！](https://www.tanmi918.com/book/80r1mak/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.tanmi918.com/book/80r1l72/)
 - [啊？我是万人迷？［虫族］](https://www.tanmi918.com/book/80r1kbf/)
@@ -147,13 +144,11 @@
 - [我真的没想在选秀炒CP](https://www.tanmi918.com/book/80r0ael/)
 - [徐娘子的美食发家日常](https://www.tanmi918.com/book/80r09b1/)
 - [把清冷权臣调成荡夫后](https://www.tanmi918.com/book/80r08bh/)
-- [在医院旧楼捡到个外科鼻祖](https://www.tanmi918.com/book/80r07q1/)
 - [[群穿]我在御兽番抢人气](https://www.tanmi918.com/book/80r07gv/)
 - [假少爷不想活了](https://www.tanmi918.com/book/80qvbnf/)
 - [巨物致富：回乡开钓场](https://www.tanmi918.com/book/80qvbkk/)
 - [五十年代港城日常](https://www.tanmi918.com/book/80qvbhn/)
 - [古代种田养娃日常](https://www.tanmi918.com/book/80qvbbk/)
-- [卧底后被港岛大小姐缠上了](https://www.tanmi918.com/book/80qvba5/)
 - [科学主义魔法学院](https://www.tanmi918.com/book/80qvb2k/)
 - [御兽师，我打工养你啊](https://www.tanmi918.com/book/80qvb2d/)
 - [刑部的小衙门](https://www.tanmi918.com/book/80qvav3/)
@@ -164,9 +159,7 @@
 - [成为养成系练习生后](https://www.tanmi918.com/book/80qvahi/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.tanmi918.com/book/80qvaea/)
 - [猫猫也要养家糊口](https://www.tanmi918.com/book/80qva14/)
-- [警察，但犯罪大师系统[刑侦]](https://www.tanmi918.com/book/80qva11/)
 - [六零之成了卷王的妹妹](https://www.tanmi918.com/book/80qv9n7/)
-- [如何扮演源氏重宝](https://www.tanmi918.com/book/80qv9l9/)
 - [高门小婢](https://www.tanmi918.com/book/80qv9ke/)
 - [千禧年，拆迁分了十栋楼！](https://www.tanmi918.com/book/80qv9id/)
 - [大瑛弟国](https://www.tanmi918.com/book/80qv9e7/)
@@ -175,6 +168,7 @@
 - [清澈女大的六零年代](https://www.tanmi918.com/book/80qv947/)
 - [[娱乐圈]过分美丽的她](https://www.tanmi918.com/book/80qv8tp/)
 - [海岛求生：生活玩家种田囤货](https://www.tanmi918.com/book/80qv8pq/)
+- [绝不会喜欢五条君的！](https://www.tanmi918.com/book/80qv8mb/)
 - [高嫁之后](https://www.tanmi918.com/book/80qv8l7/)
 ## 相关内容
 - [README](/README.md)

@@ -1,14 +1,15 @@
 
 # 文学小说668 - 全球最新最热的小说阅读平台
 
-更新时间：2026-09-01 03:39:07
+更新时间：2026-09-02 03:39:20
 
 文学小说668是全球最新、最热的小说阅读网站之一，汇集了包括言情小说、玄幻小说、穿越小说在内的各类优质小说资源，让读者能够尽情享受阅读的乐趣。
 
 - [文学小说668](https://www.wenxue668.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.wenxue668.com/book/44fes72/)
+- [死遁后，师弟他不哄不停](https://www.wenxue668.com/book/44feuio/)
+- [宠妃岂敢压我！](https://www.wenxue668.com/book/44feuht/)
 - [发家致富小夫郎](https://www.wenxue668.com/book/44fenl4/)
 - [私恋旧星](https://www.wenxue668.com/book/44felbs/)
 - [除病弱万人嫌外全员重生](https://www.wenxue668.com/book/44felbm/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.wenxue668.com/book/44feis8/)
 - [灭世龙崽有什么错](https://www.wenxue668.com/book/44febit/)
 - [九零重组小家庭](https://www.wenxue668.com/book/44fe9tb/)
-- [养父](https://www.wenxue668.com/book/44fe98b/)
-- [人妻O救赎指南](https://www.wenxue668.com/book/44fe981/)
+- [假少爷有特殊的算命技巧](https://www.wenxue668.com/book/44fe8rn/)
 - [在虫族世界逃命升级](https://www.wenxue668.com/book/44fe53t/)
 - [神豪文男主是我爸](https://www.wenxue668.com/book/44fe4c7/)
 - [从维多利亚时代开始](https://www.wenxue668.com/book/44fdrid/)
-- [我有特殊的升官技巧](https://www.wenxue668.com/book/44fdogr/)
 - [星际团宠小人鱼](https://www.wenxue668.com/book/44fdmn7/)
 - [十九世纪贵族厨房（美食）](https://www.wenxue668.com/book/44fdmfg/)
 - [反派人生，易如反掌[快穿]](https://www.wenxue668.com/book/44fdl07/)
@@ -90,14 +89,12 @@
 - [当我穿为龙傲天的情敌](https://www.wenxue668.com/book/44fce54/)
 - [在民俗惊悚片被诸神庇护](https://www.wenxue668.com/book/44fccqp/)
 - [十福晋吃瓜日常(清穿)](https://www.wenxue668.com/book/44fccmu/)
-- [社恐直播鉴宝，但带球跑](https://www.wenxue668.com/book/44fcc1r/)
 - [不当救世主就要当人类恶了吗](https://www.wenxue668.com/book/44fcbas/)
 - [[全职高手]霸图老板是叶修](https://www.wenxue668.com/book/44fcasi/)
 - [假金丝雀深陷修罗场](https://www.wenxue668.com/book/44fc9do/)
 - [当菟丝花要分手后](https://www.wenxue668.com/book/44fc93v/)
 - [养成游戏，但破解版](https://www.wenxue668.com/book/44fc321/)
 - [霓虹夏日](https://www.wenxue668.com/book/44fc17f/)
-- [替嫁后咸鱼继母佛系日常](https://www.wenxue668.com/book/44fbvdt/)
 - [[综英美]让我统治哥谭！！！](https://www.wenxue668.com/book/44fbrpj/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.wenxue668.com/book/44fbrj7/)
 - [八零恶毒后妈杀疯了](https://www.wenxue668.com/book/44fbp6r/)
@@ -146,19 +143,15 @@
 - [我不是御兽大师](https://www.wenxue668.com/book/44fagt1/)
 - [我真的没想在选秀炒CP](https://www.wenxue668.com/book/44faev3/)
 - [徐娘子的美食发家日常](https://www.wenxue668.com/book/44faeop/)
-- [在医院旧楼捡到个外科鼻祖](https://www.wenxue668.com/book/44fadd2/)
 - [把清冷权臣调成荡夫后](https://www.wenxue668.com/book/44facij/)
 - [[群穿]我在御兽番抢人气](https://www.wenxue668.com/book/44fab8h/)
 - [95美国贵族高中模拟](https://www.wenxue668.com/book/44f9gdd/)
 - [猫猫也要养家糊口](https://www.wenxue668.com/book/44f9ga7/)
-- [如何扮演源氏重宝](https://www.wenxue668.com/book/44f9g8j/)
 - [御兽师，我打工养你啊](https://www.wenxue668.com/book/44f9g1n/)
 - [科学主义魔法学院](https://www.wenxue668.com/book/44f9fo2/)
-- [警察，但犯罪大师系统[刑侦]](https://www.wenxue668.com/book/44f9fkh/)
 - [清澈女大的六零年代](https://www.wenxue668.com/book/44f9fi9/)
 - [五十年代港城日常](https://www.wenxue668.com/book/44f9fbg/)
 - [大瑛弟国](https://www.wenxue668.com/book/44f9f9s/)
-- [卧底后被港岛大小姐缠上了](https://www.wenxue668.com/book/44f9f9i/)
 - [假少爷不想活了](https://www.wenxue668.com/book/44f9f7m/)
 - [海岛求生：生活玩家种田囤货](https://www.wenxue668.com/book/44f9f5l/)
 - [穿成炮灰后我封神了［快穿］](https://www.wenxue668.com/book/44f9f51/)
@@ -176,6 +169,7 @@
 - [高门小婢](https://www.wenxue668.com/book/44f9dhs/)
 - [高嫁之后](https://www.wenxue668.com/book/44f9dbb/)
 - [六零之成了卷王的妹妹](https://www.wenxue668.com/book/44f9d8a/)
+- [绝不会喜欢五条君的！](https://www.wenxue668.com/book/44f9d6j/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1349/index.md)

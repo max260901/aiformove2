@@ -1,7 +1,7 @@
 
 # 奇幻凤影台小说-都市玄幻言情仙侠免费小说在线阅读
 
-更新时间：2026-09-01 03:33:07
+更新时间：2026-09-02 03:33:12
 
 奇幻凤影台小说提供都市玄幻、言情仙侠等类型的小说在线免费阅读服务。让您的通勤路上不再无聊，无论是日常出行还是夜晚静谧时刻，总有一本好书陪伴您度过美好时光。
 
@@ -9,32 +9,41 @@
 
 ## 最新小说
 - [阿竹与野桃](https://www.qihuan868.com/book/42idh90/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.qihuan868.com/book/42idh8v/)
+- [从异世界穿回来后](https://www.qihuan868.com/book/42idck7/)
+- [我有嘉宾](https://www.qihuan868.com/book/42idcc0/)
 - [你，后室管理员](https://www.qihuan868.com/book/42icik3/)
+- [原配夫人](https://www.qihuan868.com/book/42icija/)
 - [星际团宠小人鱼](https://www.qihuan868.com/book/42icifb/)
 - [高调装神，猥琐发育](https://www.qihuan868.com/book/42icbec/)
+- [男朋友买一送一](https://www.qihuan868.com/book/42ic0pb/)
+- [失而复得的白月光[快穿]](https://www.qihuan868.com/book/42ibrk2/)
+- [躲避原书剧情五年后](https://www.qihuan868.com/book/42ibm7i/)
 - [如何正确哄睡暴君](https://www.qihuan868.com/book/42ibm70/)
-- [寻真](https://www.qihuan868.com/book/42ibe18/)
+- [你也没死？](https://www.qihuan868.com/book/42ibfcl/)
+- [我不可能舔一个漂亮捞子](https://www.qihuan868.com/book/42ibedd/)
 - [逝水](https://www.qihuan868.com/book/42ibdlr/)
-- [老公是松散生命体](https://www.qihuan868.com/book/42ib8n0/)
+- [被鬼怪宠爱的漂亮书生](https://www.qihuan868.com/book/42ib895/)
+- [沈助理又在隐藏他的超能力](https://www.qihuan868.com/book/42ib7t2/)
 - [微臣怜惜公主](https://www.qihuan868.com/book/42ib4ef/)
+- [系统不许我摆烂](https://www.qihuan868.com/book/42ib2pp/)
+- [误入反派培养直播后](https://www.qihuan868.com/book/42ias02/)
 - [炮灰的我该如何上位？](https://www.qihuan868.com/book/42ianjh/)
+- [哥你不能不要我](https://www.qihuan868.com/book/42ianj1/)
 - [多梦你一会儿](https://www.qihuan868.com/book/42ian74/)
+- [被四皇错看成小动物后](https://www.qihuan868.com/book/42iamtu/)
 - [[封神]圣人生欲](https://www.qihuan868.com/book/42iamiu/)
-- [善逸拒绝成为咒术师](https://www.qihuan868.com/book/42iala5/)
-- [这谁的沙雕二次元心声！](https://www.qihuan868.com/book/42iakm8/)
-- [青空来信](https://www.qihuan868.com/book/42iade0/)
+- [隔壁班的松田君](https://www.qihuan868.com/book/42iaggt/)
+- [某柯学的正义伙伴](https://www.qihuan868.com/book/42iaes1/)
 - [[足球]罗蜜第一志愿](https://www.qihuan868.com/book/42iad00/)
 - [井闼山经理每天都被挖墙脚](https://www.qihuan868.com/book/42iacp4/)
 - [[足球]小小鸟堂堂来袭](https://www.qihuan868.com/book/42ia3i0/)
 - [好兄弟暴富后非要跟我结婚](https://www.qihuan868.com/book/42i9t23/)
+- [侯府打工人](https://www.qihuan868.com/book/42i9s4d/)
 - [法外狂猫](https://www.qihuan868.com/book/42i9pe4/)
-- [关于我虚构了一个男友这件事](https://www.qihuan868.com/book/42i9nho/)
+- [我，剑圣，养生中，勿扰](https://www.qihuan868.com/book/42i9ni7/)
 - [和室友他爸恋爱后](https://www.qihuan868.com/book/42i9hen/)
-- [拯救世界从扮演反派开始](https://www.qihuan868.com/book/42i8bo1/)
 - [纯爱宇智波基本恋爱法](https://www.qihuan868.com/book/42i8b5f/)
 - [直男咒术师的限制级游戏](https://www.qihuan868.com/book/42i8anr/)
-- [女扮男装科举和皇帝撞脸了！](https://www.qihuan868.com/book/42i8952/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1346/index.md)

@@ -1,42 +1,51 @@
 
 # 精英文学 - 书友最值得收藏的小说免费阅读网
 
-更新时间：2026-09-01 03:40:51
+更新时间：2026-09-02 03:41:07
 
 精英文学为您提供一个干净舒适的阅读环境，作为书友最值得收藏的小说免费阅读网之一，我们致力于打造无广告干扰的最佳在线阅读体验。
 
 - [精英文学](https://www.xcposji.com/)
 
 ## 最新小说
+- [从异世界穿回来后](https://www.xcposji.com/book/jnmfan/)
+- [我有嘉宾](https://www.xcposji.com/book/jnmeoo/)
 - [阿竹与野桃](https://www.xcposji.com/book/jnm803/)
-- [我的烧烤摊超美味[美食]](https://www.xcposji.com/book/jnm7v8/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xcposji.com/book/jnm7v4/)
+- [躲避原书剧情五年后](https://www.xcposji.com/book/jnl4oi/)
+- [失而复得的白月光[快穿]](https://www.xcposji.com/book/jnl4jb/)
+- [男朋友买一送一](https://www.xcposji.com/book/jnl4eh/)
+- [被鬼怪宠爱的漂亮书生](https://www.xcposji.com/book/jnks95/)
 - [如何正确哄睡暴君](https://www.xcposji.com/book/jnkro5/)
+- [我不可能舔一个漂亮捞子](https://www.xcposji.com/book/jnkmrk/)
+- [你也没死？](https://www.xcposji.com/book/jnkmgv/)
 - [逝水](https://www.xcposji.com/book/jnkkar/)
-- [寻真](https://www.xcposji.com/book/jnkjqv/)
-- [老公是松散生命体](https://www.xcposji.com/book/jnkhg9/)
 - [微臣怜惜公主](https://www.xcposji.com/book/jnkflv/)
-- [女扮男装科举和皇帝撞脸了！](https://www.xcposji.com/book/jnkb2f/)
+- [沈助理又在隐藏他的超能力](https://www.xcposji.com/book/jnkcq6/)
+- [哥你不能不要我](https://www.xcposji.com/book/jnk8ne/)
+- [系统不许我摆烂](https://www.xcposji.com/book/jnk7sh/)
 - [直男咒术师的限制级游戏](https://www.xcposji.com/book/jnk3jo/)
 - [多梦你一会儿](https://www.xcposji.com/book/jnjve1/)
-- [这谁的沙雕二次元心声！](https://www.xcposji.com/book/jnjuec/)
 - [炮灰的我该如何上位？](https://www.xcposji.com/book/jnjthn/)
 - [穿为清冷影后的污点A](https://www.xcposji.com/book/jnjtai/)
-- [善逸拒绝成为咒术师](https://www.xcposji.com/book/jnjr1b/)
-- [拯救世界从扮演反派开始](https://www.xcposji.com/book/jnjoc0/)
 - [井闼山经理每天都被挖墙脚](https://www.xcposji.com/book/jnjns1/)
 - [[足球]罗蜜第一志愿](https://www.xcposji.com/book/jnjmvn/)
-- [青空来信](https://www.xcposji.com/book/jnjinn/)
+- [隔壁班的松田君](https://www.xcposji.com/book/jnjldu/)
+- [某柯学的正义伙伴](https://www.xcposji.com/book/jnjj7m/)
+- [侯府打工人](https://www.xcposji.com/book/jnjilc/)
 - [[足球]小小鸟堂堂来袭](https://www.xcposji.com/book/jnjdmg/)
+- [撕毁女配剧本的我被神之子读心了](https://www.xcposji.com/book/jnjcll/)
 - [法外狂猫](https://www.xcposji.com/book/jnjab4/)
 - [好兄弟暴富后非要跟我结婚](https://www.xcposji.com/book/jnj6ob/)
 - [和室友他爸恋爱后](https://www.xcposji.com/book/jnj4j9/)
-- [关于我虚构了一个男友这件事](https://www.xcposji.com/book/jnj3k6/)
+- [我，剑圣，养生中，勿扰](https://www.xcposji.com/book/jnj4hb/)
 - [星际团宠小人鱼](https://www.xcposji.com/book/jnhgbu/)
 - [纯爱宇智波基本恋爱法](https://www.xcposji.com/book/jnhg4f/)
 - [[封神]圣人生欲](https://www.xcposji.com/book/jnhf96/)
+- [被四皇错看成小动物后](https://www.xcposji.com/book/jnhekj/)
+- [原配夫人](https://www.xcposji.com/book/jnhecl/)
 - [高调装神，猥琐发育](https://www.xcposji.com/book/jnheam/)
 - [你，后室管理员](https://www.xcposji.com/book/jnheaf/)
+- [误入反派培养直播后](https://www.xcposji.com/book/jnhdri/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1375/index.md)

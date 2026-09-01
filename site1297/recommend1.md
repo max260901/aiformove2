@@ -1,14 +1,15 @@
 
 # 笔趣阁_书友最值得收藏的网络小说阅读网_新笔趣阁5200
 
-更新时间：2026-09-01 03:27:51
+更新时间：2026-09-02 03:27:56
 
 笔趣阁是广大书友最值得收藏的网络小说阅读网，新笔趣阁网站收录了当前最火热的网络小说，笔趣阁5200免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
 - [笔趣阁](https://www.kangrunwangye.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.kangrunwangye.com/book/1o9mg87/)
+- [宠妃岂敢压我！](https://www.kangrunwangye.com/book/1o9mg89/)
+- [死遁后，师弟他不哄不停](https://www.kangrunwangye.com/book/1o9mg88/)
 - [发家致富小夫郎](https://www.kangrunwangye.com/book/1o9mg86/)
 - [撕碎[刑侦]](https://www.kangrunwangye.com/book/1o9mg84/)
 - [婚后矜持](https://www.kangrunwangye.com/book/1o9mg83/)
@@ -69,7 +70,6 @@
 - [我司艺人永不塌房](https://www.kangrunwangye.com/book/1o9mg3b/)
 - [井闼山经理每天都被挖墙脚](https://www.kangrunwangye.com/book/1o9mg36/)
 - [下潜一万米，海渊求生](https://www.kangrunwangye.com/book/1o9mg35/)
-- [养父](https://www.kangrunwangye.com/book/1o9mg31/)
 - [九零首富的替嫁小媳妇](https://www.kangrunwangye.com/book/1o9mg2d/)
 - [星际团宠小人鱼](https://www.kangrunwangye.com/book/1o9mg2c/)
 - [十九世纪贵族厨房（美食）](https://www.kangrunwangye.com/book/1o9mg1g/)
@@ -79,14 +79,15 @@
 - [千禧年，拆迁分了十栋楼！](https://www.kangrunwangye.com/book/1o9mfru/)
 - [我不是御兽大师](https://www.kangrunwangye.com/book/1o9mejr/)
 - [满级大佬制霸热血运动番](https://www.kangrunwangye.com/book/1o9mejo/)
+- [绝不会喜欢五条君的！](https://www.kangrunwangye.com/book/1o9mejj/)
 - [六零之成了卷王的妹妹](https://www.kangrunwangye.com/book/1o9meja/)
 - [古代种田养娃日常](https://www.kangrunwangye.com/book/1o9lpq0/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.kangrunwangye.com/book/1o9lpcm/)
 - [九零重组小家庭](https://www.kangrunwangye.com/book/1o9kuto/)
 - [灭世龙崽有什么错](https://www.kangrunwangye.com/book/1o9kqul/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kangrunwangye.com/book/1o9kn80/)
+- [假少爷有特殊的算命技巧](https://www.kangrunwangye.com/book/1o9kj38/)
 - [从维多利亚时代开始](https://www.kangrunwangye.com/book/1o9k66p/)
-- [我有特殊的升官技巧](https://www.kangrunwangye.com/book/1o9k3cg/)
 - [御兽师，我打工养你啊](https://www.kangrunwangye.com/book/1o9k1ad/)
 - [反派人生，易如反掌[快穿]](https://www.kangrunwangye.com/book/1o9k02u/)
 - [啊？我是万人迷？［虫族］](https://www.kangrunwangye.com/book/1o9jnon/)
@@ -99,7 +100,6 @@
 - [日化人生[科研]](https://www.kangrunwangye.com/book/1o9jbdf/)
 - [巨物致富：回乡开钓场](https://www.kangrunwangye.com/book/1o9ja4q/)
 - [趁她之危](https://www.kangrunwangye.com/book/1o9j4dl/)
-- [人妻O救赎指南](https://www.kangrunwangye.com/book/1o9j3uu/)
 - [第一游侠[全息]](https://www.kangrunwangye.com/book/1o9j36l/)
 - [摄政王家的咸鱼夫郎](https://www.kangrunwangye.com/book/1o9iuec/)
 - [始皇闺女躺平失败的日子](https://www.kangrunwangye.com/book/1o9iro5/)
@@ -107,7 +107,6 @@
 - [全球进化，而我保持不变](https://www.kangrunwangye.com/book/5k7q1a/)
 - [当我穿为龙傲天的情敌](https://www.kangrunwangye.com/book/5k7on4/)
 - [不当救世主就要当人类恶了吗](https://www.kangrunwangye.com/book/5k7ntg/)
-- [社恐直播鉴宝，但带球跑](https://www.kangrunwangye.com/book/5k7k91/)
 - [枕边热吻](https://www.kangrunwangye.com/book/5k7iga/)
 - [[全职高手]霸图老板是叶修](https://www.kangrunwangye.com/book/5k7id6/)
 - [误标记隔壁阿姨O之后](https://www.kangrunwangye.com/book/5k7f41/)
@@ -156,24 +155,19 @@
 - [搭档，一起来玩求生游戏吧！](https://www.kangrunwangye.com/book/5k5qgb/)
 - [徐娘子的美食发家日常](https://www.kangrunwangye.com/book/5k5q5u/)
 - [绿茶病秧子骗他说喜欢](https://www.kangrunwangye.com/book/5k5pe1/)
-- [在医院旧楼捡到个外科鼻祖](https://www.kangrunwangye.com/book/5k5p68/)
 - [把清冷权臣调成荡夫后](https://www.kangrunwangye.com/book/5k5o6g/)
 - [我有一座安全城](https://www.kangrunwangye.com/book/i0ib9/)
 - [米花无刁民](https://www.kangrunwangye.com/book/i0i7p/)
 - [我是唯一地上神国](https://www.kangrunwangye.com/book/i0i4c/)
-- [卧底后被港岛大小姐缠上了](https://www.kangrunwangye.com/book/i0i1j/)
 - [五十年代港城日常](https://www.kangrunwangye.com/book/i0i0e/)
 - [高门小婢](https://www.kangrunwangye.com/book/i0hv6/)
-- [警察，但犯罪大师系统[刑侦]](https://www.kangrunwangye.com/book/i0hs5/)
 - [海岛求生：生活玩家种田囤货](https://www.kangrunwangye.com/book/i0hlf/)
 - [清澈女大的六零年代](https://www.kangrunwangye.com/book/i0gsg/)
 - [科学主义魔法学院](https://www.kangrunwangye.com/book/i0gik/)
 - [大瑛弟国](https://www.kangrunwangye.com/book/i0ge4/)
 - [[娱乐圈]过分美丽的她](https://www.kangrunwangye.com/book/i0gd5/)
 - [全民求生:从小木屋到魔法农场](https://www.kangrunwangye.com/book/i0gcm/)
-- [替嫁后咸鱼继母佛系日常](https://www.kangrunwangye.com/book/i0gaj/)
 - [当恶女捡回高岭之花](https://www.kangrunwangye.com/book/1plfa/)
-- [如何扮演源氏重宝](https://www.kangrunwangye.com/book/1pl86/)
 - [95美国贵族高中模拟](https://www.kangrunwangye.com/book/1pkur/)
 - [猫猫也要养家糊口](https://www.kangrunwangye.com/book/1pkql/)
 ## 相关内容

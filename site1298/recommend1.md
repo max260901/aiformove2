@@ -1,14 +1,15 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-09-01 03:29:42
+更新时间：2026-09-02 03:29:46
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
 - [笔趣屋](https://www.kmjike.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.kmjike.com/book/4mlvlm3/)
+- [死遁后，师弟他不哄不停](https://www.kmjike.com/book/4mlvlm5/)
+- [宠妃岂敢压我！](https://www.kmjike.com/book/4mlvlm4/)
 - [发家致富小夫郎](https://www.kmjike.com/book/4mlvlm2/)
 - [[足球]顶级名帅](https://www.kmjike.com/book/4mlvlm1/)
 - [[希腊神话]诸神都是我学生](https://www.kmjike.com/book/4mlvllt/)
@@ -69,7 +70,6 @@
 - [始乱终弃高岭之花以后](https://www.kmjike.com/book/4mlvlh1/)
 - [被怪物女友始乱终弃后[gb]](https://www.kmjike.com/book/4mlvlh0/)
 - [欢迎来到纳萨力克丧葬公司](https://www.kmjike.com/book/4mlvlgv/)
-- [养父](https://www.kmjike.com/book/4mlvlgt/)
 - [星际团宠小人鱼](https://www.kmjike.com/book/4mlvlgg/)
 - [九零首富的替嫁小媳妇](https://www.kmjike.com/book/4mlvlg5/)
 - [十九世纪贵族厨房（美食）](https://www.kmjike.com/book/4mlvlg0/)
@@ -77,16 +77,17 @@
 - [假少爷不想活了](https://www.kmjike.com/book/4mlvleb/)
 - [高嫁之后](https://www.kmjike.com/book/4mlvl9l/)
 - [千禧年，拆迁分了十栋楼！](https://www.kmjike.com/book/4mlvl9k/)
+- [绝不会喜欢五条君的！](https://www.kmjike.com/book/4mlvk2b/)
 - [我不是御兽大师](https://www.kmjike.com/book/4mlvk23/)
 - [满级大佬制霸热血运动番](https://www.kmjike.com/book/4mlvk22/)
 - [六零之成了卷王的妹妹](https://www.kmjike.com/book/4mlvk19/)
 - [古代种田养娃日常](https://www.kmjike.com/book/4mluuuh/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.kmjike.com/book/4mluu7i/)
 - [九零重组小家庭](https://www.kmjike.com/book/4mltvq8/)
+- [假少爷有特殊的算命技巧](https://www.kmjike.com/book/4mltqgg/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kmjike.com/book/4mltn76/)
 - [灭世龙崽有什么错](https://www.kmjike.com/book/4mltkq8/)
 - [从维多利亚时代开始](https://www.kmjike.com/book/4mltavg/)
-- [我有特殊的升官技巧](https://www.kmjike.com/book/4mlt8a5/)
 - [御兽师，我打工养你啊](https://www.kmjike.com/book/4mlt670/)
 - [反派人生，易如反掌[快穿]](https://www.kmjike.com/book/4mlt4il/)
 - [啊？我是万人迷？［虫族］](https://www.kmjike.com/book/4mlssfq/)
@@ -99,7 +100,6 @@
 - [日化人生[科研]](https://www.kmjike.com/book/4mlsfat/)
 - [巨物致富：回乡开钓场](https://www.kmjike.com/book/4mlsec5/)
 - [趁她之危](https://www.kmjike.com/book/4mlsb7n/)
-- [人妻O救赎指南](https://www.kmjike.com/book/4mls8n3/)
 - [第一游侠[全息]](https://www.kmjike.com/book/4mls7q9/)
 - [始皇闺女躺平失败的日子](https://www.kmjike.com/book/4mls2c0/)
 - [摄政王家的咸鱼夫郎](https://www.kmjike.com/book/4mls0n2/)
@@ -108,7 +108,6 @@
 - [全球进化，而我保持不变](https://www.kmjike.com/book/f28l2e/)
 - [不当救世主就要当人类恶了吗](https://www.kmjike.com/book/f28i0t/)
 - [[全职高手]霸图老板是叶修](https://www.kmjike.com/book/f28hju/)
-- [社恐直播鉴宝，但带球跑](https://www.kmjike.com/book/f28h8e/)
 - [枕边热吻](https://www.kmjike.com/book/f28gfp/)
 - [误标记隔壁阿姨O之后](https://www.kmjike.com/book/f28dup/)
 - [假金丝雀深陷修罗场](https://www.kmjike.com/book/f28afg/)
@@ -157,16 +156,12 @@
 - [绿茶病秧子骗他说喜欢](https://www.kmjike.com/book/f26n3c/)
 - [搭档，一起来玩求生游戏吧！](https://www.kmjike.com/book/f26ms7/)
 - [把清冷权臣调成荡夫后](https://www.kmjike.com/book/f26lrc/)
-- [在医院旧楼捡到个外科鼻祖](https://www.kmjike.com/book/f26k8r/)
-- [警察，但犯罪大师系统[刑侦]](https://www.kmjike.com/book/1g724o/)
 - [我有一座安全城](https://www.kmjike.com/book/1g71ib/)
 - [科学主义魔法学院](https://www.kmjike.com/book/1g71b5/)
-- [如何扮演源氏重宝](https://www.kmjike.com/book/1g712b/)
 - [大瑛弟国](https://www.kmjike.com/book/1g710f/)
 - [95美国贵族高中模拟](https://www.kmjike.com/book/1g70lu/)
 - [五十年代港城日常](https://www.kmjike.com/book/1g70l1/)
 - [当恶女捡回高岭之花](https://www.kmjike.com/book/1g70ii/)
-- [替嫁后咸鱼继母佛系日常](https://www.kmjike.com/book/1g70bm/)
 - [海岛求生：生活玩家种田囤货](https://www.kmjike.com/book/1g706u/)
 - [高门小婢](https://www.kmjike.com/book/1g706m/)
 - [猫猫也要养家糊口](https://www.kmjike.com/book/1g702a/)
@@ -175,7 +170,6 @@
 - [全民求生:从小木屋到魔法农场](https://www.kmjike.com/book/4qa3o/)
 - [清澈女大的六零年代](https://www.kmjike.com/book/4qa07/)
 - [米花无刁民](https://www.kmjike.com/book/4q9o6/)
-- [卧底后被港岛大小姐缠上了](https://www.kmjike.com/book/4q9li/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1298/index.md)

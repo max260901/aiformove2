@@ -1,14 +1,15 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-09-01 03:35:55
+更新时间：2026-09-02 03:36:03
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
 - [书旗小说网](https://www.shuqi687.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.shuqi687.com/book/8vsmje3/)
+- [宠妃岂敢压我！](https://www.shuqi687.com/book/8vsmje5/)
+- [死遁后，师弟他不哄不停](https://www.shuqi687.com/book/8vsmje4/)
 - [发家致富小夫郎](https://www.shuqi687.com/book/8vsmje2/)
 - [井闼山经理每天都被挖墙脚](https://www.shuqi687.com/book/8vsmje1/)
 - [氪金游戏，从养成林太郎开始](https://www.shuqi687.com/book/8vsmjdv/)
@@ -69,7 +70,6 @@
 - [撕碎[刑侦]](https://www.shuqi687.com/book/8vsmj95/)
 - [猫猫也要被魅魔魅惑吗？](https://www.shuqi687.com/book/8vsmj93/)
 - [水管工[GB]](https://www.shuqi687.com/book/8vsmj91/)
-- [养父](https://www.shuqi687.com/book/8vsmj8t/)
 - [星际团宠小人鱼](https://www.shuqi687.com/book/8vsmj8b/)
 - [十九世纪贵族厨房（美食）](https://www.shuqi687.com/book/8vsmj7k/)
 - [九零首富的替嫁小媳妇](https://www.shuqi687.com/book/8vsmj7h/)
@@ -77,16 +77,17 @@
 - [假少爷不想活了](https://www.shuqi687.com/book/8vsmj6b/)
 - [千禧年，拆迁分了十栋楼！](https://www.shuqi687.com/book/8vsmj1t/)
 - [高嫁之后](https://www.shuqi687.com/book/8vsmj1p/)
+- [绝不会喜欢五条君的！](https://www.shuqi687.com/book/8vsmhq9/)
 - [我不是御兽大师](https://www.shuqi687.com/book/8vsmhpl/)
 - [满级大佬制霸热血运动番](https://www.shuqi687.com/book/8vsmhpj/)
 - [六零之成了卷王的妹妹](https://www.shuqi687.com/book/8vsmhpf/)
 - [古代种田养娃日常](https://www.shuqi687.com/book/8vslsll/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.shuqi687.com/book/8vslrvp/)
 - [九零重组小家庭](https://www.shuqi687.com/book/8vsl2f0/)
+- [假少爷有特殊的算命技巧](https://www.shuqi687.com/book/8vskm6r/)
 - [灭世龙崽有什么错](https://www.shuqi687.com/book/8vskkr8/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shuqi687.com/book/8vskirb/)
 - [从维多利亚时代开始](https://www.shuqi687.com/book/8vsk8kt/)
-- [我有特殊的升官技巧](https://www.shuqi687.com/book/8vsk5vi/)
 - [御兽师，我打工养你啊](https://www.shuqi687.com/book/8vsk3j2/)
 - [反派人生，易如反掌[快穿]](https://www.shuqi687.com/book/8vsk26p/)
 - [神豪文男主是我爸](https://www.shuqi687.com/book/8vsjq47/)
@@ -100,7 +101,6 @@
 - [巨物致富：回乡开钓场](https://www.shuqi687.com/book/8vsjc70/)
 - [趁她之危](https://www.shuqi687.com/book/8vsj9l8/)
 - [第一游侠[全息]](https://www.shuqi687.com/book/8vsj571/)
-- [人妻O救赎指南](https://www.shuqi687.com/book/8vsj4sc/)
 - [始皇闺女躺平失败的日子](https://www.shuqi687.com/book/8vsj0es/)
 - [摄政王家的咸鱼夫郎](https://www.shuqi687.com/book/8vsiveh/)
 - [寄人篱下](https://www.shuqi687.com/book/8vsirk4/)
@@ -109,7 +109,6 @@
 - [不当救世主就要当人类恶了吗](https://www.shuqi687.com/book/sparua/)
 - [[全职高手]霸图老板是叶修](https://www.shuqi687.com/book/spaqla/)
 - [枕边热吻](https://www.shuqi687.com/book/spaqks/)
-- [社恐直播鉴宝，但带球跑](https://www.shuqi687.com/book/spaorb/)
 - [误标记隔壁阿姨O之后](https://www.shuqi687.com/book/spam06/)
 - [成为养成系练习生后](https://www.shuqi687.com/book/spal1c/)
 - [假金丝雀深陷修罗场](https://www.shuqi687.com/book/spakm6/)
@@ -157,20 +156,15 @@
 - [搭档，一起来玩求生游戏吧！](https://www.shuqi687.com/book/sp90uq/)
 - [徐娘子的美食发家日常](https://www.shuqi687.com/book/sp8vkf/)
 - [把清冷权臣调成荡夫后](https://www.shuqi687.com/book/sp8va2/)
-- [在医院旧楼捡到个外科鼻祖](https://www.shuqi687.com/book/sp8up5/)
 - [全民求生:从小木屋到魔法农场](https://www.shuqi687.com/book/2s430p/)
 - [大瑛弟国](https://www.shuqi687.com/book/2s42vg/)
-- [警察，但犯罪大师系统[刑侦]](https://www.shuqi687.com/book/2s42sj/)
 - [[娱乐圈]过分美丽的她](https://www.shuqi687.com/book/2s42m9/)
 - [我有一座安全城](https://www.shuqi687.com/book/2s42km/)
-- [卧底后被港岛大小姐缠上了](https://www.shuqi687.com/book/2s427t/)
 - [95美国贵族高中模拟](https://www.shuqi687.com/book/2s41pu/)
 - [当恶女捡回高岭之花](https://www.shuqi687.com/book/2s41pj/)
 - [五十年代港城日常](https://www.shuqi687.com/book/2s41j6/)
 - [高门小婢](https://www.shuqi687.com/book/2s41al/)
 - [我是唯一地上神国](https://www.shuqi687.com/book/96qdu/)
-- [如何扮演源氏重宝](https://www.shuqi687.com/book/96qat/)
-- [替嫁后咸鱼继母佛系日常](https://www.shuqi687.com/book/96q79/)
 - [米花无刁民](https://www.shuqi687.com/book/96q6u/)
 - [猫猫也要养家糊口](https://www.shuqi687.com/book/96q5o/)
 - [科学主义魔法学院](https://www.shuqi687.com/book/96q5d/)

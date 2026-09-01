@@ -1,7 +1,7 @@
 
 # 文学小说668 - 全球最新最热的小说阅读平台
 
-更新时间：2026-09-01 03:39:07
+更新时间：2026-09-02 03:39:20
 
 文学小说668是全球最新、最热的小说阅读网站之一，汇集了包括言情小说、玄幻小说、穿越小说在内的各类优质小说资源，让读者能够尽情享受阅读的乐趣。
 
@@ -9,32 +9,41 @@
 
 ## 最新小说
 - [阿竹与野桃](https://www.wenxue668.com/book/44felaj/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wenxue668.com/book/44fel8m/)
+- [从异世界穿回来后](https://www.wenxue668.com/book/44fegkr/)
+- [我有嘉宾](https://www.wenxue668.com/book/44fegao/)
 - [星际团宠小人鱼](https://www.wenxue668.com/book/44fdmn7/)
+- [原配夫人](https://www.wenxue668.com/book/44fdmi7/)
 - [你，后室管理员](https://www.wenxue668.com/book/44fdmc9/)
 - [高调装神，猥琐发育](https://www.wenxue668.com/book/44fdfj3/)
+- [男朋友买一送一](https://www.wenxue668.com/book/44fd5l5/)
+- [失而复得的白月光[快穿]](https://www.wenxue668.com/book/44fcta2/)
 - [如何正确哄睡暴君](https://www.wenxue668.com/book/44fcreu/)
-- [寻真](https://www.wenxue668.com/book/44fcjk8/)
+- [躲避原书剧情五年后](https://www.wenxue668.com/book/44fcqeh/)
 - [逝水](https://www.wenxue668.com/book/44fcjif/)
-- [老公是松散生命体](https://www.wenxue668.com/book/44fcdd8/)
+- [你也没死？](https://www.wenxue668.com/book/44fcj4g/)
+- [我不可能舔一个漂亮捞子](https://www.wenxue668.com/book/44fciha/)
+- [被鬼怪宠爱的漂亮书生](https://www.wenxue668.com/book/44fcce2/)
+- [沈助理又在隐藏他的超能力](https://www.wenxue668.com/book/44fcbnr/)
 - [微臣怜惜公主](https://www.wenxue668.com/book/44fcaic/)
+- [系统不许我摆烂](https://www.wenxue668.com/book/44fc74n/)
+- [误入反派培养直播后](https://www.wenxue668.com/book/44fbvlr/)
+- [哥你不能不要我](https://www.wenxue668.com/book/44fbreq/)
 - [多梦你一会儿](https://www.wenxue668.com/book/44fbr4b/)
+- [被四皇错看成小动物后](https://www.wenxue668.com/book/44fbqvp/)
 - [[封神]圣人生欲](https://www.wenxue668.com/book/44fbqro/)
 - [炮灰的我该如何上位？](https://www.wenxue668.com/book/44fbq71/)
-- [善逸拒绝成为咒术师](https://www.wenxue668.com/book/44fbor7/)
-- [这谁的沙雕二次元心声！](https://www.wenxue668.com/book/44fbnuf/)
+- [隔壁班的松田君](https://www.wenxue668.com/book/44fbk66/)
+- [某柯学的正义伙伴](https://www.wenxue668.com/book/44fbj4d/)
 - [[足球]罗蜜第一志愿](https://www.wenxue668.com/book/44fbj4a/)
-- [青空来信](https://www.wenxue668.com/book/44fbj39/)
 - [井闼山经理每天都被挖墙脚](https://www.wenxue668.com/book/44fbfur/)
 - [[足球]小小鸟堂堂来袭](https://www.wenxue668.com/book/44fb7i3/)
 - [好兄弟暴富后非要跟我结婚](https://www.wenxue668.com/book/44fb0h6/)
+- [侯府打工人](https://www.wenxue668.com/book/44favch/)
 - [法外狂猫](https://www.wenxue668.com/book/44fat7s/)
-- [关于我虚构了一个男友这件事](https://www.wenxue668.com/book/44faplf/)
+- [我，剑圣，养生中，勿扰](https://www.wenxue668.com/book/44farn7/)
 - [和室友他爸恋爱后](https://www.wenxue668.com/book/44fam6s/)
-- [女扮男装科举和皇帝撞脸了！](https://www.wenxue668.com/book/44f9fpm/)
 - [直男咒术师的限制级游戏](https://www.wenxue668.com/book/44f9fgm/)
 - [纯爱宇智波基本恋爱法](https://www.wenxue668.com/book/44f9el8/)
-- [拯救世界从扮演反派开始](https://www.wenxue668.com/book/44f9efi/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1349/index.md)
