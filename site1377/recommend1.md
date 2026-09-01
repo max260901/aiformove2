@@ -1,15 +1,17 @@
 
 # 牛魔王JJ电子书 - 小说阅读网, 全本免费完结小说在线阅读及下载
 
-更新时间：2026-09-01 03:31:54
+更新时间：2026-09-02 03:31:59
 
 牛魔王JJ电子书提供精彩小说阅读服务，包括各种类型的小说排行榜、免费好看的小说等。涵盖穿越小说、都市小说、言情小说、玄幻小说等多种类别，支持全本全集完结小说在线阅读以及TXT下载。
 
 - [牛魔王JJ电子书](https://www.nmwjj.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.nmwjj.com/book/18cj87r/)
+- [宠妃岂敢压我！](https://www.nmwjj.com/book/18cjail/)
+- [死遁后，师弟他不哄不停](https://www.nmwjj.com/book/18cjagv/)
 - [发家致富小夫郎](https://www.nmwjj.com/book/18cj2f7/)
+- [假少爷有特殊的算命技巧](https://www.nmwjj.com/book/18ciuhc/)
 - [九零重组小家庭](https://www.nmwjj.com/book/18ciu2b/)
 - [游戏角色想和玩家谈恋爱](https://www.nmwjj.com/book/18citq8/)
 - [重回养父年少时](https://www.nmwjj.com/book/18citq7/)
@@ -68,10 +70,7 @@
 - [神豪文男主是我爸](https://www.nmwjj.com/book/18cipl0/)
 - [我真的只会Ctrl啊！！！](https://www.nmwjj.com/book/18cinuf/)
 - [从维多利亚时代开始](https://www.nmwjj.com/book/18cihc3/)
-- [我有特殊的升官技巧](https://www.nmwjj.com/book/18cielu/)
 - [反派人生，易如反掌[快穿]](https://www.nmwjj.com/book/18cib4g/)
-- [养父](https://www.nmwjj.com/book/18ci35u/)
-- [人妻O救赎指南](https://www.nmwjj.com/book/18ci35m/)
 - [摄政王家的咸鱼夫郎](https://www.nmwjj.com/book/18chm7q/)
 - [绿叶](https://www.nmwjj.com/book/18chllh/)
 - [枕边热吻](https://www.nmwjj.com/book/18chjlt/)
@@ -87,7 +86,6 @@
 - [当菟丝花要分手后](https://www.nmwjj.com/book/18ch517/)
 - [高嫁之后](https://www.nmwjj.com/book/18ch2e9/)
 - [[全职高手]霸图老板是叶修](https://www.nmwjj.com/book/18ch2bp/)
-- [社恐直播鉴宝，但带球跑](https://www.nmwjj.com/book/18ch1sh/)
 - [当我穿为龙傲天的情敌](https://www.nmwjj.com/book/18ch1ku/)
 - [假金丝雀深陷修罗场](https://www.nmwjj.com/book/18ch1ct/)
 - [养成游戏，但破解版](https://www.nmwjj.com/book/18cgsgg/)
@@ -136,18 +134,16 @@
 - [红楼之霸总他被迫拯救女主角](https://www.nmwjj.com/book/18cfadk/)
 - [恶犬攻绑定上司的乖狗系统](https://www.nmwjj.com/book/18cf9v3/)
 - [绿茶病秧子骗他说喜欢](https://www.nmwjj.com/book/18cf90i/)
+- [绝不会喜欢五条君的！](https://www.nmwjj.com/book/18cf8ob/)
 - [暴君偏头痛](https://www.nmwjj.com/book/18cf8o7/)
 - [把清冷权臣调成荡夫后](https://www.nmwjj.com/book/18cf6ll/)
 - [我真的没想在选秀炒CP](https://www.nmwjj.com/book/18cf3qs/)
 - [欢迎来到纳萨力克丧葬公司](https://www.nmwjj.com/book/18cf3f0/)
-- [在医院旧楼捡到个外科鼻祖](https://www.nmwjj.com/book/18cf2h8/)
 - [[群穿]我在御兽番抢人气](https://www.nmwjj.com/book/18cf0tg/)
 - [我，恶女，在线搞事](https://www.nmwjj.com/book/18cf03e/)
 - [为诡异打工，但反封建迷信](https://www.nmwjj.com/book/18ce68a/)
 - [大瑛弟国](https://www.nmwjj.com/book/18ce66m/)
 - [假少爷不想活了](https://www.nmwjj.com/book/18ce64e/)
-- [卧底后被港岛大小姐缠上了](https://www.nmwjj.com/book/18ce60g/)
-- [如何扮演源氏重宝](https://www.nmwjj.com/book/18ce5vg/)
 - [在民俗惊悚片被诸神庇护](https://www.nmwjj.com/book/18ce5v2/)
 - [九零首富的替嫁小媳妇](https://www.nmwjj.com/book/18ce5ut/)
 - [穿成炮灰后我封神了［快穿］](https://www.nmwjj.com/book/18ce5ra/)
@@ -156,13 +152,11 @@
 - [趁她之危](https://www.nmwjj.com/book/18ce5ie/)
 - [巨物致富：回乡开钓场](https://www.nmwjj.com/book/18ce5el/)
 - [全民求生:从小木屋到魔法农场](https://www.nmwjj.com/book/18ce5b4/)
-- [警察，但犯罪大师系统[刑侦]](https://www.nmwjj.com/book/18ce5ar/)
 - [我是唯一地上神国](https://www.nmwjj.com/book/18ce5a3/)
 - [古代种田养娃日常](https://www.nmwjj.com/book/18ce544/)
 - [星际团宠小人鱼](https://www.nmwjj.com/book/18ce52v/)
 - [[娱乐圈]过分美丽的她](https://www.nmwjj.com/book/18ce4vd/)
 - [高调装神，猥琐发育](https://www.nmwjj.com/book/18ce4lp/)
-- [替嫁后咸鱼继母佛系日常](https://www.nmwjj.com/book/18ce4fs/)
 - [95美国贵族高中模拟](https://www.nmwjj.com/book/18ce4bm/)
 - [日化人生[科研]](https://www.nmwjj.com/book/18ce4bg/)
 - [高门小婢](https://www.nmwjj.com/book/18ce4b2/)

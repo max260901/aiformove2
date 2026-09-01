@@ -1,15 +1,17 @@
 
 # 湾里早市时间小说网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-01 03:39:50
+更新时间：2026-09-02 03:40:05
 
 湾里早市时间小说网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
 - [湾里早市时间小说网](https://www.wlzssj.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.wlzssj.com/book/4pmf2rm/)
+- [死遁后，师弟他不哄不停](https://www.wlzssj.com/book/4pmf55l/)
+- [宠妃岂敢压我！](https://www.wlzssj.com/book/4pmf558/)
 - [发家致富小夫郎](https://www.wlzssj.com/book/4pmet1c/)
+- [假少爷有特殊的算命技巧](https://www.wlzssj.com/book/4pmep12/)
 - [九零重组小家庭](https://www.wlzssj.com/book/4pmeomf/)
 - [卡尔蜜拉也能成为特利迦白月光？](https://www.wlzssj.com/book/4pmeoe2/)
 - [影帝今天分手了吗[娱乐圈]](https://www.wlzssj.com/book/4pmeodn/)
@@ -68,10 +70,7 @@
 - [神豪文男主是我爸](https://www.wlzssj.com/book/4pmekdv/)
 - [我真的只会Ctrl啊！！！](https://www.wlzssj.com/book/4pmeidq/)
 - [从维多利亚时代开始](https://www.wlzssj.com/book/4pmec7c/)
-- [我有特殊的升官技巧](https://www.wlzssj.com/book/4pme964/)
 - [反派人生，易如反掌[快穿]](https://www.wlzssj.com/book/4pme5l3/)
-- [养父](https://www.wlzssj.com/book/4pmdtt2/)
-- [人妻O救赎指南](https://www.wlzssj.com/book/4pmdtms/)
 - [摄政王家的咸鱼夫郎](https://www.wlzssj.com/book/4pmdi75/)
 - [绿叶](https://www.wlzssj.com/book/4pmdg7n/)
 - [枕边热吻](https://www.wlzssj.com/book/4pmdeea/)
@@ -85,7 +84,6 @@
 - [当菟丝花要分手后](https://www.wlzssj.com/book/4pmd122/)
 - [不当救世主就要当人类恶了吗](https://www.wlzssj.com/book/4pmd044/)
 - [十福晋吃瓜日常(清穿)](https://www.wlzssj.com/book/4pmcvmv/)
-- [社恐直播鉴宝，但带球跑](https://www.wlzssj.com/book/4pmcupl/)
 - [高嫁之后](https://www.wlzssj.com/book/4pmcuh2/)
 - [当我穿为龙傲天的情敌](https://www.wlzssj.com/book/4pmcudl/)
 - [[全职高手]霸图老板是叶修](https://www.wlzssj.com/book/4pmctm8/)
@@ -135,12 +133,12 @@
 - [恶犬攻绑定上司的乖狗系统](https://www.wlzssj.com/book/4pmb5mc/)
 - [这男人该死的甜美](https://www.wlzssj.com/book/4pmb5im/)
 - [搭档，一起来玩求生游戏吧！](https://www.wlzssj.com/book/4pmb4qb/)
+- [绝不会喜欢五条君的！](https://www.wlzssj.com/book/4pmb3oj/)
 - [绿茶病秧子骗他说喜欢](https://www.wlzssj.com/book/4pmb2rn/)
 - [暴君偏头痛](https://www.wlzssj.com/book/4pmb2on/)
 - [我真的没想在选秀炒CP](https://www.wlzssj.com/book/4pmb0ul/)
 - [把清冷权臣调成荡夫后](https://www.wlzssj.com/book/4pmaujj/)
 - [欢迎来到纳萨力克丧葬公司](https://www.wlzssj.com/book/4pmatod/)
-- [在医院旧楼捡到个外科鼻祖](https://www.wlzssj.com/book/4pmat7t/)
 - [[群穿]我在御兽番抢人气](https://www.wlzssj.com/book/4pmasa6/)
 - [我，恶女，在线搞事](https://www.wlzssj.com/book/4pmarcn/)
 - [为诡异打工，但反封建迷信](https://www.wlzssj.com/book/4pma0uf/)
@@ -155,19 +153,15 @@
 - [高调装神，猥琐发育](https://www.wlzssj.com/book/4pma045/)
 - [假少爷不想活了](https://www.wlzssj.com/book/4pma02i/)
 - [八零恶毒后妈杀疯了](https://www.wlzssj.com/book/4pma00k/)
-- [替嫁后咸鱼继母佛系日常](https://www.wlzssj.com/book/4pm9vt9/)
 - [清澈女大的六零年代](https://www.wlzssj.com/book/4pm9vpv/)
 - [[娱乐圈]过分美丽的她](https://www.wlzssj.com/book/4pm9vm3/)
 - [我是唯一地上神国](https://www.wlzssj.com/book/4pm9vkf/)
-- [卧底后被港岛大小姐缠上了](https://www.wlzssj.com/book/4pm9vba/)
-- [如何扮演源氏重宝](https://www.wlzssj.com/book/4pm9uto/)
 - [趁她之危](https://www.wlzssj.com/book/4pm9utn/)
 - [五十年代港城日常](https://www.wlzssj.com/book/4pm9ul4/)
 - [穿成炮灰后我封神了［快穿］](https://www.wlzssj.com/book/4pm9uhn/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.wlzssj.com/book/4pm9uf9/)
 - [古代种田养娃日常](https://www.wlzssj.com/book/4pm9uf6/)
 - [千禧年，拆迁分了十栋楼！](https://www.wlzssj.com/book/4pm9ueh/)
-- [警察，但犯罪大师系统[刑侦]](https://www.wlzssj.com/book/4pm9uch/)
 - [日化人生[科研]](https://www.wlzssj.com/book/4pm9ube/)
 - [95美国贵族高中模拟](https://www.wlzssj.com/book/4pm9u9o/)
 - [在民俗惊悚片被诸神庇护](https://www.wlzssj.com/book/4pm9u7e/)

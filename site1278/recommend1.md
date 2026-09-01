@@ -1,7 +1,7 @@
 
 # 紫玉海小说 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-09-01 03:44:47
+更新时间：2026-09-02 03:44:59
 
 紫玉海小说网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
@@ -156,7 +156,6 @@
 - [我真的没想在选秀炒CP](https://www.ziyuhai.com/book/q2p2kt/)
 - [徐娘子的美食发家日常](https://www.ziyuhai.com/book/q2p2kd/)
 - [把清冷权臣调成荡夫后](https://www.ziyuhai.com/book/q2p0mp/)
-- [卧底后被港岛大小姐缠上了](https://www.ziyuhai.com/book/2jf9a0/)
 - [五十年代港城日常](https://www.ziyuhai.com/book/2jf94e/)
 - [[娱乐圈]过分美丽的她](https://www.ziyuhai.com/book/2jf8vb/)
 - [清澈女大的六零年代](https://www.ziyuhai.com/book/2jf8ut/)

@@ -1,14 +1,15 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-09-01 03:24:09
+更新时间：2026-09-02 03:24:13
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
 - [读者香书小说](https://www.duzhe888.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.duzhe888.com/book/2koepe6/)
+- [宠妃岂敢压我！](https://www.duzhe888.com/book/2koepe8/)
+- [死遁后，师弟他不哄不停](https://www.duzhe888.com/book/2koepe7/)
 - [发家致富小夫郎](https://www.duzhe888.com/book/2koepe5/)
 - [[足球]顶级名帅](https://www.duzhe888.com/book/2koepe2/)
 - [青城玩家明明超强却过分谨慎](https://www.duzhe888.com/book/2koepdv/)
@@ -69,7 +70,6 @@
 - [渡鬼](https://www.duzhe888.com/book/2koep98/)
 - [太子哥哥不想当哥哥](https://www.duzhe888.com/book/2koep97/)
 - [[希腊神话]诸神都是我学生](https://www.duzhe888.com/book/2koep94/)
-- [养父](https://www.duzhe888.com/book/2koep90/)
 - [星际团宠小人鱼](https://www.duzhe888.com/book/2koep8p/)
 - [十九世纪贵族厨房（美食）](https://www.duzhe888.com/book/2koep77/)
 - [九零首富的替嫁小媳妇](https://www.duzhe888.com/book/2koep71/)
@@ -80,13 +80,14 @@
 - [满级大佬制霸热血运动番](https://www.duzhe888.com/book/2koenpv/)
 - [六零之成了卷王的妹妹](https://www.duzhe888.com/book/2koenpq/)
 - [我不是御兽大师](https://www.duzhe888.com/book/2koenpi/)
+- [绝不会喜欢五条君的！](https://www.duzhe888.com/book/2koenpb/)
 - [古代种田养娃日常](https://www.duzhe888.com/book/2kodogu/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.duzhe888.com/book/2kodo12/)
+- [假少爷有特殊的算命技巧](https://www.duzhe888.com/book/2kod4u8/)
 - [九零重组小家庭](https://www.duzhe888.com/book/2kocuum/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.duzhe888.com/book/2kocor0/)
 - [灭世龙崽有什么错](https://www.duzhe888.com/book/2kocnol/)
 - [从维多利亚时代开始](https://www.duzhe888.com/book/2kocdco/)
-- [我有特殊的升官技巧](https://www.duzhe888.com/book/2kocaq7/)
 - [御兽师，我打工养你啊](https://www.duzhe888.com/book/2koc8t2/)
 - [反派人生，易如反掌[快穿]](https://www.duzhe888.com/book/2koc7aj/)
 - [当菟丝花要分手后](https://www.duzhe888.com/book/2kobvfa/)
@@ -100,7 +101,6 @@
 - [巨物致富：回乡开钓场](https://www.duzhe888.com/book/2kobf0u/)
 - [趁她之危](https://www.duzhe888.com/book/2kobe39/)
 - [第一游侠[全息]](https://www.duzhe888.com/book/2koba2q/)
-- [人妻O救赎指南](https://www.duzhe888.com/book/2kob97v/)
 - [摄政王家的咸鱼夫郎](https://www.duzhe888.com/book/2kob7dg/)
 - [始皇闺女躺平失败的日子](https://www.duzhe888.com/book/2kob438/)
 - [寄人篱下](https://www.duzhe888.com/book/2kob3bn/)
@@ -108,7 +108,6 @@
 - [不当救世主就要当人类恶了吗](https://www.duzhe888.com/book/8fa6a2/)
 - [当我穿为龙傲天的情敌](https://www.duzhe888.com/book/8fa3ur/)
 - [枕边热吻](https://www.duzhe888.com/book/8fa29p/)
-- [社恐直播鉴宝，但带球跑](https://www.duzhe888.com/book/8fa1g6/)
 - [[全职高手]霸图老板是叶修](https://www.duzhe888.com/book/8f9u71/)
 - [成为养成系练习生后](https://www.duzhe888.com/book/8f9ts8/)
 - [假金丝雀深陷修罗场](https://www.duzhe888.com/book/8f9t7s/)
@@ -156,20 +155,15 @@
 - [我真的没想在选秀炒CP](https://www.duzhe888.com/book/8f885r/)
 - [绿茶病秧子骗他说喜欢](https://www.duzhe888.com/book/8f87ua/)
 - [徐娘子的美食发家日常](https://www.duzhe888.com/book/8f87rs/)
-- [在医院旧楼捡到个外科鼻祖](https://www.duzhe888.com/book/8f85hk/)
 - [把清冷权臣调成荡夫后](https://www.duzhe888.com/book/8f85fh/)
-- [如何扮演源氏重宝](https://www.duzhe888.com/book/r404c/)
 - [猫猫也要养家糊口](https://www.duzhe888.com/book/r3vsf/)
 - [大瑛弟国](https://www.duzhe888.com/book/r3vmo/)
-- [卧底后被港岛大小姐缠上了](https://www.duzhe888.com/book/r3vhn/)
 - [科学主义魔法学院](https://www.duzhe888.com/book/r3vgf/)
-- [警察，但犯罪大师系统[刑侦]](https://www.duzhe888.com/book/r3vem/)
 - [95美国贵族高中模拟](https://www.duzhe888.com/book/r3vc6/)
 - [米花无刁民](https://www.duzhe888.com/book/r3v14/)
 - [[娱乐圈]过分美丽的她](https://www.duzhe888.com/book/r3v0d/)
 - [当恶女捡回高岭之花](https://www.duzhe888.com/book/r3v03/)
 - [清澈女大的六零年代](https://www.duzhe888.com/book/r3uqd/)
-- [替嫁后咸鱼继母佛系日常](https://www.duzhe888.com/book/r3unf/)
 - [全民求生:从小木屋到魔法农场](https://www.duzhe888.com/book/r3ufs/)
 - [海岛求生：生活玩家种田囤货](https://www.duzhe888.com/book/r3uds/)
 - [我是唯一地上神国](https://www.duzhe888.com/book/2mq3v/)

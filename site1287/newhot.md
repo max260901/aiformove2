@@ -1,31 +1,38 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-01 03:26:46
+更新时间：2026-09-02 03:26:51
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
 - [随梦小说网](https://www.hzciic.com/)
 
 ## 最新小说
+- [躲避原书剧情五年后](https://www.hzciic.com/book/1sjvhpc/)
+- [失而复得的白月光[快穿]](https://www.hzciic.com/book/1sjvhof/)
 - [井闼山经理每天都被挖墙脚](https://www.hzciic.com/book/1sjvhnp/)
 - [阿竹与野桃](https://www.hzciic.com/book/1sjvhl7/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.hzciic.com/book/1sjvhl3/)
 - [你，后室管理员](https://www.hzciic.com/book/1sjvhkr/)
+- [原配夫人](https://www.hzciic.com/book/1sjvhkd/)
 - [星际团宠小人鱼](https://www.hzciic.com/book/1sjvhjj/)
 - [[封神]圣人生欲](https://www.hzciic.com/book/1sjvhiu/)
+- [被四皇错看成小动物后](https://www.hzciic.com/book/1sjvhim/)
 - [高调装神，猥琐发育](https://www.hzciic.com/book/1sjvhid/)
 - [直男咒术师的限制级游戏](https://www.hzciic.com/book/1sjvhgi/)
-- [女扮男装科举和皇帝撞脸了！](https://www.hzciic.com/book/1sjvhg1/)
+- [从异世界穿回来后](https://www.hzciic.com/book/1sjvhf3/)
 - [纯爱宇智波基本恋爱法](https://www.hzciic.com/book/1sjvhd6/)
-- [寻真](https://www.hzciic.com/book/1sjrtle/)
+- [某柯学的正义伙伴](https://www.hzciic.com/book/1sjsnuu/)
+- [男朋友买一送一](https://www.hzciic.com/book/1sjse35/)
+- [我有嘉宾](https://www.hzciic.com/book/1sjs9l6/)
+- [系统不许我摆烂](https://www.hzciic.com/book/6221ns/)
+- [沈助理又在隐藏他的超能力](https://www.hzciic.com/book/6221fh/)
 - [逝水](https://www.hzciic.com/book/621nnp/)
-- [青空来信](https://www.hzciic.com/book/6217n9/)
-- [这谁的沙雕二次元心声！](https://www.hzciic.com/book/6216m6/)
-- [老公是松散生命体](https://www.hzciic.com/book/6213e5/)
+- [隔壁班的松田君](https://www.hzciic.com/book/621dor/)
+- [你也没死？](https://www.hzciic.com/book/6218kb/)
 - [多梦你一会儿](https://www.hzciic.com/book/620qki/)
-- [拯救世界从扮演反派开始](https://www.hzciic.com/book/620ope/)
+- [误入反派培养直播后](https://www.hzciic.com/book/620pkt/)
 - [[足球]罗蜜第一志愿](https://www.hzciic.com/book/620nqt/)
+- [哥你不能不要我](https://www.hzciic.com/book/6203sr/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1287/index.md)

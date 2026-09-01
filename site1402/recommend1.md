@@ -1,14 +1,16 @@
 
 # 耽美小说网 - 最热门的耽美小说在线阅读
 
-更新时间：2026-09-01 03:32:08
+更新时间：2026-09-02 03:32:13
 
 耽美小说网是一个广大书友喜欢的小说网，免费为您提供热门耽美小说、女生小说、都市言情小说无弹窗在线阅读和txt下载。
 
 - [耽美小说网](https://www.nvwagen.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.nvwagen.com/book/8u4ihat/)
+- [宠妃岂敢压我！](https://www.nvwagen.com/book/8u4ioi5/)
+- [死遁后，师弟他不哄不停](https://www.nvwagen.com/book/8u4iof7/)
+- [假少爷有特殊的算命技巧](https://www.nvwagen.com/book/8u4io9j/)
 - [从维多利亚时代开始](https://www.nvwagen.com/book/8u4ifg7/)
 - [九零重组小家庭](https://www.nvwagen.com/book/8u4ia8g/)
 - [发家致富小夫郎](https://www.nvwagen.com/book/8u4i3i9/)
@@ -83,7 +85,6 @@
 - [假金丝雀深陷修罗场](https://www.nvwagen.com/book/8u4h4ai/)
 - [十福晋吃瓜日常(清穿)](https://www.nvwagen.com/book/8u4h48q/)
 - [当我穿为龙傲天的情敌](https://www.nvwagen.com/book/8u4h1p3/)
-- [社恐直播鉴宝，但带球跑](https://www.nvwagen.com/book/8u4h13e/)
 - [[综英美]让我统治哥谭！！！](https://www.nvwagen.com/book/8u4h0ik/)
 - [霓虹夏日](https://www.nvwagen.com/book/8u4gv32/)
 - [我司艺人永不塌房](https://www.nvwagen.com/book/8u4grri/)
@@ -121,7 +122,6 @@
 - [萩原警官的咒术大冒险](https://www.nvwagen.com/book/8u4fjec/)
 - [满级大佬制霸热血运动番](https://www.nvwagen.com/book/8u4fjcl/)
 - [如果时光不记得](https://www.nvwagen.com/book/8u4fj65/)
-- [我有特殊的升官技巧](https://www.nvwagen.com/book/8u4fj40/)
 - [穿越废星，我靠种田求生](https://www.nvwagen.com/book/8u4fiqr/)
 - [反派人生，易如反掌[快穿]](https://www.nvwagen.com/book/8u4fiii/)
 - [我真的只会Ctrl啊！！！](https://www.nvwagen.com/book/8u4fii5/)
@@ -135,14 +135,12 @@
 - [这男人该死的甜美](https://www.nvwagen.com/book/8u4fa9f/)
 - [红楼之霸总他被迫拯救女主角](https://www.nvwagen.com/book/8u4fa0l/)
 - [恶犬攻绑定上司的乖狗系统](https://www.nvwagen.com/book/8u4f9e8/)
+- [绝不会喜欢五条君的！](https://www.nvwagen.com/book/8u4f7h7/)
 - [绿茶病秧子骗他说喜欢](https://www.nvwagen.com/book/8u4f75p/)
 - [把清冷权臣调成荡夫后](https://www.nvwagen.com/book/8u4f6ht/)
 - [我真的没想在选秀炒CP](https://www.nvwagen.com/book/8u4f2s3/)
-- [养父](https://www.nvwagen.com/book/8u4f1uo/)
 - [欢迎来到纳萨力克丧葬公司](https://www.nvwagen.com/book/8u4f093/)
 - [[群穿]我在御兽番抢人气](https://www.nvwagen.com/book/8u4evuh/)
-- [在医院旧楼捡到个外科鼻祖](https://www.nvwagen.com/book/8u4evi9/)
-- [卧底后被港岛大小姐缠上了](https://www.nvwagen.com/book/8u4e4pe/)
 - [假少爷不想活了](https://www.nvwagen.com/book/8u4e4or/)
 - [穿成炮灰后我封神了［快穿］](https://www.nvwagen.com/book/8u4e4om/)
 - [古代种田养娃日常](https://www.nvwagen.com/book/8u4e4i1/)
@@ -154,11 +152,9 @@
 - [猫猫也要养家糊口](https://www.nvwagen.com/book/8u4e3jq/)
 - [我有一座安全城](https://www.nvwagen.com/book/8u4e3e5/)
 - [在民俗惊悚片被诸神庇护](https://www.nvwagen.com/book/8u4e3dp/)
-- [替嫁后咸鱼继母佛系日常](https://www.nvwagen.com/book/8u4e3bh/)
 - [[娱乐圈]过分美丽的她](https://www.nvwagen.com/book/8u4e3ab/)
 - [日化人生[科研]](https://www.nvwagen.com/book/8u4e35d/)
 - [御兽师，我打工养你啊](https://www.nvwagen.com/book/8u4e350/)
-- [人妻O救赎指南](https://www.nvwagen.com/book/8u4e2vi/)
 - [清澈女大的六零年代](https://www.nvwagen.com/book/8u4e2uq/)
 - [星际团宠小人鱼](https://www.nvwagen.com/book/8u4e2tj/)
 - [高调装神，猥琐发育](https://www.nvwagen.com/book/8u4e2sf/)
@@ -167,14 +163,12 @@
 - [大瑛弟国](https://www.nvwagen.com/book/8u4e2ei/)
 - [成为养成系练习生后](https://www.nvwagen.com/book/8u4e2dr/)
 - [趁她之危](https://www.nvwagen.com/book/8u4e28h/)
-- [警察，但犯罪大师系统[刑侦]](https://www.nvwagen.com/book/8u4e20q/)
 - [六零之成了卷王的妹妹](https://www.nvwagen.com/book/8u4e20b/)
 - [高门小婢](https://www.nvwagen.com/book/8u4e1vm/)
 - [我是唯一地上神国](https://www.nvwagen.com/book/8u4e1tr/)
 - [五十年代港城日常](https://www.nvwagen.com/book/8u4e1te/)
 - [九零首富的替嫁小媳妇](https://www.nvwagen.com/book/8u4e1r9/)
 - [为诡异打工，但反封建迷信](https://www.nvwagen.com/book/8u4e1qs/)
-- [如何扮演源氏重宝](https://www.nvwagen.com/book/8u4e1ot/)
 - [千禧年，拆迁分了十栋楼！](https://www.nvwagen.com/book/8u4e1l1/)
 ## 相关内容
 - [README](/README.md)

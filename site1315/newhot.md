@@ -1,31 +1,38 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-09-01 03:30:17
+更新时间：2026-09-02 03:30:21
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
 - [连载小说网](https://www.lianzai007.com/)
 
 ## 最新小说
+- [躲避原书剧情五年后](https://www.lianzai007.com/book/6g3n1is/)
+- [失而复得的白月光[快穿]](https://www.lianzai007.com/book/6g3n1h2/)
 - [阿竹与野桃](https://www.lianzai007.com/book/6g3n1gc/)
 - [井闼山经理每天都被挖墙脚](https://www.lianzai007.com/book/6g3n1g6/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.lianzai007.com/book/6g3n1fp/)
 - [[封神]圣人生欲](https://www.lianzai007.com/book/6g3n1ej/)
 - [星际团宠小人鱼](https://www.lianzai007.com/book/6g3n1eg/)
+- [原配夫人](https://www.lianzai007.com/book/6g3n1dm/)
+- [被四皇错看成小动物后](https://www.lianzai007.com/book/6g3n1da/)
 - [你，后室管理员](https://www.lianzai007.com/book/6g3n1d5/)
 - [高调装神，猥琐发育](https://www.lianzai007.com/book/6g3n1cj/)
 - [纯爱宇智波基本恋爱法](https://www.lianzai007.com/book/6g3n1c3/)
+- [从异世界穿回来后](https://www.lianzai007.com/book/6g3n1ap/)
 - [直男咒术师的限制级游戏](https://www.lianzai007.com/book/6g3n1ad/)
-- [女扮男装科举和皇帝撞脸了！](https://www.lianzai007.com/book/6g3n17n/)
-- [寻真](https://www.lianzai007.com/book/6g3jb80/)
+- [某柯学的正义伙伴](https://www.lianzai007.com/book/6g3k8h6/)
+- [男朋友买一送一](https://www.lianzai007.com/book/6g3jtk9/)
+- [我有嘉宾](https://www.lianzai007.com/book/6g3jl8b/)
+- [沈助理又在隐藏他的超能力](https://www.lianzai007.com/book/kq16tu/)
+- [系统不许我摆烂](https://www.lianzai007.com/book/kq14ja/)
 - [逝水](https://www.lianzai007.com/book/kq0sd4/)
-- [青空来信](https://www.lianzai007.com/book/kq0bb2/)
-- [这谁的沙雕二次元心声！](https://www.lianzai007.com/book/kq0b8s/)
-- [老公是松散生命体](https://www.lianzai007.com/book/kq09km/)
+- [隔壁班的松田君](https://www.lianzai007.com/book/kq0h7b/)
+- [你也没死？](https://www.lianzai007.com/book/kq0c8j/)
+- [误入反派培养直播后](https://www.lianzai007.com/book/kq007m/)
 - [多梦你一会儿](https://www.lianzai007.com/book/kpvtdh/)
-- [拯救世界从扮演反派开始](https://www.lianzai007.com/book/kpvsqs/)
 - [[足球]罗蜜第一志愿](https://www.lianzai007.com/book/kpvrdj/)
+- [哥你不能不要我](https://www.lianzai007.com/book/kpvare/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1315/index.md)

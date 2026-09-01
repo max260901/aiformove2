@@ -1,15 +1,17 @@
 
 # 云南野人山野小说网 - 创意小说与文学作品分享平台
 
-更新时间：2026-09-01 03:42:55
+更新时间：2026-09-02 03:43:09
 
 欢迎来到云南野人山野小说网 - 专注于创意小说和文学作品分享的在线平台。探索精选的小说系列及文学佳作，加入我们，与众多才华横溢的作者交流心得，共同创造美好的阅读旅程。
 
 - [云南野人山野小说网](https://www.ynyrsy.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.ynyrsy.com/book/dfds9u/)
+- [宠妃岂敢压我！](https://www.ynyrsy.com/book/dfdulh/)
+- [死遁后，师弟他不哄不停](https://www.ynyrsy.com/book/dfdujb/)
 - [发家致富小夫郎](https://www.ynyrsy.com/book/dfdmgf/)
+- [假少爷有特殊的算命技巧](https://www.ynyrsy.com/book/dfdiji/)
 - [九零重组小家庭](https://www.ynyrsy.com/book/dfdi8l/)
 - [和光太郎谈恋爱](https://www.ynyrsy.com/book/dfdhs4/)
 - [[原神+崩铁]在提瓦特隐居也未尝不可](https://www.ynyrsy.com/book/dfdhs0/)
@@ -68,10 +70,7 @@
 - [神豪文男主是我爸](https://www.ynyrsy.com/book/dfddpj/)
 - [我真的只会Ctrl啊！！！](https://www.ynyrsy.com/book/dfdbvs/)
 - [从维多利亚时代开始](https://www.ynyrsy.com/book/dfd5jv/)
-- [我有特殊的升官技巧](https://www.ynyrsy.com/book/dfd2jr/)
 - [反派人生，易如反掌[快穿]](https://www.ynyrsy.com/book/dfcv8d/)
-- [人妻O救赎指南](https://www.ynyrsy.com/book/dfcna3/)
-- [养父](https://www.ynyrsy.com/book/dfcn9t/)
 - [摄政王家的咸鱼夫郎](https://www.ynyrsy.com/book/dfc9vp/)
 - [绿叶](https://www.ynyrsy.com/book/dfc92d/)
 - [枕边热吻](https://www.ynyrsy.com/book/dfc8va/)
@@ -88,7 +87,6 @@
 - [高嫁之后](https://www.ynyrsy.com/book/dfbo5j/)
 - [当我穿为龙傲天的情敌](https://www.ynyrsy.com/book/dfbmom/)
 - [假金丝雀深陷修罗场](https://www.ynyrsy.com/book/dfbm9f/)
-- [社恐直播鉴宝，但带球跑](https://www.ynyrsy.com/book/dfbm2h/)
 - [[全职高手]霸图老板是叶修](https://www.ynyrsy.com/book/dfbm18/)
 - [[综英美]让我统治哥谭！！！](https://www.ynyrsy.com/book/dfbhvj/)
 - [养成游戏，但破解版](https://www.ynyrsy.com/book/dfbgik/)
@@ -135,15 +133,14 @@
 - [红楼之霸总他被迫拯救女主角](https://www.ynyrsy.com/book/df9uda/)
 - [搭档，一起来玩求生游戏吧！](https://www.ynyrsy.com/book/df9u1b/)
 - [满级大佬制霸热血运动番](https://www.ynyrsy.com/book/df9tsr/)
+- [绝不会喜欢五条君的！](https://www.ynyrsy.com/book/df9tmd/)
 - [暴君偏头痛](https://www.ynyrsy.com/book/df9s6m/)
 - [绿茶病秧子骗他说喜欢](https://www.ynyrsy.com/book/df9s25/)
 - [我真的没想在选秀炒CP](https://www.ynyrsy.com/book/df9q1g/)
 - [把清冷权臣调成荡夫后](https://www.ynyrsy.com/book/df9pe6/)
 - [[群穿]我在御兽番抢人气](https://www.ynyrsy.com/book/df9ng1/)
 - [欢迎来到纳萨力克丧葬公司](https://www.ynyrsy.com/book/df9m6s/)
-- [在医院旧楼捡到个外科鼻祖](https://www.ynyrsy.com/book/df9l4u/)
 - [我，恶女，在线搞事](https://www.ynyrsy.com/book/df9j9p/)
-- [卧底后被港岛大小姐缠上了](https://www.ynyrsy.com/book/df8qh4/)
 - [高门小婢](https://www.ynyrsy.com/book/df8qds/)
 - [海岛求生：生活玩家种田囤货](https://www.ynyrsy.com/book/df8q3p/)
 - [我是唯一地上神国](https://www.ynyrsy.com/book/df8q3n/)
@@ -155,17 +152,14 @@
 - [御兽师，我打工养你啊](https://www.ynyrsy.com/book/df8pbg/)
 - [95美国贵族高中模拟](https://www.ynyrsy.com/book/df8p7b/)
 - [九零首富的替嫁小媳妇](https://www.ynyrsy.com/book/df8p6k/)
-- [如何扮演源氏重宝](https://www.ynyrsy.com/book/df8p1l/)
 - [星际团宠小人鱼](https://www.ynyrsy.com/book/df8otm/)
 - [五十年代港城日常](https://www.ynyrsy.com/book/df8oqe/)
-- [警察，但犯罪大师系统[刑侦]](https://www.ynyrsy.com/book/df8oor/)
 - [穿成炮灰后我封神了［快穿］](https://www.ynyrsy.com/book/df8onk/)
 - [高调装神，猥琐发育](https://www.ynyrsy.com/book/df8olq/)
 - [十九世纪贵族厨房（美食）](https://www.ynyrsy.com/book/df8oil/)
 - [清澈女大的六零年代](https://www.ynyrsy.com/book/df8ob1/)
 - [全民求生:从小木屋到魔法农场](https://www.ynyrsy.com/book/df8o6o/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ynyrsy.com/book/df8o6n/)
-- [替嫁后咸鱼继母佛系日常](https://www.ynyrsy.com/book/df8o69/)
 - [大瑛弟国](https://www.ynyrsy.com/book/df8o3h/)
 - [日化人生[科研]](https://www.ynyrsy.com/book/df8nu0/)
 - [成为养成系练习生后](https://www.ynyrsy.com/book/df8npu/)

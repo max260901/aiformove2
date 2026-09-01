@@ -1,7 +1,7 @@
 
 # 爱阅读-最新优质免费无弹窗小说在线阅读
 
-更新时间：2026-09-01 03:43:42
+更新时间：2026-09-02 03:43:56
 
 爱阅读提供清爽干净、页面整洁没弹窗的网络小说阅读体验。这里有大量的免费小说、完本小说供您选择，包括热门言情小说、玄幻小说、仙侠小说等多种类型。是广大书友必备的纯绿色小说阅读网站。
 
@@ -9,31 +9,40 @@
 
 ## 最新小说
 - [阿竹与野桃](https://www.yuedu788.com/book/1on6v3r/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yuedu788.com/book/1on6v27/)
+- [从异世界穿回来后](https://www.yuedu788.com/book/1on6qo9/)
+- [我有嘉宾](https://www.yuedu788.com/book/1on6qff/)
+- [原配夫人](https://www.yuedu788.com/book/1on5vti/)
 - [你，后室管理员](https://www.yuedu788.com/book/1on5vqp/)
 - [星际团宠小人鱼](https://www.yuedu788.com/book/1on5von/)
 - [高调装神，猥琐发育](https://www.yuedu788.com/book/1on5om4/)
+- [男朋友买一送一](https://www.yuedu788.com/book/1on5csm/)
+- [失而复得的白月光[快穿]](https://www.yuedu788.com/book/1on594r/)
+- [躲避原书剧情五年后](https://www.yuedu788.com/book/1on54ja/)
 - [如何正确哄睡暴君](https://www.yuedu788.com/book/1on54f7/)
+- [你也没死？](https://www.yuedu788.com/book/1on4tuj/)
 - [逝水](https://www.yuedu788.com/book/1on4te4/)
-- [寻真](https://www.yuedu788.com/book/1on4rvn/)
-- [老公是松散生命体](https://www.yuedu788.com/book/1on4luj/)
+- [我不可能舔一个漂亮捞子](https://www.yuedu788.com/book/1on4sgj/)
+- [被鬼怪宠爱的漂亮书生](https://www.yuedu788.com/book/1on4o8o/)
+- [沈助理又在隐藏他的超能力](https://www.yuedu788.com/book/1on4n90/)
 - [微臣怜惜公主](https://www.yuedu788.com/book/1on4kha/)
+- [系统不许我摆烂](https://www.yuedu788.com/book/1on4grv/)
+- [误入反派培养直播后](https://www.yuedu788.com/book/1on4ba6/)
 - [炮灰的我该如何上位？](https://www.yuedu788.com/book/1on46a2/)
+- [被四皇错看成小动物后](https://www.yuedu788.com/book/1on464m/)
+- [哥你不能不要我](https://www.yuedu788.com/book/1on45gl/)
 - [多梦你一会儿](https://www.yuedu788.com/book/1on44bq/)
 - [[封神]圣人生欲](https://www.yuedu788.com/book/1on44b3/)
-- [这谁的沙雕二次元心声！](https://www.yuedu788.com/book/1on438o/)
-- [善逸拒绝成为咒术师](https://www.yuedu788.com/book/1on42d1/)
+- [隔壁班的松田君](https://www.yuedu788.com/book/1on3u47/)
+- [某柯学的正义伙伴](https://www.yuedu788.com/book/1on3tsf/)
 - [[足球]罗蜜第一志愿](https://www.yuedu788.com/book/1on3tnn/)
-- [青空来信](https://www.yuedu788.com/book/1on3t0m/)
 - [井闼山经理每天都被挖墙脚](https://www.yuedu788.com/book/1on3opm/)
 - [[足球]小小鸟堂堂来袭](https://www.yuedu788.com/book/1on3fmp/)
+- [侯府打工人](https://www.yuedu788.com/book/1on3a63/)
 - [法外狂猫](https://www.yuedu788.com/book/1on3a4t/)
 - [好兄弟暴富后非要跟我结婚](https://www.yuedu788.com/book/1on39ph/)
-- [关于我虚构了一个男友这件事](https://www.yuedu788.com/book/1on36l1/)
+- [我，剑圣，养生中，勿扰](https://www.yuedu788.com/book/1on38fm/)
 - [和室友他爸恋爱后](https://www.yuedu788.com/book/1on2vhn/)
-- [拯救世界从扮演反派开始](https://www.yuedu788.com/book/1on1q8j/)
 - [纯爱宇智波基本恋爱法](https://www.yuedu788.com/book/1on1ojk/)
-- [女扮男装科举和皇帝撞脸了！](https://www.yuedu788.com/book/1on1nsq/)
 - [直男咒术师的限制级游戏](https://www.yuedu788.com/book/1on1no0/)
 ## 相关内容
 - [README](/README.md)

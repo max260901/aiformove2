@@ -1,41 +1,51 @@
 
 # 牛魔王JJ电子书 - 小说阅读网, 全本免费完结小说在线阅读及下载
 
-更新时间：2026-09-01 03:31:54
+更新时间：2026-09-02 03:31:59
 
 牛魔王JJ电子书提供精彩小说阅读服务，包括各种类型的小说排行榜、免费好看的小说等。涵盖穿越小说、都市小说、言情小说、玄幻小说等多种类别，支持全本全集完结小说在线阅读以及TXT下载。
 
 - [牛魔王JJ电子书](https://www.nmwjj.com/)
 
 ## 最新小说
+- [从异世界穿回来后](https://www.nmwjj.com/book/18cj530/)
+- [我有嘉宾](https://www.nmwjj.com/book/18cj4ir/)
 - [阿竹与野桃](https://www.nmwjj.com/book/18citke/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.nmwjj.com/book/18citjm/)
+- [躲避原书剧情五年后](https://www.nmwjj.com/book/18chqei/)
+- [男朋友买一送一](https://www.nmwjj.com/book/18chprh/)
+- [失而复得的白月光[快穿]](https://www.nmwjj.com/book/18chpdj/)
 - [如何正确哄睡暴君](https://www.nmwjj.com/book/18chht8/)
+- [被鬼怪宠爱的漂亮书生](https://www.nmwjj.com/book/18chg2q/)
 - [逝水](https://www.nmwjj.com/book/18chc52/)
-- [老公是松散生命体](https://www.nmwjj.com/book/18ch9qj/)
-- [寻真](https://www.nmwjj.com/book/18ch865/)
+- [我不可能舔一个漂亮捞子](https://www.nmwjj.com/book/18chc2d/)
+- [你也没死？](https://www.nmwjj.com/book/18chbbf/)
 - [微臣怜惜公主](https://www.nmwjj.com/book/18ch4ma/)
-- [女扮男装科举和皇帝撞脸了！](https://www.nmwjj.com/book/18cgvfp/)
+- [沈助理又在隐藏他的超能力](https://www.nmwjj.com/book/18ch2ej/)
+- [哥你不能不要我](https://www.nmwjj.com/book/18ch0vf/)
+- [系统不许我摆烂](https://www.nmwjj.com/book/18cgu4e/)
 - [直男咒术师的限制级游戏](https://www.nmwjj.com/book/18cgolp/)
 - [多梦你一会儿](https://www.nmwjj.com/book/18cgld5/)
-- [这谁的沙雕二次元心声！](https://www.nmwjj.com/book/18cglbq/)
 - [炮灰的我该如何上位？](https://www.nmwjj.com/book/18cgl0v/)
 - [穿为清冷影后的污点A](https://www.nmwjj.com/book/18cgjfg/)
-- [善逸拒绝成为咒术师](https://www.nmwjj.com/book/18cgfsf/)
 - [井闼山经理每天都被挖墙脚](https://www.nmwjj.com/book/18cgf7v/)
-- [拯救世界从扮演反派开始](https://www.nmwjj.com/book/18cgdu7/)
 - [[足球]罗蜜第一志愿](https://www.nmwjj.com/book/18cgcfg/)
-- [青空来信](https://www.nmwjj.com/book/18cg7fp/)
+- [隔壁班的松田君](https://www.nmwjj.com/book/18cgc51/)
+- [侯府打工人](https://www.nmwjj.com/book/18cg97o/)
+- [某柯学的正义伙伴](https://www.nmwjj.com/book/18cg6u5/)
+- [撕毁女配剧本的我被神之子读心了](https://www.nmwjj.com/book/18cg33l/)
 - [[足球]小小鸟堂堂来袭](https://www.nmwjj.com/book/18cg16g/)
 - [法外狂猫](https://www.nmwjj.com/book/18cg0a1/)
 - [好兄弟暴富后非要跟我结婚](https://www.nmwjj.com/book/18cft44/)
-- [关于我虚构了一个男友这件事](https://www.nmwjj.com/book/18cfq5m/)
+- [我，剑圣，养生中，勿扰](https://www.nmwjj.com/book/18cfr00/)
 - [和室友他爸恋爱后](https://www.nmwjj.com/book/18cfp7f/)
 - [你，后室管理员](https://www.nmwjj.com/book/18ce6ep/)
 - [[封神]圣人生欲](https://www.nmwjj.com/book/18ce5p4/)
+- [原配夫人](https://www.nmwjj.com/book/18ce5no/)
 - [纯爱宇智波基本恋爱法](https://www.nmwjj.com/book/18ce5ls/)
+- [误入反派培养直播后](https://www.nmwjj.com/book/18ce594/)
 - [星际团宠小人鱼](https://www.nmwjj.com/book/18ce52v/)
 - [高调装神，猥琐发育](https://www.nmwjj.com/book/18ce4lp/)
+- [被四皇错看成小动物后](https://www.nmwjj.com/book/18ce4g3/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1377/index.md)

@@ -1,14 +1,15 @@
 
 # 笔架中文小说_书友必备的无弹窗小说阅读网
 
-更新时间：2026-09-01 03:21:47
+更新时间：2026-09-02 03:21:51
 
 笔架中文小说致力于打造国内最权威免费小说阅读网, 提供小说在线阅读, 小说TXT下载, 网站页面清爽简洁是广大网络小说爱好者必备的小说阅读网。
 
 - [笔架中文小说](https://www.bijia188.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.bijia188.com/book/6tolh5t/)
+- [宠妃岂敢压我！](https://www.bijia188.com/book/6toljjp/)
+- [死遁后，师弟他不哄不停](https://www.bijia188.com/book/6toljik/)
 - [发家致富小夫郎](https://www.bijia188.com/book/6tolcj4/)
 - [[希腊神话]诸神都是我学生](https://www.bijia188.com/book/6tolab1/)
 - [师姐她怎么还不来追求我](https://www.bijia188.com/book/6tolab0/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.bijia188.com/book/6tol7s0/)
 - [灭世龙崽有什么错](https://www.bijia188.com/book/6tol0tl/)
 - [九零重组小家庭](https://www.bijia188.com/book/6tokv1s/)
-- [人妻O救赎指南](https://www.bijia188.com/book/6toku07/)
-- [养父](https://www.bijia188.com/book/6toktun/)
+- [假少爷有特殊的算命技巧](https://www.bijia188.com/book/6toku5j/)
 - [在虫族世界逃命升级](https://www.bijia188.com/book/6tokqgk/)
 - [神豪文男主是我爸](https://www.bijia188.com/book/6tokpnj/)
 - [从维多利亚时代开始](https://www.bijia188.com/book/6tokgmh/)
-- [我有特殊的升官技巧](https://www.bijia188.com/book/6tokdoh/)
 - [十九世纪贵族厨房（美食）](https://www.bijia188.com/book/6tokb1l/)
 - [星际团宠小人鱼](https://www.bijia188.com/book/6tokb0f/)
 - [反派人生，易如反掌[快穿]](https://www.bijia188.com/book/6tokabm/)
@@ -91,13 +90,11 @@
 - [十福晋吃瓜日常(清穿)](https://www.bijia188.com/book/6toj3cq/)
 - [在民俗惊悚片被诸神庇护](https://www.bijia188.com/book/6toj33m/)
 - [当我穿为龙傲天的情敌](https://www.bijia188.com/book/6toj2qe/)
-- [社恐直播鉴宝，但带球跑](https://www.bijia188.com/book/6toj157/)
 - [假金丝雀深陷修罗场](https://www.bijia188.com/book/6toj0hi/)
 - [当菟丝花要分手后](https://www.bijia188.com/book/6toivsu/)
 - [[全职高手]霸图老板是叶修](https://www.bijia188.com/book/6toivj3/)
 - [养成游戏，但破解版](https://www.bijia188.com/book/6toipld/)
 - [霓虹夏日](https://www.bijia188.com/book/6toindk/)
-- [替嫁后咸鱼继母佛系日常](https://www.bijia188.com/book/6toijsr/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.bijia188.com/book/6toihq1/)
 - [[综英美]让我统治哥谭！！！](https://www.bijia188.com/book/6toih79/)
 - [八零恶毒后妈杀疯了](https://www.bijia188.com/book/6toidef/)
@@ -146,7 +143,6 @@
 - [我不是御兽大师](https://www.bijia188.com/book/6toh890/)
 - [徐娘子的美食发家日常](https://www.bijia188.com/book/6toh4nf/)
 - [我真的没想在选秀炒CP](https://www.bijia188.com/book/6toh4bu/)
-- [在医院旧楼捡到个外科鼻祖](https://www.bijia188.com/book/6toh22b/)
 - [把清冷权臣调成荡夫后](https://www.bijia188.com/book/6toh1kg/)
 - [[群穿]我在御兽番抢人气](https://www.bijia188.com/book/6toh1ho/)
 - [科学主义魔法学院](https://www.bijia188.com/book/6tog5l2/)
@@ -157,13 +153,11 @@
 - [古代种田养娃日常](https://www.bijia188.com/book/6tog4o5/)
 - [清澈女大的六零年代](https://www.bijia188.com/book/6tog4ek/)
 - [全民求生:从小木屋到魔法农场](https://www.bijia188.com/book/6tog4a1/)
-- [警察，但犯罪大师系统[刑侦]](https://www.bijia188.com/book/6tog48c/)
 - [假少爷不想活了](https://www.bijia188.com/book/6tog46n/)
 - [御兽师，我打工养你啊](https://www.bijia188.com/book/6tog46b/)
 - [我有一座安全城](https://www.bijia188.com/book/6tog44v/)
 - [猫猫也要养家糊口](https://www.bijia188.com/book/6tog43v/)
 - [高嫁之后](https://www.bijia188.com/book/6tog42v/)
-- [卧底后被港岛大小姐缠上了](https://www.bijia188.com/book/6tog42h/)
 - [六零之成了卷王的妹妹](https://www.bijia188.com/book/6tog3vm/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.bijia188.com/book/6tog3lg/)
 - [我是唯一地上神国](https://www.bijia188.com/book/6tog3i4/)
@@ -171,8 +165,8 @@
 - [95美国贵族高中模拟](https://www.bijia188.com/book/6tog3ch/)
 - [大瑛弟国](https://www.bijia188.com/book/6tog3aa/)
 - [千禧年，拆迁分了十栋楼！](https://www.bijia188.com/book/6tog35s/)
+- [绝不会喜欢五条君的！](https://www.bijia188.com/book/6tog32h/)
 - [高门小婢](https://www.bijia188.com/book/6tog2n0/)
-- [如何扮演源氏重宝](https://www.bijia188.com/book/6tog2l3/)
 - [巨物致富：回乡开钓场](https://www.bijia188.com/book/6tog2kh/)
 - [成为养成系练习生后](https://www.bijia188.com/book/6tog2gr/)
 - [五十年代港城日常](https://www.bijia188.com/book/6tog2fk/)

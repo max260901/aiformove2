@@ -1,14 +1,15 @@
 
 # 看居中文网_免费小说在线阅读|无弹窗广告值得收藏
 
-更新时间：2026-09-01 03:28:10
+更新时间：2026-09-02 03:28:14
 
 看居中文网是最热门的免费小说网站，提供包括但不限于玄幻、都市、言情等多种类型的小说在线阅读服务。本站实时更新小说最新章节列表，拥有全面的小说排行榜，致力于为读者提供一个干净舒适的阅读环境，无弹窗广告干扰，是您寻找好书的理想之地。
 
 - [看居中文网](https://www.kanju688.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.kanju688.com/book/pb05of/)
+- [死遁后，师弟他不哄不停](https://www.kanju688.com/book/pb085o/)
+- [宠妃岂敢压我！](https://www.kanju688.com/book/pb085h/)
 - [发家致富小夫郎](https://www.kanju688.com/book/pb015s/)
 - [异种新婚报告](https://www.kanju688.com/book/pavut0/)
 - [在千禧年的伦敦当女巫](https://www.kanju688.com/book/pavusr/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.kanju688.com/book/pavse6/)
 - [灭世龙崽有什么错](https://www.kanju688.com/book/pavlgr/)
 - [九零重组小家庭](https://www.kanju688.com/book/pavjpi/)
-- [人妻O救赎指南](https://www.kanju688.com/book/pavigt/)
-- [养父](https://www.kanju688.com/book/pavif5/)
+- [假少爷有特殊的算命技巧](https://www.kanju688.com/book/paving/)
 - [在虫族世界逃命升级](https://www.kanju688.com/book/pavf1i/)
 - [神豪文男主是我爸](https://www.kanju688.com/book/pave41/)
 - [从维多利亚时代开始](https://www.kanju688.com/book/pav5ej/)
-- [我有特殊的升官技巧](https://www.kanju688.com/book/pav2jm/)
 - [十九世纪贵族厨房（美食）](https://www.kanju688.com/book/pauvds/)
 - [星际团宠小人鱼](https://www.kanju688.com/book/pauvdd/)
 - [反派人生，易如反掌[快穿]](https://www.kanju688.com/book/pauv0b/)
@@ -91,13 +90,11 @@
 - [不当救世主就要当人类恶了吗](https://www.kanju688.com/book/patnoc/)
 - [当我穿为龙傲天的情敌](https://www.kanju688.com/book/patnj2/)
 - [十福晋吃瓜日常(清穿)](https://www.kanju688.com/book/patn4k/)
-- [社恐直播鉴宝，但带球跑](https://www.kanju688.com/book/patl8b/)
 - [假金丝雀深陷修罗场](https://www.kanju688.com/book/patkfn/)
 - [[全职高手]霸图老板是叶修](https://www.kanju688.com/book/patk35/)
 - [当菟丝花要分手后](https://www.kanju688.com/book/patiu8/)
 - [养成游戏，但破解版](https://www.kanju688.com/book/patddp/)
 - [霓虹夏日](https://www.kanju688.com/book/patbfm/)
-- [替嫁后咸鱼继母佛系日常](https://www.kanju688.com/book/pat733/)
 - [[综英美]让我统治哥谭！！！](https://www.kanju688.com/book/pat64q/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.kanju688.com/book/pat4da/)
 - [米花无刁民](https://www.kanju688.com/book/pat31f/)
@@ -147,7 +144,6 @@
 - [我真的没想在选秀炒CP](https://www.kanju688.com/book/parott/)
 - [徐娘子的美食发家日常](https://www.kanju688.com/book/paroee/)
 - [[群穿]我在御兽番抢人气](https://www.kanju688.com/book/parne7/)
-- [在医院旧楼捡到个外科鼻祖](https://www.kanju688.com/book/parmar/)
 - [把清冷权臣调成荡夫后](https://www.kanju688.com/book/parl7f/)
 - [假少爷不想活了](https://www.kanju688.com/book/paqppu/)
 - [[娱乐圈]过分美丽的她](https://www.kanju688.com/book/paqppb/)
@@ -157,12 +153,10 @@
 - [我有一座安全城](https://www.kanju688.com/book/paqpgg/)
 - [刑部的小衙门](https://www.kanju688.com/book/paqpg2/)
 - [日化人生[科研]](https://www.kanju688.com/book/paqpe1/)
-- [如何扮演源氏重宝](https://www.kanju688.com/book/paqp3t/)
+- [绝不会喜欢五条君的！](https://www.kanju688.com/book/paqp41/)
 - [成为养成系练习生后](https://www.kanju688.com/book/paqor8/)
 - [穿成炮灰后我封神了［快穿］](https://www.kanju688.com/book/paqoqo/)
-- [卧底后被港岛大小姐缠上了](https://www.kanju688.com/book/paqonm/)
 - [海岛求生：生活玩家种田囤货](https://www.kanju688.com/book/paqomg/)
-- [警察，但犯罪大师系统[刑侦]](https://www.kanju688.com/book/paqolt/)
 - [科学主义魔法学院](https://www.kanju688.com/book/paqol3/)
 - [95美国贵族高中模拟](https://www.kanju688.com/book/paqob4/)
 - [六零之成了卷王的妹妹](https://www.kanju688.com/book/paqo70/)

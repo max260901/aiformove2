@@ -1,40 +1,48 @@
 
 # 武侠文学网 - 值得收藏的小说阅读平台
 
-更新时间：2026-09-01 03:40:37
+更新时间：2026-09-02 03:40:52
 
 武侠文学网为您提供丰富多样的小说资源，在这里您可以找到最新最热门的小说作品。无论是经典文学还是现代流行小说，都是您值得收藏的阅读选择。
 
 - [武侠文学网](https://www.wuxia988.com/)
 
 ## 最新小说
-- [我的烧烤摊超美味[美食]](https://www.wuxia988.com/book/1ms2s89/)
 - [阿竹与野桃](https://www.wuxia988.com/book/1ms2s73/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wuxia988.com/book/1ms2s5j/)
+- [从异世界穿回来后](https://www.wuxia988.com/book/1ms2ntr/)
+- [我有嘉宾](https://www.wuxia988.com/book/1ms2njr/)
 - [你，后室管理员](https://www.wuxia988.com/book/1ms1stu/)
 - [星际团宠小人鱼](https://www.wuxia988.com/book/1ms1sq3/)
+- [原配夫人](https://www.wuxia988.com/book/1ms1soi/)
 - [高调装神，猥琐发育](https://www.wuxia988.com/book/1ms1lnv/)
+- [男朋友买一送一](https://www.wuxia988.com/book/1ms1bc2/)
+- [失而复得的白月光[快穿]](https://www.wuxia988.com/book/1ms15tq/)
+- [躲避原书剧情五年后](https://www.wuxia988.com/book/1ms12fm/)
 - [如何正确哄睡暴君](https://www.wuxia988.com/book/1ms122q/)
+- [我不可能舔一个漂亮捞子](https://www.wuxia988.com/book/1ms0qj3/)
 - [逝水](https://www.wuxia988.com/book/1ms0pn7/)
-- [寻真](https://www.wuxia988.com/book/1ms0p9v/)
-- [老公是松散生命体](https://www.wuxia988.com/book/1ms0itq/)
+- [你也没死？](https://www.wuxia988.com/book/1ms0pb7/)
+- [被鬼怪宠爱的漂亮书生](https://www.wuxia988.com/book/1ms0l8m/)
+- [沈助理又在隐藏他的超能力](https://www.wuxia988.com/book/1ms0khm/)
 - [微臣怜惜公主](https://www.wuxia988.com/book/1ms0fnr/)
+- [系统不许我摆烂](https://www.wuxia988.com/book/1ms0cq0/)
+- [误入反派培养直播后](https://www.wuxia988.com/book/1ms07vf/)
+- [哥你不能不要我](https://www.wuxia988.com/book/1ms03qo/)
+- [被四皇错看成小动物后](https://www.wuxia988.com/book/1ms03ls/)
 - [多梦你一会儿](https://www.wuxia988.com/book/1ms03f6/)
 - [[封神]圣人生欲](https://www.wuxia988.com/book/1ms020t/)
 - [炮灰的我该如何上位？](https://www.wuxia988.com/book/1ms0127/)
-- [这谁的沙雕二次元心声！](https://www.wuxia988.com/book/1ms00s7/)
-- [善逸拒绝成为咒术师](https://www.wuxia988.com/book/1ms00o5/)
+- [隔壁班的松田君](https://www.wuxia988.com/book/1mrvs96/)
 - [[足球]罗蜜第一志愿](https://www.wuxia988.com/book/1mrvqg0/)
-- [青空来信](https://www.wuxia988.com/book/1mrvq7j/)
+- [某柯学的正义伙伴](https://www.wuxia988.com/book/1mrvpkj/)
 - [井闼山经理每天都被挖墙脚](https://www.wuxia988.com/book/1mrvn6h/)
 - [[足球]小小鸟堂堂来袭](https://www.wuxia988.com/book/1mrvec2/)
 - [法外狂猫](https://www.wuxia988.com/book/1mrv92r/)
 - [好兄弟暴富后非要跟我结婚](https://www.wuxia988.com/book/1mrv8pb/)
-- [关于我虚构了一个男友这件事](https://www.wuxia988.com/book/1mrv5h9/)
+- [侯府打工人](https://www.wuxia988.com/book/1mrv89e/)
+- [我，剑圣，养生中，勿扰](https://www.wuxia988.com/book/1mrv4rn/)
 - [和室友他爸恋爱后](https://www.wuxia988.com/book/1mrus0m/)
-- [女扮男装科举和皇帝撞脸了！](https://www.wuxia988.com/book/1mrtn45/)
 - [纯爱宇智波基本恋爱法](https://www.wuxia988.com/book/1mrtmlq/)
-- [拯救世界从扮演反派开始](https://www.wuxia988.com/book/1mrtmi5/)
 - [直男咒术师的限制级游戏](https://www.wuxia988.com/book/1mrtltr/)
 ## 相关内容
 - [README](/README.md)
