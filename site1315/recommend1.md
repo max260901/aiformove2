@@ -1,14 +1,15 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-09-01 03:30:17
+更新时间：2026-09-02 03:30:21
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
 - [连载小说网](https://www.lianzai007.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.lianzai007.com/book/6g3n1k8/)
+- [宠妃岂敢压我！](https://www.lianzai007.com/book/6g3n1ka/)
+- [死遁后，师弟他不哄不停](https://www.lianzai007.com/book/6g3n1k9/)
 - [发家致富小夫郎](https://www.lianzai007.com/book/6g3n1k7/)
 - [女先生](https://www.lianzai007.com/book/6g3n1k6/)
 - [暴君偏头痛](https://www.lianzai007.com/book/6g3n1k5/)
@@ -69,7 +70,6 @@
 - [始乱终弃高岭之花以后](https://www.lianzai007.com/book/6g3n1fa/)
 - [我的烧烤摊超美味[美食]](https://www.lianzai007.com/book/6g3n1f9/)
 - [撕碎[刑侦]](https://www.lianzai007.com/book/6g3n1f4/)
-- [养父](https://www.lianzai007.com/book/6g3n1f2/)
 - [九零首富的替嫁小媳妇](https://www.lianzai007.com/book/6g3n1et/)
 - [星际团宠小人鱼](https://www.lianzai007.com/book/6g3n1eg/)
 - [十九世纪贵族厨房（美食）](https://www.lianzai007.com/book/6g3n1cl/)
@@ -79,14 +79,15 @@
 - [高嫁之后](https://www.lianzai007.com/book/6g3n1b5/)
 - [我不是御兽大师](https://www.lianzai007.com/book/6g3mvvn/)
 - [满级大佬制霸热血运动番](https://www.lianzai007.com/book/6g3mvvm/)
+- [绝不会喜欢五条君的！](https://www.lianzai007.com/book/6g3mvvd/)
 - [六零之成了卷王的妹妹](https://www.lianzai007.com/book/6g3mvvb/)
 - [古代种田养娃日常](https://www.lianzai007.com/book/6g3masa/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.lianzai007.com/book/6g3ma3d/)
 - [九零重组小家庭](https://www.lianzai007.com/book/6g3lgrl/)
 - [灭世龙崽有什么错](https://www.lianzai007.com/book/6g3laoq/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.lianzai007.com/book/6g3l7rn/)
+- [假少爷有特殊的算命技巧](https://www.lianzai007.com/book/6g3l7gf/)
 - [从维多利亚时代开始](https://www.lianzai007.com/book/6g3kmss/)
-- [我有特殊的升官技巧](https://www.lianzai007.com/book/6g3kk69/)
 - [御兽师，我打工养你啊](https://www.lianzai007.com/book/6g3ki3u/)
 - [反派人生，易如反掌[快穿]](https://www.lianzai007.com/book/6g3kgp7/)
 - [神豪文男主是我爸](https://www.lianzai007.com/book/6g3k8hs/)
@@ -100,14 +101,12 @@
 - [巨物致富：回乡开钓场](https://www.lianzai007.com/book/6g3jqbq/)
 - [趁她之危](https://www.lianzai007.com/book/6g3jl8v/)
 - [第一游侠[全息]](https://www.lianzai007.com/book/6g3jk36/)
-- [人妻O救赎指南](https://www.lianzai007.com/book/6g3jjkk/)
 - [始皇闺女躺平失败的日子](https://www.lianzai007.com/book/6g3jec7/)
 - [摄政王家的咸鱼夫郎](https://www.lianzai007.com/book/6g3jcn5/)
 - [寄人篱下](https://www.lianzai007.com/book/kq1f5j/)
 - [当我穿为龙傲天的情敌](https://www.lianzai007.com/book/kq1d2i/)
 - [全球进化，而我保持不变](https://www.lianzai007.com/book/kq1cs0/)
 - [不当救世主就要当人类恶了吗](https://www.lianzai007.com/book/kq1a8o/)
-- [社恐直播鉴宝，但带球跑](https://www.lianzai007.com/book/kq18gs/)
 - [枕边热吻](https://www.lianzai007.com/book/kq184k/)
 - [[全职高手]霸图老板是叶修](https://www.lianzai007.com/book/kq1737/)
 - [误标记隔壁阿姨O之后](https://www.lianzai007.com/book/kq15v9/)
@@ -156,10 +155,7 @@
 - [绿茶病秧子骗他说喜欢](https://www.lianzai007.com/book/kpvg1e/)
 - [我真的没想在选秀炒CP](https://www.lianzai007.com/book/kpveje/)
 - [今天在伟大航路抽到SSR了吗](https://www.lianzai007.com/book/kpvej8/)
-- [在医院旧楼捡到个外科鼻祖](https://www.lianzai007.com/book/kpvd2t/)
 - [把清冷权臣调成荡夫后](https://www.lianzai007.com/book/kpvcke/)
-- [替嫁后咸鱼继母佛系日常](https://www.lianzai007.com/book/22j4f8/)
-- [卧底后被港岛大小姐缠上了](https://www.lianzai007.com/book/22j4e1/)
 - [全民求生:从小木屋到魔法农场](https://www.lianzai007.com/book/22j47g/)
 - [大瑛弟国](https://www.lianzai007.com/book/22j3vr/)
 - [米花无刁民](https://www.lianzai007.com/book/22j3t7/)
@@ -167,13 +163,11 @@
 - [猫猫也要养家糊口](https://www.lianzai007.com/book/22j3o1/)
 - [[娱乐圈]过分美丽的她](https://www.lianzai007.com/book/22j3bm/)
 - [95美国贵族高中模拟](https://www.lianzai007.com/book/22j34b/)
-- [如何扮演源氏重宝](https://www.lianzai007.com/book/22j31l/)
 - [海岛求生：生活玩家种田囤货](https://www.lianzai007.com/book/22j2vk/)
 - [高门小婢](https://www.lianzai007.com/book/22j2oj/)
 - [五十年代港城日常](https://www.lianzai007.com/book/22j2lu/)
 - [当恶女捡回高岭之花](https://www.lianzai007.com/book/22j2ce/)
 - [科学主义魔法学院](https://www.lianzai007.com/book/6l3uc/)
-- [警察，但犯罪大师系统[刑侦]](https://www.lianzai007.com/book/6l3io/)
 - [清澈女大的六零年代](https://www.lianzai007.com/book/6l3im/)
 - [我有一座安全城](https://www.lianzai007.com/book/l9vl/)
 ## 相关内容

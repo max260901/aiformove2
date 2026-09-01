@@ -1,14 +1,15 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-09-01 03:21:01
+更新时间：2026-09-02 03:21:06
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。
 
 - [阿舍岛小说](https://www.ashedao.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.ashedao.com/book/99d3a4k/)
+- [宠妃岂敢压我！](https://www.ashedao.com/book/99d3a4m/)
+- [死遁后，师弟他不哄不停](https://www.ashedao.com/book/99d3a4l/)
 - [发家致富小夫郎](https://www.ashedao.com/book/99d3a4j/)
 - [和光太郎谈恋爱](https://www.ashedao.com/book/99d39bf/)
 - [与亡夫春风一度后](https://www.ashedao.com/book/99d39b5/)
@@ -64,16 +65,14 @@
 - [重回养父年少时](https://www.ashedao.com/book/99d396n/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.ashedao.com/book/99d33u2/)
 - [我真的只会Ctrl啊！！！](https://www.ashedao.com/book/99d305n/)
-- [养父](https://www.ashedao.com/book/99d2vun/)
-- [人妻O救赎指南](https://www.ashedao.com/book/99d2vo9/)
 - [星际团宠小人鱼](https://www.ashedao.com/book/99d2p2b/)
 - [灭世龙崽有什么错](https://www.ashedao.com/book/99d2kt7/)
 - [九零重组小家庭](https://www.ashedao.com/book/99d2kgq/)
+- [假少爷有特殊的算命技巧](https://www.ashedao.com/book/99d2ile/)
 - [神豪文男主是我爸](https://www.ashedao.com/book/99d2f6k/)
 - [在虫族世界逃命升级](https://www.ashedao.com/book/99d2dvh/)
 - [趁她之危](https://www.ashedao.com/book/99d2bu8/)
 - [从维多利亚时代开始](https://www.ashedao.com/book/99d245p/)
-- [我有特殊的升官技巧](https://www.ashedao.com/book/99d2165/)
 - [反派人生，易如反掌[快穿]](https://www.ashedao.com/book/99d1u39/)
 - [假少爷不想活了](https://www.ashedao.com/book/99d1tn0/)
 - [十九世纪贵族厨房（美食）](https://www.ashedao.com/book/99d1go2/)
@@ -95,7 +94,6 @@
 - [不当救世主就要当人类恶了吗](https://www.ashedao.com/book/99d0khj/)
 - [误标记隔壁阿姨O之后](https://www.ashedao.com/book/99d0kck/)
 - [为诡异打工，但反封建迷信](https://www.ashedao.com/book/99d0k3h/)
-- [社恐直播鉴宝，但带球跑](https://www.ashedao.com/book/99d0jnt/)
 - [[全职高手]霸图老板是叶修](https://www.ashedao.com/book/99d0hl0/)
 - [假金丝雀深陷修罗场](https://www.ashedao.com/book/99d0enr/)
 - [养成游戏，但破解版](https://www.ashedao.com/book/99d0dth/)
@@ -105,7 +103,6 @@
 - [高嫁之后](https://www.ashedao.com/book/99d04vl/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.ashedao.com/book/99d04nd/)
 - [啊？我是万人迷？［虫族］](https://www.ashedao.com/book/99d02e3/)
-- [替嫁后咸鱼继母佛系日常](https://www.ashedao.com/book/99d01l1/)
 - [米花无刁民](https://www.ashedao.com/book/99d01ig/)
 - [直男在耽美被迫万人迷［快穿］](https://www.ashedao.com/book/99cvu57/)
 - [重力系杀手误入忍界记实录](https://www.ashedao.com/book/99cvtue/)
@@ -149,14 +146,10 @@
 - [我真的没想在选秀炒CP](https://www.ashedao.com/book/99cun5b/)
 - [绿茶病秧子骗他说喜欢](https://www.ashedao.com/book/99cumkc/)
 - [徐娘子的美食发家日常](https://www.ashedao.com/book/99cumjj/)
-- [在医院旧楼捡到个外科鼻祖](https://www.ashedao.com/book/99culjv/)
 - [把清冷权臣调成荡夫后](https://www.ashedao.com/book/99culb6/)
 - [[群穿]我在御兽番抢人气](https://www.ashedao.com/book/99cuglj/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ashedao.com/book/99ctp5o/)
-- [卧底后被港岛大小姐缠上了](https://www.ashedao.com/book/99ctp02/)
-- [警察，但犯罪大师系统[刑侦]](https://www.ashedao.com/book/99ctosp/)
 - [穿成炮灰后我封神了［快穿］](https://www.ashedao.com/book/99ctoqe/)
-- [如何扮演源氏重宝](https://www.ashedao.com/book/99ctop9/)
 - [满级大佬制霸热血运动番](https://www.ashedao.com/book/99ctokv/)
 - [海岛求生：生活玩家种田囤货](https://www.ashedao.com/book/99ctokm/)
 - [猫猫也要养家糊口](https://www.ashedao.com/book/99ctobt/)
@@ -175,6 +168,7 @@
 - [我不是御兽大师](https://www.ashedao.com/book/99ctmmn/)
 - [95美国贵族高中模拟](https://www.ashedao.com/book/99ctmjl/)
 - [全民求生:从小木屋到魔法农场](https://www.ashedao.com/book/99ctmda/)
+- [绝不会喜欢五条君的！](https://www.ashedao.com/book/99ctm3u/)
 - [高门小婢](https://www.ashedao.com/book/99ctm2g/)
 ## 相关内容
 - [README](/README.md)

@@ -1,7 +1,7 @@
 
 # 泡泡中文小说-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-01 03:41:37
+更新时间：2026-09-02 03:41:52
 
 泡泡中文小说是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -9,31 +9,39 @@
 
 ## 最新小说
 - [阿竹与野桃](https://www.xiaoshuo288.com/book/dm3j66/)
-- [我的烧烤摊超美味[美食]](https://www.xiaoshuo288.com/book/dm3j3r/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xiaoshuo288.com/book/dm3j3e/)
+- [从异世界穿回来后](https://www.xiaoshuo288.com/book/dm3ehk/)
+- [我有嘉宾](https://www.xiaoshuo288.com/book/dm3e6i/)
 - [你，后室管理员](https://www.xiaoshuo288.com/book/dm2ke8/)
+- [原配夫人](https://www.xiaoshuo288.com/book/dm2kbs/)
 - [星际团宠小人鱼](https://www.xiaoshuo288.com/book/dm2k9m/)
 - [高调装神，猥琐发育](https://www.xiaoshuo288.com/book/dm2dan/)
+- [男朋友买一送一](https://www.xiaoshuo288.com/book/dm20sf/)
+- [失而复得的白月光[快穿]](https://www.xiaoshuo288.com/book/dm1rqr/)
 - [如何正确哄睡暴君](https://www.xiaoshuo288.com/book/dm1q4f/)
-- [寻真](https://www.xiaoshuo288.com/book/dm1g3l/)
+- [躲避原书剧情五年后](https://www.xiaoshuo288.com/book/dm1p9c/)
+- [我不可能舔一个漂亮捞子](https://www.xiaoshuo288.com/book/dm1gtt/)
 - [逝水](https://www.xiaoshuo288.com/book/dm1fkc/)
-- [老公是松散生命体](https://www.xiaoshuo288.com/book/dm1a7p/)
+- [你也没死？](https://www.xiaoshuo288.com/book/dm1ffi/)
+- [被鬼怪宠爱的漂亮书生](https://www.xiaoshuo288.com/book/dm1bro/)
+- [沈助理又在隐藏他的超能力](https://www.xiaoshuo288.com/book/dm1a9c/)
 - [微臣怜惜公主](https://www.xiaoshuo288.com/book/dm16u0/)
+- [系统不许我摆烂](https://www.xiaoshuo288.com/book/dm15sq/)
+- [误入反派培养直播后](https://www.xiaoshuo288.com/book/dm0vtb/)
 - [炮灰的我该如何上位？](https://www.xiaoshuo288.com/book/dm0q9i/)
+- [哥你不能不要我](https://www.xiaoshuo288.com/book/dm0pp3/)
 - [[封神]圣人生欲](https://www.xiaoshuo288.com/book/dm0os3/)
+- [被四皇错看成小动物后](https://www.xiaoshuo288.com/book/dm0ore/)
 - [多梦你一会儿](https://www.xiaoshuo288.com/book/dm0oh0/)
-- [这谁的沙雕二次元心声！](https://www.xiaoshuo288.com/book/dm0ni5/)
-- [善逸拒绝成为咒术师](https://www.xiaoshuo288.com/book/dm0ml5/)
+- [隔壁班的松田君](https://www.xiaoshuo288.com/book/dm0j2u/)
 - [[足球]罗蜜第一志愿](https://www.xiaoshuo288.com/book/dm0gvk/)
-- [青空来信](https://www.xiaoshuo288.com/book/dm0f9n/)
+- [某柯学的正义伙伴](https://www.xiaoshuo288.com/book/dm0f04/)
 - [井闼山经理每天都被挖墙脚](https://www.xiaoshuo288.com/book/dm0e9l/)
 - [[足球]小小鸟堂堂来袭](https://www.xiaoshuo288.com/book/dm03uc/)
+- [侯府打工人](https://www.xiaoshuo288.com/book/dlvtp8/)
 - [好兄弟暴富后非要跟我结婚](https://www.xiaoshuo288.com/book/dlvtkv/)
 - [法外狂猫](https://www.xiaoshuo288.com/book/dlvqt7/)
-- [关于我虚构了一个男友这件事](https://www.xiaoshuo288.com/book/dlvnr3/)
+- [我，剑圣，养生中，勿扰](https://www.xiaoshuo288.com/book/dlvq3b/)
 - [和室友他爸恋爱后](https://www.xiaoshuo288.com/book/dlvjtf/)
-- [女扮男装科举和皇帝撞脸了！](https://www.xiaoshuo288.com/book/dlue8t/)
-- [拯救世界从扮演反派开始](https://www.xiaoshuo288.com/book/dlucg4/)
 - [直男咒术师的限制级游戏](https://www.xiaoshuo288.com/book/dlucec/)
 - [纯爱宇智波基本恋爱法](https://www.xiaoshuo288.com/book/dlucak/)
 ## 相关内容

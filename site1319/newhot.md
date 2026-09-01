@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-09-01 03:28:39
+更新时间：2026-09-02 03:28:44
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
@@ -9,23 +9,30 @@
 
 ## 最新小说
 - [井闼山经理每天都被挖墙脚](https://www.kanshu666.com/book/8jv7idj/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kanshu666.com/book/8jv7ici/)
 - [阿竹与野桃](https://www.kanshu666.com/book/8jv7iaf/)
+- [躲避原书剧情五年后](https://www.kanshu666.com/book/8jv7i9n/)
+- [失而复得的白月光[快穿]](https://www.kanshu666.com/book/8jv7i9g/)
 - [[封神]圣人生欲](https://www.kanshu666.com/book/8jv7i8c/)
 - [你，后室管理员](https://www.kanshu666.com/book/8jv7i87/)
+- [原配夫人](https://www.kanshu666.com/book/8jv7i80/)
 - [星际团宠小人鱼](https://www.kanshu666.com/book/8jv7i7j/)
+- [被四皇错看成小动物后](https://www.kanshu666.com/book/8jv7i70/)
 - [高调装神，猥琐发育](https://www.kanshu666.com/book/8jv7i6h/)
+- [从异世界穿回来后](https://www.kanshu666.com/book/8jv7i3s/)
 - [直男咒术师的限制级游戏](https://www.kanshu666.com/book/8jv7i2n/)
 - [纯爱宇智波基本恋爱法](https://www.kanshu666.com/book/8jv7i22/)
-- [女扮男装科举和皇帝撞脸了！](https://www.kanshu666.com/book/8jv7i1i/)
-- [寻真](https://www.kanshu666.com/book/8jv3sgu/)
+- [某柯学的正义伙伴](https://www.kanshu666.com/book/8jv4pkl/)
+- [男朋友买一送一](https://www.kanshu666.com/book/8jv4ce7/)
+- [我有嘉宾](https://www.kanshu666.com/book/8jv48o2/)
+- [沈助理又在隐藏他的超能力](https://www.kanshu666.com/book/rj63r4/)
+- [系统不许我摆烂](https://www.kanshu666.com/book/rj61ia/)
 - [逝水](https://www.kanshu666.com/book/rj5nck/)
-- [老公是松散生命体](https://www.kanshu666.com/book/rj56nd/)
-- [青空来信](https://www.kanshu666.com/book/rj56ej/)
-- [这谁的沙雕二次元心声！](https://www.kanshu666.com/book/rj54ab/)
+- [隔壁班的松田君](https://www.kanshu666.com/book/rj5d0b/)
+- [你也没死？](https://www.kanshu666.com/book/rj58m6/)
+- [误入反派培养直播后](https://www.kanshu666.com/book/rj4tvr/)
 - [多梦你一会儿](https://www.kanshu666.com/book/rj4r8k/)
 - [[足球]罗蜜第一志愿](https://www.kanshu666.com/book/rj4noc/)
-- [拯救世界从扮演反派开始](https://www.kanshu666.com/book/rj4mpk/)
+- [哥你不能不要我](https://www.kanshu666.com/book/rj45vi/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1319/index.md)

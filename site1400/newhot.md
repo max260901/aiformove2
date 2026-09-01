@@ -1,40 +1,46 @@
 
 # 都来读小说网 - 免费电子书阅读平台
 
-更新时间：2026-09-01 03:37:09
+更新时间：2026-09-02 03:37:20
 
 都来读小说网提供快速更新的海量免费小说资源，主要以TXT格式为主，致力于为读者带来优质的阅读体验。
 
 - [都来读小说网](https://www.swazs.com/)
 
 ## 最新小说
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.swazs.com/book/1u7j6vq/)
+- [被鬼怪宠爱的漂亮书生](https://www.swazs.com/book/1u7j8mc/)
 - [阿竹与野桃](https://www.swazs.com/book/1u7j5jn/)
+- [男朋友买一送一](https://www.swazs.com/book/1u7j5gd/)
+- [全天下都在求太子殿下别死！](https://www.swazs.com/book/1u7j5co/)
 - [如何正确哄睡暴君](https://www.swazs.com/book/1u7j4pf/)
 - [逝水](https://www.swazs.com/book/1u7j1sm/)
-- [老公是松散生命体](https://www.swazs.com/book/1u7ir25/)
+- [我不可能舔一个漂亮捞子](https://www.swazs.com/book/1u7j17o/)
+- [你也没死？](https://www.swazs.com/book/1u7iphj/)
 - [法外狂猫](https://www.swazs.com/book/1u7inmc/)
 - [微臣怜惜公主](https://www.swazs.com/book/1u7in87/)
-- [寻真](https://www.swazs.com/book/1u7ijo7/)
-- [就算是龙傲天也不可以[快穿]](https://www.swazs.com/book/1u7ifu8/)
+- [哥你不能不要我](https://www.swazs.com/book/1u7ihip/)
+- [沈助理又在隐藏他的超能力](https://www.swazs.com/book/1u7ig3g/)
 - [和室友他爸恋爱后](https://www.swazs.com/book/1u7ifr5/)
-- [女扮男装科举和皇帝撞脸了！](https://www.swazs.com/book/1u7iea3/)
+- [系统不许我摆烂](https://www.swazs.com/book/1u7iaho/)
 - [直男咒术师的限制级游戏](https://www.swazs.com/book/1u7i7p5/)
+- [被豪门封建长兄娇养了](https://www.swazs.com/book/1u7i5be/)
 - [多梦你一会儿](https://www.swazs.com/book/1u7i494/)
 - [穿为清冷影后的污点A](https://www.swazs.com/book/1u7i3hl/)
-- [这谁的沙雕二次元心声！](https://www.swazs.com/book/1u7i385/)
-- [善逸拒绝成为咒术师](https://www.swazs.com/book/1u7i1df/)
-- [豪门养子怀了大哥的崽](https://www.swazs.com/book/1u7i1bl/)
+- [侯府打工人](https://www.swazs.com/book/1u7i1ta/)
 - [炮灰的我该如何上位？](https://www.swazs.com/book/1u7i12f/)
 - [井闼山经理每天都被挖墙脚](https://www.swazs.com/book/1u7hut8/)
-- [拯救世界从扮演反派开始](https://www.swazs.com/book/1u7huie/)
 - [[足球]小小鸟堂堂来袭](https://www.swazs.com/book/1u7htmk/)
 - [[足球]罗蜜第一志愿](https://www.swazs.com/book/1u7hpeu/)
-- [青空来信](https://www.swazs.com/book/1u7hma6/)
+- [某柯学的正义伙伴](https://www.swazs.com/book/1u7hnp7/)
+- [隔壁班的松田君](https://www.swazs.com/book/1u7hn5g/)
+- [撕毁女配剧本的我被神之子读心了](https://www.swazs.com/book/1u7hm28/)
 - [好兄弟暴富后非要跟我结婚](https://www.swazs.com/book/1u7hku5/)
-- [关于我虚构了一个男友这件事](https://www.swazs.com/book/1u7hk4g/)
+- [我，剑圣，养生中，勿扰](https://www.swazs.com/book/1u7hi0l/)
 - [星际团宠小人鱼](https://www.swazs.com/book/1u7fi8l/)
+- [被四皇错看成小动物后](https://www.swazs.com/book/1u7fi8k/)
+- [原配夫人](https://www.swazs.com/book/1u7fhel/)
 - [你，后室管理员](https://www.swazs.com/book/1u7fgu9/)
+- [误入反派培养直播后](https://www.swazs.com/book/1u7fgog/)
 - [纯爱宇智波基本恋爱法](https://www.swazs.com/book/1u7fgnv/)
 - [[封神]圣人生欲](https://www.swazs.com/book/1u7fg6j/)
 - [高调装神，猥琐发育](https://www.swazs.com/book/1u7fft4/)

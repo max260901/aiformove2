@@ -1,40 +1,46 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-09-01 03:38:09
+更新时间：2026-09-02 03:38:21
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。
 
 - [顶点中文小说](https://www.wangrn.com/)
 
 ## 最新小说
+- [被鬼怪宠爱的漂亮书生](https://www.wangrn.com/book/4bbmobu/)
+- [男朋友买一送一](https://www.wangrn.com/book/4bbmnl0/)
+- [全天下都在求太子殿下别死！](https://www.wangrn.com/book/4bbmmk1/)
 - [阿竹与野桃](https://www.wangrn.com/book/4bbmm9b/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wangrn.com/book/4bbmktc/)
 - [如何正确哄睡暴君](https://www.wangrn.com/book/4bbmjig/)
+- [我不可能舔一个漂亮捞子](https://www.wangrn.com/book/4bbmhhv/)
 - [逝水](https://www.wangrn.com/book/4bbmggd/)
-- [老公是松散生命体](https://www.wangrn.com/book/4bbmbn3/)
+- [你也没死？](https://www.wangrn.com/book/4bbmc0s/)
 - [微臣怜惜公主](https://www.wangrn.com/book/4bbm8mo/)
 - [法外狂猫](https://www.wangrn.com/book/4bbm6bs/)
-- [寻真](https://www.wangrn.com/book/4bbm4kg/)
-- [女扮男装科举和皇帝撞脸了！](https://www.wangrn.com/book/4bblv3m/)
+- [哥你不能不要我](https://www.wangrn.com/book/4bbm33o/)
+- [沈助理又在隐藏他的超能力](https://www.wangrn.com/book/4bbm0ao/)
 - [和室友他爸恋爱后](https://www.wangrn.com/book/4bbluti/)
-- [就算是龙傲天也不可以[快穿]](https://www.wangrn.com/book/4bblus1/)
+- [系统不许我摆烂](https://www.wangrn.com/book/4bblq6j/)
+- [被豪门封建长兄娇养了](https://www.wangrn.com/book/4bblmtj/)
 - [直男咒术师的限制级游戏](https://www.wangrn.com/book/4bblklc/)
-- [这谁的沙雕二次元心声！](https://www.wangrn.com/book/4bblj66/)
 - [多梦你一会儿](https://www.wangrn.com/book/4bblin3/)
 - [穿为清冷影后的污点A](https://www.wangrn.com/book/4bblia4/)
-- [善逸拒绝成为咒术师](https://www.wangrn.com/book/4bblhas/)
-- [豪门养子怀了大哥的崽](https://www.wangrn.com/book/4bblh7f/)
+- [侯府打工人](https://www.wangrn.com/book/4bblfjt/)
 - [炮灰的我该如何上位？](https://www.wangrn.com/book/4bblf61/)
-- [拯救世界从扮演反派开始](https://www.wangrn.com/book/4bbldv0/)
 - [井闼山经理每天都被挖墙脚](https://www.wangrn.com/book/4bbld9t/)
 - [[足球]小小鸟堂堂来袭](https://www.wangrn.com/book/4bblcml/)
 - [[足球]罗蜜第一志愿](https://www.wangrn.com/book/4bblbd6/)
-- [青空来信](https://www.wangrn.com/book/4bbl7aq/)
-- [关于我虚构了一个男友这件事](https://www.wangrn.com/book/4bbl57d/)
+- [隔壁班的松田君](https://www.wangrn.com/book/4bbl7ff/)
+- [某柯学的正义伙伴](https://www.wangrn.com/book/4bbl60o/)
 - [好兄弟暴富后非要跟我结婚](https://www.wangrn.com/book/4bbl511/)
+- [撕毁女配剧本的我被神之子读心了](https://www.wangrn.com/book/4bbl4fb/)
+- [我，剑圣，养生中，勿扰](https://www.wangrn.com/book/4bbl1aa/)
+- [被四皇错看成小动物后](https://www.wangrn.com/book/4bbj2h6/)
 - [纯爱宇智波基本恋爱法](https://www.wangrn.com/book/4bbj0pk/)
+- [误入反派培养直播后](https://www.wangrn.com/book/4bbj0l3/)
 - [[封神]圣人生欲](https://www.wangrn.com/book/4bbj0ge/)
+- [原配夫人](https://www.wangrn.com/book/4bbj0en/)
 - [你，后室管理员](https://www.wangrn.com/book/4bbj0b9/)
 - [高调装神，猥琐发育](https://www.wangrn.com/book/4bbivq7/)
 - [星际团宠小人鱼](https://www.wangrn.com/book/4bbivbk/)

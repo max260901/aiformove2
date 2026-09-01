@@ -1,32 +1,38 @@
 
 # 欣怡书屋 - 免费最新章节小说阅读,全本无弹窗
 
-更新时间：2026-09-01 03:45:05
+更新时间：2026-09-02 03:45:17
 
 欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。
 
 - [欣怡书屋](https://www.znenghs.com/)
 
 ## 最新小说
+- [躲避原书剧情五年后](https://www.znenghs.com/book/5n2k93v/)
+- [失而复得的白月光[快穿]](https://www.znenghs.com/book/5n2k93l/)
 - [阿竹与野桃](https://www.znenghs.com/book/5n2k933/)
-- [我的烧烤摊超美味[美食]](https://www.znenghs.com/book/5n2k923/)
 - [井闼山经理每天都被挖墙脚](https://www.znenghs.com/book/5n2k90n/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.znenghs.com/book/5n2k8vh/)
 - [[封神]圣人生欲](https://www.znenghs.com/book/5n2k8uq/)
+- [被四皇错看成小动物后](https://www.znenghs.com/book/5n2k8uh/)
 - [你，后室管理员](https://www.znenghs.com/book/5n2k8th/)
 - [星际团宠小人鱼](https://www.znenghs.com/book/5n2k8ss/)
+- [原配夫人](https://www.znenghs.com/book/5n2k8sp/)
 - [高调装神，猥琐发育](https://www.znenghs.com/book/5n2k8sf/)
-- [女扮男装科举和皇帝撞脸了！](https://www.znenghs.com/book/5n2k8oi/)
+- [从异世界穿回来后](https://www.znenghs.com/book/5n2k8ql/)
 - [直男咒术师的限制级游戏](https://www.znenghs.com/book/5n2k8nt/)
 - [纯爱宇智波基本恋爱法](https://www.znenghs.com/book/5n2k8nf/)
-- [寻真](https://www.znenghs.com/book/5n2gj5c/)
+- [某柯学的正义伙伴](https://www.znenghs.com/book/5n2hedk/)
+- [男朋友买一送一](https://www.znenghs.com/book/5n2h5os/)
+- [我有嘉宾](https://www.znenghs.com/book/5n2gvde/)
+- [沈助理又在隐藏他的超能力](https://www.znenghs.com/book/i9tpf4/)
+- [系统不许我摆烂](https://www.znenghs.com/book/i9tm5q/)
 - [逝水](https://www.znenghs.com/book/i9temj/)
-- [这谁的沙雕二次元心声！](https://www.znenghs.com/book/i9sthj/)
-- [青空来信](https://www.znenghs.com/book/i9ssnb/)
-- [老公是松散生命体](https://www.znenghs.com/book/i9sptm/)
+- [隔壁班的松田君](https://www.znenghs.com/book/i9t3h2/)
+- [你也没死？](https://www.znenghs.com/book/i9suva/)
+- [误入反派培养直播后](https://www.znenghs.com/book/i9sh6m/)
 - [多梦你一会儿](https://www.znenghs.com/book/i9sfpj/)
 - [[足球]罗蜜第一志愿](https://www.znenghs.com/book/i9sdb6/)
-- [拯救世界从扮演反派开始](https://www.znenghs.com/book/i9sca6/)
+- [哥你不能不要我](https://www.znenghs.com/book/i9rs4f/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1326/index.md)

@@ -1,15 +1,17 @@
 
 # 电子洗砂机小说网-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-09-01 03:24:27
+更新时间：2026-09-02 03:24:31
 
 电子洗砂机小说网提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
 
 - [电子洗砂机小说网](https://www.dzxishaji.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.dzxishaji.com/book/70umjpv/)
+- [宠妃岂敢压我！](https://www.dzxishaji.com/book/70umm4m/)
+- [死遁后，师弟他不哄不停](https://www.dzxishaji.com/book/70umm3k/)
 - [发家致富小夫郎](https://www.dzxishaji.com/book/70ume0n/)
+- [假少爷有特殊的算命技巧](https://www.dzxishaji.com/book/70uma1f/)
 - [九零重组小家庭](https://www.dzxishaji.com/book/70um9mu/)
 - [败类游戏](https://www.dzxishaji.com/book/70um9c3/)
 - [我的NPC队友全是火影天花板](https://www.dzxishaji.com/book/70um9c1/)
@@ -68,10 +70,7 @@
 - [神豪文男主是我爸](https://www.dzxishaji.com/book/70um56d/)
 - [我真的只会Ctrl啊！！！](https://www.dzxishaji.com/book/70um3cm/)
 - [从维多利亚时代开始](https://www.dzxishaji.com/book/70ult2l/)
-- [我有特殊的升官技巧](https://www.dzxishaji.com/book/70ulq5i/)
 - [反派人生，易如反掌[快穿]](https://www.dzxishaji.com/book/70ulmft/)
-- [人妻O救赎指南](https://www.dzxishaji.com/book/70uler9/)
-- [养父](https://www.dzxishaji.com/book/70uleni/)
 - [摄政王家的咸鱼夫郎](https://www.dzxishaji.com/book/70ul1i7/)
 - [绿叶](https://www.dzxishaji.com/book/70ul0r9/)
 - [枕边热吻](https://www.dzxishaji.com/book/70ukvq3/)
@@ -87,7 +86,6 @@
 - [当菟丝花要分手后](https://www.dzxishaji.com/book/70ukfsm/)
 - [假金丝雀深陷修罗场](https://www.dzxishaji.com/book/70ukf6e/)
 - [当我穿为龙傲天的情敌](https://www.dzxishaji.com/book/70ukf1b/)
-- [社恐直播鉴宝，但带球跑](https://www.dzxishaji.com/book/70uke8u/)
 - [高嫁之后](https://www.dzxishaji.com/book/70uke1g/)
 - [[全职高手]霸图老板是叶修](https://www.dzxishaji.com/book/70ukdbr/)
 - [养成游戏，但破解版](https://www.dzxishaji.com/book/70uk7b1/)
@@ -136,19 +134,16 @@
 - [搭档，一起来玩求生游戏吧！](https://www.dzxishaji.com/book/70uim57/)
 - [恶犬攻绑定上司的乖狗系统](https://www.dzxishaji.com/book/70uim0g/)
 - [绿茶病秧子骗他说喜欢](https://www.dzxishaji.com/book/70uik83/)
+- [绝不会喜欢五条君的！](https://www.dzxishaji.com/book/70uijlj/)
 - [暴君偏头痛](https://www.dzxishaji.com/book/70uiif5/)
 - [我真的没想在选秀炒CP](https://www.dzxishaji.com/book/70uigs0/)
 - [把清冷权臣调成荡夫后](https://www.dzxishaji.com/book/70uifti/)
-- [在医院旧楼捡到个外科鼻祖](https://www.dzxishaji.com/book/70uieve/)
 - [[群穿]我在御兽番抢人气](https://www.dzxishaji.com/book/70uidnk/)
 - [欢迎来到纳萨力克丧葬公司](https://www.dzxishaji.com/book/70uidm7/)
 - [我，恶女，在线搞事](https://www.dzxishaji.com/book/70uiak1/)
 - [巨物致富：回乡开钓场](https://www.dzxishaji.com/book/70uhhv7/)
-- [卧底后被港岛大小姐缠上了](https://www.dzxishaji.com/book/70uhhnp/)
-- [警察，但犯罪大师系统[刑侦]](https://www.dzxishaji.com/book/70uhhn5/)
 - [日化人生[科研]](https://www.dzxishaji.com/book/70uhhjh/)
 - [高门小婢](https://www.dzxishaji.com/book/70uhhja/)
-- [如何扮演源氏重宝](https://www.dzxishaji.com/book/70uhhbd/)
 - [我有一座安全城](https://www.dzxishaji.com/book/70uhh81/)
 - [穿成炮灰后我封神了［快穿］](https://www.dzxishaji.com/book/70uhh4c/)
 - [千禧年，拆迁分了十栋楼！](https://www.dzxishaji.com/book/70uhh37/)
@@ -161,7 +156,6 @@
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.dzxishaji.com/book/70uhge6/)
 - [清澈女大的六零年代](https://www.dzxishaji.com/book/70uhgdg/)
 - [五十年代港城日常](https://www.dzxishaji.com/book/70uhgce/)
-- [替嫁后咸鱼继母佛系日常](https://www.dzxishaji.com/book/70uhfup/)
 - [八零恶毒后妈杀疯了](https://www.dzxishaji.com/book/70uhfqo/)
 - [大瑛弟国](https://www.dzxishaji.com/book/70uhfqm/)
 - [古代种田养娃日常](https://www.dzxishaji.com/book/70uhfnv/)

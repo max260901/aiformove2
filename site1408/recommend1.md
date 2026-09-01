@@ -1,14 +1,16 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-09-01 03:38:09
+更新时间：2026-09-02 03:38:21
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。
 
 - [顶点中文小说](https://www.wangrn.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.wangrn.com/book/4bbnev1/)
+- [假少爷有特殊的算命技巧](https://www.wangrn.com/book/4bbnm8f/)
+- [宠妃岂敢压我！](https://www.wangrn.com/book/4bbnm7b/)
+- [死遁后，师弟他不哄不停](https://www.wangrn.com/book/4bbnlvq/)
 - [从维多利亚时代开始](https://www.wangrn.com/book/4bbnd6a/)
 - [九零重组小家庭](https://www.wangrn.com/book/4bbn84l/)
 - [发家致富小夫郎](https://www.wangrn.com/book/4bbn1do/)
@@ -82,7 +84,6 @@
 - [不当救世主就要当人类恶了吗](https://www.wangrn.com/book/4bbm1ta/)
 - [假金丝雀深陷修罗场](https://www.wangrn.com/book/4bbm1t8/)
 - [十福晋吃瓜日常(清穿)](https://www.wangrn.com/book/4bbm1kn/)
-- [社恐直播鉴宝，但带球跑](https://www.wangrn.com/book/4bblv0v/)
 - [[综英美]让我统治哥谭！！！](https://www.wangrn.com/book/4bbluvl/)
 - [当我穿为龙傲天的情敌](https://www.wangrn.com/book/4bbltts/)
 - [霓虹夏日](https://www.wangrn.com/book/4bbls56/)
@@ -121,7 +122,6 @@
 - [始皇闺女躺平失败的日子](https://www.wangrn.com/book/4bbkh5s/)
 - [如果时光不记得](https://www.wangrn.com/book/4bbkh31/)
 - [穿越废星，我靠种田求生](https://www.wangrn.com/book/4bbkgoq/)
-- [我有特殊的升官技巧](https://www.wangrn.com/book/4bbkgg2/)
 - [反派人生，易如反掌[快穿]](https://www.wangrn.com/book/4bbkfh5/)
 - [我不是御兽大师](https://www.wangrn.com/book/4bbkffe/)
 - [萩原警官的咒术大冒险](https://www.wangrn.com/book/4bbkfae/)
@@ -135,24 +135,20 @@
 - [这男人该死的甜美](https://www.wangrn.com/book/4bbk7n1/)
 - [红楼之霸总他被迫拯救女主角](https://www.wangrn.com/book/4bbk7h7/)
 - [恶犬攻绑定上司的乖狗系统](https://www.wangrn.com/book/4bbk601/)
+- [绝不会喜欢五条君的！](https://www.wangrn.com/book/4bbk4dd/)
 - [把清冷权臣调成荡夫后](https://www.wangrn.com/book/4bbk44r/)
 - [绿茶病秧子骗他说喜欢](https://www.wangrn.com/book/4bbk2vd/)
 - [我真的没想在选秀炒CP](https://www.wangrn.com/book/4bbk1mt/)
 - [[群穿]我在御兽番抢人气](https://www.wangrn.com/book/4bbjv0s/)
-- [在医院旧楼捡到个外科鼻祖](https://www.wangrn.com/book/4bbjuiu/)
 - [欢迎来到纳萨力克丧葬公司](https://www.wangrn.com/book/4bbjuf5/)
-- [养父](https://www.wangrn.com/book/4bbjt66/)
 - [穿成炮灰后我封神了［快穿］](https://www.wangrn.com/book/4bbj2gb/)
 - [清澈女大的六零年代](https://www.wangrn.com/book/4bbj2ga/)
-- [如何扮演源氏重宝](https://www.wangrn.com/book/4bbj2eu/)
-- [卧底后被港岛大小姐缠上了](https://www.wangrn.com/book/4bbj22p/)
 - [高门小婢](https://www.wangrn.com/book/4bbj20c/)
 - [御兽师，我打工养你啊](https://www.wangrn.com/book/4bbj1v1/)
 - [八零恶毒后妈杀疯了](https://www.wangrn.com/book/4bbj1ug/)
 - [成为养成系练习生后](https://www.wangrn.com/book/4bbj1tb/)
 - [全民求生:从小木屋到魔法农场](https://www.wangrn.com/book/4bbj1rf/)
 - [为诡异打工，但反封建迷信](https://www.wangrn.com/book/4bbj1qr/)
-- [警察，但犯罪大师系统[刑侦]](https://www.wangrn.com/book/4bbj1qc/)
 - [海岛求生：生活玩家种田囤货](https://www.wangrn.com/book/4bbj1oh/)
 - [日化人生[科研]](https://www.wangrn.com/book/4bbj1og/)
 - [古代种田养娃日常](https://www.wangrn.com/book/4bbj1bd/)
@@ -171,10 +167,8 @@
 - [我有一座安全城](https://www.wangrn.com/book/4bbivvc/)
 - [假少爷不想活了](https://www.wangrn.com/book/4bbivqh/)
 - [高调装神，猥琐发育](https://www.wangrn.com/book/4bbivq7/)
-- [人妻O救赎指南](https://www.wangrn.com/book/4bbivlu/)
 - [巨物致富：回乡开钓场](https://www.wangrn.com/book/4bbivj3/)
 - [在民俗惊悚片被诸神庇护](https://www.wangrn.com/book/4bbivgg/)
-- [替嫁后咸鱼继母佛系日常](https://www.wangrn.com/book/4bbivd9/)
 - [星际团宠小人鱼](https://www.wangrn.com/book/4bbivbk/)
 ## 相关内容
 - [README](/README.md)

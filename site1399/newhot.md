@@ -1,7 +1,7 @@
 
 # 佚名奇书小说 - 免费更新的小说阅读网站
 
-更新时间：2026-09-01 03:42:41
+更新时间：2026-09-02 03:42:55
 
 佚名奇书小说提供全网各类热门小说在线阅读服务，支持免费观看。这里汇集了丰富的小说资源，包括但不限于都市、玄幻、武侠等多种类型，并且保证章节更新及时，页面设计清爽无广告干扰，是广大书友不可多得的好去处。
 
@@ -9,35 +9,42 @@
 
 ## 最新小说
 - [阿竹与野桃](https://www.yimingeduai.com/book/6admm00/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yimingeduai.com/book/6admlrd/)
 - [直男咒术师的限制级游戏](https://www.yimingeduai.com/book/6admd3n/)
-- [青空来信](https://www.yimingeduai.com/book/6admaea/)
 - [炮灰的我该如何上位？](https://www.yimingeduai.com/book/6adm9s9/)
 - [好兄弟暴富后非要跟我结婚](https://www.yimingeduai.com/book/6adm6s1/)
 - [[足球]小小鸟堂堂来袭](https://www.yimingeduai.com/book/6adm31n/)
 - [微臣怜惜公主](https://www.yimingeduai.com/book/6adm1hj/)
 - [逝水](https://www.yimingeduai.com/book/6adm1ap/)
-- [就算是龙傲天也不可以[快穿]](https://www.yimingeduai.com/book/6adm0c5/)
+- [哥你不能不要我](https://www.yimingeduai.com/book/6adm115/)
+- [我，剑圣，养生中，勿扰](https://www.yimingeduai.com/book/6adlquc/)
 - [和室友他爸恋爱后](https://www.yimingeduai.com/book/6adlo7l/)
-- [善逸拒绝成为咒术师](https://www.yimingeduai.com/book/6adlnc8/)
-- [女扮男装科举和皇帝撞脸了！](https://www.yimingeduai.com/book/6adlmn1/)
-- [关于我虚构了一个男友这件事](https://www.yimingeduai.com/book/6adld7o/)
+- [系统不许我摆烂](https://www.yimingeduai.com/book/6adlkfj/)
+- [某柯学的正义伙伴](https://www.yimingeduai.com/book/6adldvs/)
+- [侯府打工人](https://www.yimingeduai.com/book/6adlbp2/)
 - [如何正确哄睡暴君](https://www.yimingeduai.com/book/6adlbf5/)
-- [寻真](https://www.yimingeduai.com/book/6adl72t/)
+- [被鬼怪宠爱的漂亮书生](https://www.yimingeduai.com/book/6adlb72/)
+- [你也没死？](https://www.yimingeduai.com/book/6adl5sg/)
+- [隔壁班的松田君](https://www.yimingeduai.com/book/6adl49g/)
+- [被豪门封建长兄娇养了](https://www.yimingeduai.com/book/6adl3kn/)
 - [多梦你一会儿](https://www.yimingeduai.com/book/6adl2mo/)
-- [老公是松散生命体](https://www.yimingeduai.com/book/6adl00m/)
+- [沈助理又在隐藏他的超能力](https://www.yimingeduai.com/book/6adkul2/)
+- [男朋友买一送一](https://www.yimingeduai.com/book/6adknc9/)
 - [井闼山经理每天都被挖墙脚](https://www.yimingeduai.com/book/6adkmc7/)
-- [拯救世界从扮演反派开始](https://www.yimingeduai.com/book/6adkkb1/)
-- [这谁的沙雕二次元心声！](https://www.yimingeduai.com/book/6adkjll/)
+- [失而复得的白月光[快穿]](https://www.yimingeduai.com/book/6adkm3u/)
 - [穿为清冷影后的污点A](https://www.yimingeduai.com/book/6adkeds/)
-- [豪门养子怀了大哥的崽](https://www.yimingeduai.com/book/6adk8dp/)
+- [我不可能舔一个漂亮捞子](https://www.yimingeduai.com/book/6adk3mo/)
 - [法外狂猫](https://www.yimingeduai.com/book/6adk3ap/)
+- [撕毁女配剧本的我被神之子读心了](https://www.yimingeduai.com/book/6adjinh/)
 - [[足球]罗蜜第一志愿](https://www.yimingeduai.com/book/6adjf8l/)
+- [躲避原书剧情五年后](https://www.yimingeduai.com/book/6adjc8t/)
+- [原配夫人](https://www.yimingeduai.com/book/6adi87a/)
 - [高调装神，猥琐发育](https://www.yimingeduai.com/book/6adi75l/)
 - [你，后室管理员](https://www.yimingeduai.com/book/6adi752/)
 - [星际团宠小人鱼](https://www.yimingeduai.com/book/6adi74q/)
 - [纯爱宇智波基本恋爱法](https://www.yimingeduai.com/book/6adi70i/)
+- [被四皇错看成小动物后](https://www.yimingeduai.com/book/6adi6s3/)
 - [[封神]圣人生欲](https://www.yimingeduai.com/book/6adi68f/)
+- [误入反派培养直播后](https://www.yimingeduai.com/book/6adi5rr/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1399/index.md)
