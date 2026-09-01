@@ -1,43 +1,48 @@
 
 # 新华 MBA雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-09-01 03:41:05
+更新时间：2026-09-02 03:41:21
 
 新华 MBA雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。
 
 - [新华MBA雷火小说网](https://www.xhmba.com/)
 
 ## 最新小说
+- [男朋友买一送一](https://www.xhmba.com/book/7mj0ud0/)
 - [如何正确哄睡暴君](https://www.xhmba.com/book/7mj0ru6/)
+- [我不可能舔一个漂亮捞子](https://www.xhmba.com/book/7mj0pci/)
 - [逝水](https://www.xhmba.com/book/7mj0ojk/)
 - [微臣怜惜公主](https://www.xhmba.com/book/7mj0jp2/)
-- [老公是松散生命体](https://www.xhmba.com/book/7mj0i00/)
+- [你也没死？](https://www.xhmba.com/book/7mj0iaq/)
 - [法外狂猫](https://www.xhmba.com/book/7mj0gdu/)
-- [寻真](https://www.xhmba.com/book/7mj0djn/)
 - [和室友他爸恋爱后](https://www.xhmba.com/book/7mj0bco/)
-- [就算是龙傲天也不可以[快穿]](https://www.xhmba.com/book/7mj06bs/)
-- [女扮男装科举和皇帝撞脸了！](https://www.xhmba.com/book/7mj05dk/)
+- [哥你不能不要我](https://www.xhmba.com/book/7mj08sh/)
+- [沈助理又在隐藏他的超能力](https://www.xhmba.com/book/7mj06m0/)
+- [被豪门封建长兄娇养了](https://www.xhmba.com/book/7mj0299/)
+- [系统不许我摆烂](https://www.xhmba.com/book/7mj01oi/)
 - [多梦你一会儿](https://www.xhmba.com/book/7mivve5/)
 - [直男咒术师的限制级游戏](https://www.xhmba.com/book/7mivt1v/)
 - [穿为清冷影后的污点A](https://www.xhmba.com/book/7mivsjm/)
-- [这谁的沙雕二次元心声！](https://www.xhmba.com/book/7mivr13/)
-- [豪门养子怀了大哥的崽](https://www.xhmba.com/book/7mivord/)
-- [善逸拒绝成为咒术师](https://www.xhmba.com/book/7mivo4d/)
+- [侯府打工人](https://www.xhmba.com/book/7mivsac/)
 - [[足球]小小鸟堂堂来袭](https://www.xhmba.com/book/7mivo3l/)
 - [炮灰的我该如何上位？](https://www.xhmba.com/book/7mivnb9/)
-- [拯救世界从扮演反派开始](https://www.xhmba.com/book/7mivkkf/)
 - [[足球]罗蜜第一志愿](https://www.xhmba.com/book/7mivh0u/)
-- [关于我虚构了一个男友这件事](https://www.xhmba.com/book/7mivfvt/)
+- [隔壁班的松田君](https://www.xhmba.com/book/7mivfv4/)
+- [某柯学的正义伙伴](https://www.xhmba.com/book/7mivfb0/)
+- [撕毁女配剧本的我被神之子读心了](https://www.xhmba.com/book/7mivbhc/)
 - [好兄弟暴富后非要跟我结婚](https://www.xhmba.com/book/7mivbgc/)
+- [我，剑圣，养生中，勿扰](https://www.xhmba.com/book/7miv8na/)
+- [全天下都在求太子殿下别死！](https://www.xhmba.com/book/7miuo9p/)
 - [阿竹与野桃](https://www.xhmba.com/book/7miulur/)
-- [青空来信](https://www.xhmba.com/book/7miukvr/)
 - [井闼山经理每天都被挖墙脚](https://www.xhmba.com/book/7miuk40/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xhmba.com/book/7miuk1q/)
 - [你，后室管理员](https://www.xhmba.com/book/7mit9dn/)
 - [纯爱宇智波基本恋爱法](https://www.xhmba.com/book/7mit9c0/)
 - [星际团宠小人鱼](https://www.xhmba.com/book/7mit8o9/)
 - [[封神]圣人生欲](https://www.xhmba.com/book/7mit8aj/)
+- [原配夫人](https://www.xhmba.com/book/7mit7it/)
+- [误入反派培养直播后](https://www.xhmba.com/book/7mit7go/)
 - [高调装神，猥琐发育](https://www.xhmba.com/book/7mit7ee/)
+- [被四皇错看成小动物后](https://www.xhmba.com/book/7mit7c7/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1410/index.md)

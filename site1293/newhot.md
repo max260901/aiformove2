@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-01 03:22:15
+更新时间：2026-09-02 03:22:20
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
@@ -10,22 +10,29 @@
 ## 最新小说
 - [阿竹与野桃](https://www.ccccenergy.com/book/7car69i/)
 - [井闼山经理每天都被挖墙脚](https://www.ccccenergy.com/book/7car68e/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.ccccenergy.com/book/7car668/)
+- [失而复得的白月光[快穿]](https://www.ccccenergy.com/book/7car67a/)
+- [躲避原书剧情五年后](https://www.ccccenergy.com/book/7car66c/)
 - [[封神]圣人生欲](https://www.ccccenergy.com/book/7car64n/)
+- [原配夫人](https://www.ccccenergy.com/book/7car646/)
 - [星际团宠小人鱼](https://www.ccccenergy.com/book/7car63c/)
 - [你，后室管理员](https://www.ccccenergy.com/book/7car635/)
+- [被四皇错看成小动物后](https://www.ccccenergy.com/book/7car634/)
 - [高调装神，猥琐发育](https://www.ccccenergy.com/book/7car62g/)
-- [女扮男装科举和皇帝撞脸了！](https://www.ccccenergy.com/book/7car5uv/)
+- [从异世界穿回来后](https://www.ccccenergy.com/book/7car60a/)
 - [直男咒术师的限制级游戏](https://www.ccccenergy.com/book/7car5tj/)
 - [纯爱宇智波基本恋爱法](https://www.ccccenergy.com/book/7car5tc/)
-- [寻真](https://www.ccccenergy.com/book/7canehu/)
+- [某柯学的正义伙伴](https://www.ccccenergy.com/book/7caod92/)
+- [男朋友买一送一](https://www.ccccenergy.com/book/7cao14c/)
+- [我有嘉宾](https://www.ccccenergy.com/book/7cansm0/)
+- [系统不许我摆烂](https://www.ccccenergy.com/book/nkb84k/)
+- [沈助理又在隐藏他的超能力](https://www.ccccenergy.com/book/nkb70f/)
 - [逝水](https://www.ccccenergy.com/book/nkav2a/)
-- [老公是松散生命体](https://www.ccccenergy.com/book/nka9ut/)
-- [青空来信](https://www.ccccenergy.com/book/nka97q/)
-- [这谁的沙雕二次元心声！](https://www.ccccenergy.com/book/nka963/)
+- [隔壁班的松田君](https://www.ccccenergy.com/book/nkaevu/)
+- [你也没死？](https://www.ccccenergy.com/book/nkadaj/)
+- [误入反派培养直播后](https://www.ccccenergy.com/book/nka2g6/)
 - [多梦你一会儿](https://www.ccccenergy.com/book/nk9v65/)
 - [[足球]罗蜜第一志愿](https://www.ccccenergy.com/book/nk9sjl/)
-- [拯救世界从扮演反派开始](https://www.ccccenergy.com/book/nk9s4r/)
+- [哥你不能不要我](https://www.ccccenergy.com/book/nk9ase/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1293/index.md)

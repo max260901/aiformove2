@@ -1,14 +1,15 @@
 
 # 情感小说-精彩小说推荐网,涵盖言情都市历史科幻等多种类型
 
-更新时间：2026-09-01 03:33:37
+更新时间：2026-09-02 03:33:42
 
 情感小说致力于为广大书友推荐各种类型好看的小说，包括但不限于言情、都市、历史、科幻、灵异、军事、悬疑、玄幻、武侠、末世等。看小说，找小说就上书格格小说推荐网！
 
 - [情感小说](https://www.qinggan1687.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.qinggan1687.com/book/3qc5d93/)
+- [死遁后，师弟他不哄不停](https://www.qinggan1687.com/book/3qc5flp/)
+- [宠妃岂敢压我！](https://www.qinggan1687.com/book/3qc5fkg/)
 - [发家致富小夫郎](https://www.qinggan1687.com/book/3qc58m3/)
 - [始乱终弃高岭之花以后](https://www.qinggan1687.com/book/3qc56cu/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.qinggan1687.com/book/3qc56ct/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.qinggan1687.com/book/3qc53vq/)
 - [灭世龙崽有什么错](https://www.qinggan1687.com/book/3qc4ss5/)
 - [九零重组小家庭](https://www.qinggan1687.com/book/3qc4r5n/)
-- [人妻O救赎指南](https://www.qinggan1687.com/book/3qc4q3k/)
-- [养父](https://www.qinggan1687.com/book/3qc4q1m/)
+- [假少爷有特殊的算命技巧](https://www.qinggan1687.com/book/3qc4q83/)
 - [在虫族世界逃命升级](https://www.qinggan1687.com/book/3qc4me6/)
 - [神豪文男主是我爸](https://www.qinggan1687.com/book/3qc4li5/)
 - [从维多利亚时代开始](https://www.qinggan1687.com/book/3qc4cp5/)
-- [我有特殊的升官技巧](https://www.qinggan1687.com/book/3qc4a0l/)
 - [十九世纪贵族厨房（美食）](https://www.qinggan1687.com/book/3qc4752/)
 - [星际团宠小人鱼](https://www.qinggan1687.com/book/3qc474b/)
 - [反派人生，易如反掌[快穿]](https://www.qinggan1687.com/book/3qc46fa/)
@@ -90,14 +89,12 @@
 - [不当救世主就要当人类恶了吗](https://www.qinggan1687.com/book/3qc2v9o/)
 - [当我穿为龙傲天的情敌](https://www.qinggan1687.com/book/3qc2ugp/)
 - [十福晋吃瓜日常(清穿)](https://www.qinggan1687.com/book/3qc2ttn/)
-- [社恐直播鉴宝，但带球跑](https://www.qinggan1687.com/book/3qc2tfu/)
 - [在民俗惊悚片被诸神庇护](https://www.qinggan1687.com/book/3qc2tau/)
 - [当菟丝花要分手后](https://www.qinggan1687.com/book/3qc2rmm/)
 - [[全职高手]霸图老板是叶修](https://www.qinggan1687.com/book/3qc2rjk/)
 - [假金丝雀深陷修罗场](https://www.qinggan1687.com/book/3qc2rhe/)
 - [养成游戏，但破解版](https://www.qinggan1687.com/book/3qc2l3d/)
 - [霓虹夏日](https://www.qinggan1687.com/book/3qc2jmi/)
-- [替嫁后咸鱼继母佛系日常](https://www.qinggan1687.com/book/3qc2fi3/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.qinggan1687.com/book/3qc2b5m/)
 - [[综英美]让我统治哥谭！！！](https://www.qinggan1687.com/book/3qc2b3i/)
 - [八零恶毒后妈杀疯了](https://www.qinggan1687.com/book/3qc2ae4/)
@@ -147,25 +144,22 @@
 - [徐娘子的美食发家日常](https://www.qinggan1687.com/book/3qc11ap/)
 - [我真的没想在选秀炒CP](https://www.qinggan1687.com/book/3qc10sn/)
 - [把清冷权臣调成荡夫后](https://www.qinggan1687.com/book/3qc0ui1/)
-- [在医院旧楼捡到个外科鼻祖](https://www.qinggan1687.com/book/3qc0tg1/)
 - [[群穿]我在御兽番抢人气](https://www.qinggan1687.com/book/3qc0t0l/)
 - [假少爷不想活了](https://www.qinggan1687.com/book/3qc01n7/)
 - [清澈女大的六零年代](https://www.qinggan1687.com/book/3qc01g1/)
 - [古代种田养娃日常](https://www.qinggan1687.com/book/3qc01ff/)
 - [穿成炮灰后我封神了［快穿］](https://www.qinggan1687.com/book/3qc01ed/)
 - [五十年代港城日常](https://www.qinggan1687.com/book/3qc018i/)
+- [绝不会喜欢五条君的！](https://www.qinggan1687.com/book/3qc015i/)
 - [御兽师，我打工养你啊](https://www.qinggan1687.com/book/3qc015d/)
 - [全民求生:从小木屋到魔法农场](https://www.qinggan1687.com/book/3qc00rh/)
 - [日化人生[科研]](https://www.qinggan1687.com/book/3qc00qd/)
 - [成为养成系练习生后](https://www.qinggan1687.com/book/3qc00p8/)
-- [警察，但犯罪大师系统[刑侦]](https://www.qinggan1687.com/book/3qc00ja/)
 - [95美国贵族高中模拟](https://www.qinggan1687.com/book/3qc00e3/)
 - [刑部的小衙门](https://www.qinggan1687.com/book/3qc00dr/)
-- [如何扮演源氏重宝](https://www.qinggan1687.com/book/3qbvvvo/)
 - [猫猫也要养家糊口](https://www.qinggan1687.com/book/3qbvvtk/)
 - [[娱乐圈]过分美丽的她](https://www.qinggan1687.com/book/3qbvvrj/)
 - [我是唯一地上神国](https://www.qinggan1687.com/book/3qbvvr4/)
-- [卧底后被港岛大小姐缠上了](https://www.qinggan1687.com/book/3qbvvl7/)
 - [巨物致富：回乡开钓场](https://www.qinggan1687.com/book/3qbvvh9/)
 - [千禧年，拆迁分了十栋楼！](https://www.qinggan1687.com/book/3qbvvcd/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.qinggan1687.com/book/3qbvv8u/)

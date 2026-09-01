@@ -1,14 +1,15 @@
 
 # 春日书屋-免费热门小说在线阅读平台|晋江文学|全本免费畅读
 
-更新时间：2026-09-01 03:34:59
+更新时间：2026-09-02 03:35:05
 
 春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！
 
 - [春日书屋小说](https://www.shenyuanhg.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.shenyuanhg.com/book/7gie9ds/)
+- [死遁后，师弟他不哄不停](https://www.shenyuanhg.com/book/7gie9du/)
+- [宠妃岂敢压我！](https://www.shenyuanhg.com/book/7gie9dt/)
 - [发家致富小夫郎](https://www.shenyuanhg.com/book/7gie9dr/)
 - [身为人造人的我梦想是成为救世主](https://www.shenyuanhg.com/book/7gie8kn/)
 - [欢迎来到纳萨力克丧葬公司](https://www.shenyuanhg.com/book/7gie8kl/)
@@ -64,16 +65,14 @@
 - [我的烧烤摊超美味[美食]](https://www.shenyuanhg.com/book/7gie8g0/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.shenyuanhg.com/book/7gie38u/)
 - [我真的只会Ctrl啊！！！](https://www.shenyuanhg.com/book/7gidvfm/)
-- [养父](https://www.shenyuanhg.com/book/7gidv7e/)
-- [人妻O救赎指南](https://www.shenyuanhg.com/book/7gidv3r/)
 - [星际团宠小人鱼](https://www.shenyuanhg.com/book/7gido92/)
 - [灭世龙崽有什么错](https://www.shenyuanhg.com/book/7gidk7h/)
 - [九零重组小家庭](https://www.shenyuanhg.com/book/7gidjpq/)
+- [假少爷有特殊的算命技巧](https://www.shenyuanhg.com/book/7gidhsk/)
 - [神豪文男主是我爸](https://www.shenyuanhg.com/book/7gideh3/)
 - [在虫族世界逃命升级](https://www.shenyuanhg.com/book/7gidd5e/)
 - [趁她之危](https://www.shenyuanhg.com/book/7gidb53/)
 - [从维多利亚时代开始](https://www.shenyuanhg.com/book/7gid3gl/)
-- [我有特殊的升官技巧](https://www.shenyuanhg.com/book/7gid0k7/)
 - [反派人生，易如反掌[快穿]](https://www.shenyuanhg.com/book/7gictgf/)
 - [假少爷不想活了](https://www.shenyuanhg.com/book/7gict1j/)
 - [十九世纪贵族厨房（美食）](https://www.shenyuanhg.com/book/7gicen4/)
@@ -95,7 +94,6 @@
 - [误标记隔壁阿姨O之后](https://www.shenyuanhg.com/book/7gibku6/)
 - [十福晋吃瓜日常(清穿)](https://www.shenyuanhg.com/book/7gibkkq/)
 - [当我穿为龙傲天的情敌](https://www.shenyuanhg.com/book/7gibkjj/)
-- [社恐直播鉴宝，但带球跑](https://www.shenyuanhg.com/book/7gibi4g/)
 - [[全职高手]霸图老板是叶修](https://www.shenyuanhg.com/book/7gibgrt/)
 - [假金丝雀深陷修罗场](https://www.shenyuanhg.com/book/7gibdtr/)
 - [当菟丝花要分手后](https://www.shenyuanhg.com/book/7gibcs6/)
@@ -104,7 +102,6 @@
 - [霓虹夏日](https://www.shenyuanhg.com/book/7gib5f8/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.shenyuanhg.com/book/7gib49r/)
 - [高嫁之后](https://www.shenyuanhg.com/book/7gib3is/)
-- [替嫁后咸鱼继母佛系日常](https://www.shenyuanhg.com/book/7gib0uc/)
 - [啊？我是万人迷？［虫族］](https://www.shenyuanhg.com/book/7giava1/)
 - [米花无刁民](https://www.shenyuanhg.com/book/7giauu4/)
 - [直男在耽美被迫万人迷［快穿］](https://www.shenyuanhg.com/book/7giatlp/)
@@ -149,7 +146,6 @@
 - [绿茶病秧子骗他说喜欢](https://www.shenyuanhg.com/book/7gi9omi/)
 - [徐娘子的美食发家日常](https://www.shenyuanhg.com/book/7gi9nhs/)
 - [我真的没想在选秀炒CP](https://www.shenyuanhg.com/book/7gi9mve/)
-- [在医院旧楼捡到个外科鼻祖](https://www.shenyuanhg.com/book/7gi9khb/)
 - [把清冷权臣调成荡夫后](https://www.shenyuanhg.com/book/7gi9jh5/)
 - [[群穿]我在御兽番抢人气](https://www.shenyuanhg.com/book/7gi9g85/)
 - [日化人生[科研]](https://www.shenyuanhg.com/book/7gi8oc6/)
@@ -162,18 +158,16 @@
 - [满级大佬制霸热血运动番](https://www.shenyuanhg.com/book/7gi8ngf/)
 - [巨物致富：回乡开钓场](https://www.shenyuanhg.com/book/7gi8n56/)
 - [全民求生:从小木屋到魔法农场](https://www.shenyuanhg.com/book/7gi8n4d/)
-- [卧底后被港岛大小姐缠上了](https://www.shenyuanhg.com/book/7gi8n2g/)
 - [古代种田养娃日常](https://www.shenyuanhg.com/book/7gi8n0h/)
 - [清澈女大的六零年代](https://www.shenyuanhg.com/book/7gi8mv3/)
+- [绝不会喜欢五条君的！](https://www.shenyuanhg.com/book/7gi8mpv/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shenyuanhg.com/book/7gi8mm1/)
 - [海岛求生：生活玩家种田囤货](https://www.shenyuanhg.com/book/7gi8mlr/)
-- [如何扮演源氏重宝](https://www.shenyuanhg.com/book/7gi8mkp/)
 - [六零之成了卷王的妹妹](https://www.shenyuanhg.com/book/7gi8mkk/)
 - [猫猫也要养家糊口](https://www.shenyuanhg.com/book/7gi8mdp/)
 - [高门小婢](https://www.shenyuanhg.com/book/7gi8mbh/)
 - [我是唯一地上神国](https://www.shenyuanhg.com/book/7gi8mac/)
 - [成为养成系练习生后](https://www.shenyuanhg.com/book/7gi8m6o/)
-- [警察，但犯罪大师系统[刑侦]](https://www.shenyuanhg.com/book/7gi8m2a/)
 - [大瑛弟国](https://www.shenyuanhg.com/book/7gi8lpk/)
 - [御兽师，我打工养你啊](https://www.shenyuanhg.com/book/7gi8lp4/)
 ## 相关内容

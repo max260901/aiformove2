@@ -1,40 +1,49 @@
 
 # 漫话乐文小说-免费小说阅读,无弹窗,最新章节更新快
 
-更新时间：2026-09-01 03:31:10
+更新时间：2026-09-02 03:31:15
 
 漫话乐文小说是广大书友最值得收藏的网络小说阅读网，提供当前最火热的网络小说免费阅读服务，高质量的小说最新章节更新快速，适合所有网络小说爱好者。
 
 - [漫话乐文小说](https://www.manhua958.com/)
 
 ## 最新小说
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.manhua958.com/book/17schck/)
 - [阿竹与野桃](https://www.manhua958.com/book/17sch8k/)
+- [从异世界穿回来后](https://www.manhua958.com/book/17sccus/)
+- [我有嘉宾](https://www.manhua958.com/book/17sccml/)
 - [你，后室管理员](https://www.manhua958.com/book/17sbi58/)
+- [原配夫人](https://www.manhua958.com/book/17sbi10/)
 - [星际团宠小人鱼](https://www.manhua958.com/book/17sbhqj/)
 - [高调装神，猥琐发育](https://www.manhua958.com/book/17sbaq2/)
+- [男朋友买一送一](https://www.manhua958.com/book/17savft/)
+- [失而复得的白月光[快穿]](https://www.manhua958.com/book/17sas2m/)
 - [如何正确哄睡暴君](https://www.manhua958.com/book/17sap12/)
+- [躲避原书剧情五年后](https://www.manhua958.com/book/17saoav/)
+- [你也没死？](https://www.manhua958.com/book/17sag4o/)
 - [逝水](https://www.manhua958.com/book/17saf8l/)
-- [寻真](https://www.manhua958.com/book/17saeo3/)
-- [老公是松散生命体](https://www.manhua958.com/book/17sa7li/)
+- [我不可能舔一个漂亮捞子](https://www.manhua958.com/book/17saf33/)
+- [被鬼怪宠爱的漂亮书生](https://www.manhua958.com/book/17saa0i/)
+- [沈助理又在隐藏他的超能力](https://www.manhua958.com/book/17sa7k6/)
 - [微臣怜惜公主](https://www.manhua958.com/book/17sa6dq/)
+- [系统不许我摆烂](https://www.manhua958.com/book/17sa497/)
+- [误入反派培养直播后](https://www.manhua958.com/book/17s9ugq/)
 - [炮灰的我该如何上位？](https://www.manhua958.com/book/17s9okl/)
+- [被四皇错看成小动物后](https://www.manhua958.com/book/17s9nvc/)
 - [多梦你一会儿](https://www.manhua958.com/book/17s9nod/)
+- [哥你不能不要我](https://www.manhua958.com/book/17s9nm6/)
 - [[封神]圣人生欲](https://www.manhua958.com/book/17s9mi8/)
-- [善逸拒绝成为咒术师](https://www.manhua958.com/book/17s9lf9/)
-- [这谁的沙雕二次元心声！](https://www.manhua958.com/book/17s9j4e/)
-- [青空来信](https://www.manhua958.com/book/17s9f9s/)
+- [隔壁班的松田君](https://www.manhua958.com/book/17s9io1/)
 - [[足球]罗蜜第一志愿](https://www.manhua958.com/book/17s9f9o/)
+- [某柯学的正义伙伴](https://www.manhua958.com/book/17s9ei1/)
 - [井闼山经理每天都被挖墙脚](https://www.manhua958.com/book/17s9b3r/)
 - [[足球]小小鸟堂堂来袭](https://www.manhua958.com/book/17s93ke/)
 - [好兄弟暴富后非要跟我结婚](https://www.manhua958.com/book/17s8u69/)
+- [侯府打工人](https://www.manhua958.com/book/17s8tl0/)
 - [法外狂猫](https://www.manhua958.com/book/17s8t3d/)
-- [关于我虚构了一个男友这件事](https://www.manhua958.com/book/17s8qng/)
+- [我，剑圣，养生中，勿扰](https://www.manhua958.com/book/17s8rk2/)
 - [和室友他爸恋爱后](https://www.manhua958.com/book/17s8hn1/)
 - [直男咒术师的限制级游戏](https://www.manhua958.com/book/17s7cjd/)
-- [拯救世界从扮演反派开始](https://www.manhua958.com/book/17s7bg5/)
 - [纯爱宇智波基本恋爱法](https://www.manhua958.com/book/17s7ar2/)
-- [女扮男装科举和皇帝撞脸了！](https://www.manhua958.com/book/17s7a5e/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1362/index.md)

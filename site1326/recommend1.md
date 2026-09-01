@@ -1,7 +1,7 @@
 
 # 欣怡书屋 - 免费最新章节小说阅读,全本无弹窗
 
-更新时间：2026-09-01 03:45:05
+更新时间：2026-09-02 03:45:17
 
 欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。
 
@@ -168,7 +168,6 @@
 - [95美国贵族高中模拟](https://www.znenghs.com/book/5rfun/)
 - [我是唯一地上神国](https://www.znenghs.com/book/5rfri/)
 - [五十年代港城日常](https://www.znenghs.com/book/5rfp6/)
-- [卧底后被港岛大小姐缠上了](https://www.znenghs.com/book/5rfmq/)
 - [[娱乐圈]过分美丽的她](https://www.znenghs.com/book/5rfhr/)
 - [清澈女大的六零年代](https://www.znenghs.com/book/5rfcn/)
 ## 相关内容

@@ -1,14 +1,15 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-01 03:32:37
+更新时间：2026-09-02 03:32:43
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。
 
 - [左叶小说网](https://www.pusytgp.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.pusytgp.com/book/7pbovc6/)
+- [宠妃岂敢压我！](https://www.pusytgp.com/book/7pbovc8/)
+- [死遁后，师弟他不哄不停](https://www.pusytgp.com/book/7pbovc7/)
 - [发家致富小夫郎](https://www.pusytgp.com/book/7pbovc5/)
 - [阿竹与野桃](https://www.pusytgp.com/book/7pbouiv/)
 - [退婚流龙傲天，但未婚夫是我](https://www.pusytgp.com/book/7pbouit/)
@@ -64,16 +65,14 @@
 - [游戏boss们抢着要当我的猫[全息]](https://www.pusytgp.com/book/7pbouee/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.pusytgp.com/book/7pbop6n/)
 - [我真的只会Ctrl啊！！！](https://www.pusytgp.com/book/7pbolcb/)
-- [养父](https://www.pusytgp.com/book/7pbol89/)
-- [人妻O救赎指南](https://www.pusytgp.com/book/7pbokvb/)
 - [星际团宠小人鱼](https://www.pusytgp.com/book/7pboe9n/)
 - [灭世龙崽有什么错](https://www.pusytgp.com/book/7pboa3p/)
 - [九零重组小家庭](https://www.pusytgp.com/book/7pbo9nv/)
+- [假少爷有特殊的算命技巧](https://www.pusytgp.com/book/7pbo7op/)
 - [神豪文男主是我爸](https://www.pusytgp.com/book/7pbo4ig/)
 - [在虫族世界逃命升级](https://www.pusytgp.com/book/7pbo33t/)
 - [趁她之危](https://www.pusytgp.com/book/7pbo14b/)
 - [从维多利亚时代开始](https://www.pusytgp.com/book/7pbnpd1/)
-- [我有特殊的升官技巧](https://www.pusytgp.com/book/7pbnmlp/)
 - [反派人生，易如反掌[快穿]](https://www.pusytgp.com/book/7pbnj9e/)
 - [假少爷不想活了](https://www.pusytgp.com/book/7pbnj2v/)
 - [春归燕](https://www.pusytgp.com/book/7pbn6a8/)
@@ -95,7 +94,6 @@
 - [十福晋吃瓜日常(清穿)](https://www.pusytgp.com/book/7pbmagt/)
 - [不当救世主就要当人类恶了吗](https://www.pusytgp.com/book/7pbmaaf/)
 - [当我穿为龙傲天的情敌](https://www.pusytgp.com/book/7pbma66/)
-- [社恐直播鉴宝，但带球跑](https://www.pusytgp.com/book/7pbm6vt/)
 - [[全职高手]霸图老板是叶修](https://www.pusytgp.com/book/7pbm6sb/)
 - [假金丝雀深陷修罗场](https://www.pusytgp.com/book/7pbm5p0/)
 - [养成游戏，但破解版](https://www.pusytgp.com/book/7pbm2u8/)
@@ -104,7 +102,6 @@
 - [霓虹夏日](https://www.pusytgp.com/book/7pblrrh/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.pusytgp.com/book/7pblp16/)
 - [高嫁之后](https://www.pusytgp.com/book/7pblp0n/)
-- [替嫁后咸鱼继母佛系日常](https://www.pusytgp.com/book/7pblll0/)
 - [啊？我是万人迷？［虫族］](https://www.pusytgp.com/book/7pbll65/)
 - [米花无刁民](https://www.pusytgp.com/book/7pbll1i/)
 - [重力系杀手误入忍界记实录](https://www.pusytgp.com/book/7pbljk5/)
@@ -150,12 +147,11 @@
 - [绿茶病秧子骗他说喜欢](https://www.pusytgp.com/book/7pbke17/)
 - [徐娘子的美食发家日常](https://www.pusytgp.com/book/7pbkcsr/)
 - [把清冷权臣调成荡夫后](https://www.pusytgp.com/book/7pbkb8g/)
-- [在医院旧楼捡到个外科鼻祖](https://www.pusytgp.com/book/7pbkaoj/)
 - [[群穿]我在御兽番抢人气](https://www.pusytgp.com/book/7pbk85g/)
 - [95美国贵族高中模拟](https://www.pusytgp.com/book/7pbjebn/)
 - [[娱乐圈]过分美丽的她](https://www.pusytgp.com/book/7pbjebb/)
+- [绝不会喜欢五条君的！](https://www.pusytgp.com/book/7pbje53/)
 - [我不是御兽大师](https://www.pusytgp.com/book/7pbje50/)
-- [警察，但犯罪大师系统[刑侦]](https://www.pusytgp.com/book/7pbje4f/)
 - [海岛求生：生活玩家种田囤货](https://www.pusytgp.com/book/7pbje2o/)
 - [日化人生[科研]](https://www.pusytgp.com/book/7pbjdvq/)
 - [大瑛弟国](https://www.pusytgp.com/book/7pbjdv0/)
@@ -173,9 +169,7 @@
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.pusytgp.com/book/7pbjbu8/)
 - [我有一座安全城](https://www.pusytgp.com/book/7pbjbp1/)
 - [全民求生:从小木屋到魔法农场](https://www.pusytgp.com/book/7pbjbo2/)
-- [如何扮演源氏重宝](https://www.pusytgp.com/book/7pbjbf1/)
 - [猫猫也要养家糊口](https://www.pusytgp.com/book/7pbjbdj/)
-- [卧底后被港岛大小姐缠上了](https://www.pusytgp.com/book/7pbjbdd/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1343/index.md)

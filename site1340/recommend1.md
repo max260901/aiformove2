@@ -1,14 +1,15 @@
 
 # 时光树园-热门小说大全-小说排行榜-好看的小说推荐-热门小说推荐
 
-更新时间：2026-09-01 03:29:27
+更新时间：2026-09-02 03:29:31
 
 时光树园是一个热门小说推荐网站，这里有热门全本小说大全、好看的小说推荐、小说排行榜等。您可以在这里无广告在线阅读优质的豪门总裁小说、现代言情小说、古代言情小说、都市小说、穿越小说、玄幻小说、武侠仙侠等各类热门小说。
 
 - [时光树园小说](https://www.kltbl.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.kltbl.com/book/5achcns/)
+- [宠妃岂敢压我！](https://www.kltbl.com/book/5achcnu/)
+- [死遁后，师弟他不哄不停](https://www.kltbl.com/book/5achcnt/)
 - [发家致富小夫郎](https://www.kltbl.com/book/5achcnr/)
 - [在千禧年的伦敦当女巫](https://www.kltbl.com/book/5achbun/)
 - [游戏角色想和玩家谈恋爱](https://www.kltbl.com/book/5achbum/)
@@ -64,16 +65,14 @@
 - [和光太郎谈恋爱](https://www.kltbl.com/book/5achbq5/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.kltbl.com/book/5ach6hs/)
 - [我真的只会Ctrl啊！！！](https://www.kltbl.com/book/5ach2q9/)
-- [养父](https://www.kltbl.com/book/5ach2hu/)
-- [人妻O救赎指南](https://www.kltbl.com/book/5ach2ar/)
 - [星际团宠小人鱼](https://www.kltbl.com/book/5acgrm2/)
 - [灭世龙崽有什么错](https://www.kltbl.com/book/5acgngm/)
 - [九零重组小家庭](https://www.kltbl.com/book/5acgn2l/)
+- [假少爷有特殊的算命技巧](https://www.kltbl.com/book/5acgl4r/)
 - [神豪文男主是我爸](https://www.kltbl.com/book/5acghsd/)
 - [在虫族世界逃命升级](https://www.kltbl.com/book/5acggf2/)
 - [趁她之危](https://www.kltbl.com/book/5acgee0/)
 - [从维多利亚时代开始](https://www.kltbl.com/book/5acg6n5/)
-- [我有特殊的升官技巧](https://www.kltbl.com/book/5acg3sb/)
 - [反派人生，易如反掌[快穿]](https://www.kltbl.com/book/5acg0rf/)
 - [假少爷不想活了](https://www.kltbl.com/book/5acg0a3/)
 - [十九世纪贵族厨房（美食）](https://www.kltbl.com/book/5acfi7r/)
@@ -95,7 +94,6 @@
 - [不当救世主就要当人类恶了吗](https://www.kltbl.com/book/5acenff/)
 - [误标记隔壁阿姨O之后](https://www.kltbl.com/book/5acenbk/)
 - [当我穿为龙傲天的情敌](https://www.kltbl.com/book/5acen85/)
-- [社恐直播鉴宝，但带球跑](https://www.kltbl.com/book/5acemkn/)
 - [[全职高手]霸图老板是叶修](https://www.kltbl.com/book/5acekhe/)
 - [假金丝雀深陷修罗场](https://www.kltbl.com/book/5acegth/)
 - [养成游戏，但破解版](https://www.kltbl.com/book/5aceg0f/)
@@ -105,7 +103,6 @@
 - [高嫁之后](https://www.kltbl.com/book/5ace7sm/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.kltbl.com/book/5ace69d/)
 - [啊？我是万人迷？［虫族］](https://www.kltbl.com/book/5ace4nc/)
-- [替嫁后咸鱼继母佛系日常](https://www.kltbl.com/book/5ace2mk/)
 - [米花无刁民](https://www.kltbl.com/book/5ace2et/)
 - [直男在耽美被迫万人迷［快穿］](https://www.kltbl.com/book/5ace11t/)
 - [重力系杀手误入忍界记实录](https://www.kltbl.com/book/5ace0gv/)
@@ -150,7 +147,6 @@
 - [我真的没想在选秀炒CP](https://www.kltbl.com/book/5accr10/)
 - [绿茶病秧子骗他说喜欢](https://www.kltbl.com/book/5accpv6/)
 - [把清冷权臣调成荡夫后](https://www.kltbl.com/book/5accnhs/)
-- [在医院旧楼捡到个外科鼻祖](https://www.kltbl.com/book/5accmgm/)
 - [[群穿]我在御兽番抢人气](https://www.kltbl.com/book/5accjuf/)
 - [清澈女大的六零年代](https://www.kltbl.com/book/5acbrmq/)
 - [古代种田养娃日常](https://www.kltbl.com/book/5acbrf5/)
@@ -163,7 +159,7 @@
 - [高门小婢](https://www.kltbl.com/book/5acbqtu/)
 - [猫猫也要养家糊口](https://www.kltbl.com/book/5acbqp1/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kltbl.com/book/5acbqk5/)
-- [警察，但犯罪大师系统[刑侦]](https://www.kltbl.com/book/5acbqia/)
+- [绝不会喜欢五条君的！](https://www.kltbl.com/book/5acbqis/)
 - [我不是御兽大师](https://www.kltbl.com/book/5acbqi1/)
 - [[娱乐圈]过分美丽的她](https://www.kltbl.com/book/5acbqfb/)
 - [御兽师，我打工养你啊](https://www.kltbl.com/book/5acbqcc/)
@@ -173,9 +169,7 @@
 - [满级大佬制霸热血运动番](https://www.kltbl.com/book/5acbptp/)
 - [穿成炮灰后我封神了［快穿］](https://www.kltbl.com/book/5acbplb/)
 - [日化人生[科研]](https://www.kltbl.com/book/5acbpk9/)
-- [卧底后被港岛大小姐缠上了](https://www.kltbl.com/book/5acbpj0/)
 - [全民求生:从小木屋到魔法农场](https://www.kltbl.com/book/5acbp78/)
-- [如何扮演源氏重宝](https://www.kltbl.com/book/5acbohs/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1340/index.md)

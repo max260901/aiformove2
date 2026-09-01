@@ -1,7 +1,7 @@
 
 # 笔看阁-最热门的免费小说网 | 玄幻、网游、言情、穿越、都市全本小说在线阅读
 
-更新时间：2026-09-01 03:23:38
+更新时间：2026-09-02 03:23:43
 
 笔看阁是最热门的免费小说网站之一，专注于提供包括玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读服务。本站承诺不设任何弹窗广告，页面简洁易用，为读者创造一个纯净舒适的阅读环境。
 
@@ -9,29 +9,36 @@
 
 ## 最新小说
 - [阿竹与野桃](https://www.dasenluan.com/book/3jmhjo3/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.dasenluan.com/book/3jmhjns/)
+- [躲避原书剧情五年后](https://www.dasenluan.com/book/3jmhhfo/)
+- [我有嘉宾](https://www.dasenluan.com/book/3jmh8gl/)
+- [从异世界穿回来后](https://www.dasenluan.com/book/3jmh7s1/)
+- [原配夫人](https://www.dasenluan.com/book/3jmh3ed/)
 - [星际团宠小人鱼](https://www.dasenluan.com/book/3jmh3e1/)
 - [你，后室管理员](https://www.dasenluan.com/book/3jmh3bc/)
 - [高调装神，猥琐发育](https://www.dasenluan.com/book/3jmfoig/)
-- [女扮男装科举和皇帝撞脸了！](https://www.dasenluan.com/book/3jmfgr3/)
+- [男朋友买一送一](https://www.dasenluan.com/book/3jmfml8/)
 - [直男咒术师的限制级游戏](https://www.dasenluan.com/book/3jmfg4k/)
+- [失而复得的白月光[快穿]](https://www.dasenluan.com/book/3jmf9m7/)
 - [如何正确哄睡暴君](https://www.dasenluan.com/book/3jmf8fu/)
-- [寻真](https://www.dasenluan.com/book/3jmf67r/)
 - [逝水](https://www.dasenluan.com/book/3jmf3v9/)
+- [你也没死？](https://www.dasenluan.com/book/3jmf0e4/)
+- [我不可能舔一个漂亮捞子](https://www.dasenluan.com/book/3jmeu7c/)
+- [沈助理又在隐藏他的超能力](https://www.dasenluan.com/book/3jmessp/)
+- [系统不许我摆烂](https://www.dasenluan.com/book/3jmerba/)
+- [误入反派培养直播后](https://www.dasenluan.com/book/3jmehmd/)
+- [哥你不能不要我](https://www.dasenluan.com/book/3jmebt8/)
+- [被鬼怪宠爱的漂亮书生](https://www.dasenluan.com/book/3jmebkj/)
 - [多梦你一会儿](https://www.dasenluan.com/book/3jmeaiv/)
 - [微臣怜惜公主](https://www.dasenluan.com/book/3jmea1i/)
-- [拯救世界从扮演反派开始](https://www.dasenluan.com/book/3jme7go/)
 - [炮灰的我该如何上位？](https://www.dasenluan.com/book/3jme73e/)
-- [这谁的沙雕二次元心声！](https://www.dasenluan.com/book/3jme4o2/)
+- [隔壁班的松田君](https://www.dasenluan.com/book/3jme5s7/)
 - [[封神]圣人生欲](https://www.dasenluan.com/book/3jme377/)
-- [青空来信](https://www.dasenluan.com/book/3jme28n/)
-- [老公是松散生命体](https://www.dasenluan.com/book/3jme0ts/)
-- [善逸拒绝成为咒术师](https://www.dasenluan.com/book/3jme0bq/)
+- [某柯学的正义伙伴](https://www.dasenluan.com/book/3jme2fo/)
 - [纯爱宇智波基本恋爱法](https://www.dasenluan.com/book/3jme085/)
 - [[足球]罗蜜第一志愿](https://www.dasenluan.com/book/3jmdtl5/)
+- [被四皇错看成小动物后](https://www.dasenluan.com/book/3jmdt5i/)
 - [井闼山经理每天都被挖墙脚](https://www.dasenluan.com/book/3jmdq4o/)
 - [好兄弟暴富后非要跟我结婚](https://www.dasenluan.com/book/3jmde0k/)
-- [关于我虚构了一个男友这件事](https://www.dasenluan.com/book/3jmddgv/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1336/index.md)
