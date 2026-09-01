@@ -1,0 +1,58 @@
+
+# 武侠文学网 - 值得收藏的小说阅读平台
+
+更新时间：2026-09-01 03:40:37
+
+武侠文学网为您提供丰富多样的小说资源，在这里您可以找到最新最热门的小说作品。无论是经典文学还是现代流行小说，都是您值得收藏的阅读选择。
+
+- [武侠文学网](https://www.wuxia988.com/)
+
+## 最新小说
+- [我的烧烤摊超美味[美食]](https://www.wuxia988.com/book/1ms2s89/)
+- [阿竹与野桃](https://www.wuxia988.com/book/1ms2s73/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wuxia988.com/book/1ms2s5j/)
+- [你，后室管理员](https://www.wuxia988.com/book/1ms1stu/)
+- [星际团宠小人鱼](https://www.wuxia988.com/book/1ms1sq3/)
+- [高调装神，猥琐发育](https://www.wuxia988.com/book/1ms1lnv/)
+- [如何正确哄睡暴君](https://www.wuxia988.com/book/1ms122q/)
+- [逝水](https://www.wuxia988.com/book/1ms0pn7/)
+- [寻真](https://www.wuxia988.com/book/1ms0p9v/)
+- [老公是松散生命体](https://www.wuxia988.com/book/1ms0itq/)
+- [微臣怜惜公主](https://www.wuxia988.com/book/1ms0fnr/)
+- [多梦你一会儿](https://www.wuxia988.com/book/1ms03f6/)
+- [[封神]圣人生欲](https://www.wuxia988.com/book/1ms020t/)
+- [炮灰的我该如何上位？](https://www.wuxia988.com/book/1ms0127/)
+- [这谁的沙雕二次元心声！](https://www.wuxia988.com/book/1ms00s7/)
+- [善逸拒绝成为咒术师](https://www.wuxia988.com/book/1ms00o5/)
+- [[足球]罗蜜第一志愿](https://www.wuxia988.com/book/1mrvqg0/)
+- [青空来信](https://www.wuxia988.com/book/1mrvq7j/)
+- [井闼山经理每天都被挖墙脚](https://www.wuxia988.com/book/1mrvn6h/)
+- [[足球]小小鸟堂堂来袭](https://www.wuxia988.com/book/1mrvec2/)
+- [法外狂猫](https://www.wuxia988.com/book/1mrv92r/)
+- [好兄弟暴富后非要跟我结婚](https://www.wuxia988.com/book/1mrv8pb/)
+- [关于我虚构了一个男友这件事](https://www.wuxia988.com/book/1mrv5h9/)
+- [和室友他爸恋爱后](https://www.wuxia988.com/book/1mrus0m/)
+- [女扮男装科举和皇帝撞脸了！](https://www.wuxia988.com/book/1mrtn45/)
+- [纯爱宇智波基本恋爱法](https://www.wuxia988.com/book/1mrtmlq/)
+- [拯救世界从扮演反派开始](https://www.wuxia988.com/book/1mrtmi5/)
+- [直男咒术师的限制级游戏](https://www.wuxia988.com/book/1mrtltr/)
+## 相关内容
+- [README](/README.md)
+- [首页](/site1369/index.md)
+- [最新热点小说](/site1369/newhot.md)
+- [人气小说](/site1369/b111.md)
+- [推荐小说](/site1369/recommend1.md)
+- [推荐小说列表](/site1369/recommend/index.md)
+- [热点小说](/site1369/hot/index.md)
+- [全本小说](/site1369/quanben/index.md)
+- [网站地图](/site1369/sitemap/index.md)
+- [标签](/site1369/tag/index.md)
+- [爱情小说](/site1369/category101/index.md)
+- [武侠小说](/site1369/category102/index.md)
+- [奇幻小说](/site1369/category103/index.md)
+- [仙侠小说](/site1369/category104/index.md)
+- [游戏小说](/site1369/category105/index.md)
+- [传奇小说](/site1369/category106/index.md)
+- [科幻小说](/site1369/category107/index.md)
+- [惊悚小说](/site1369/category109/index.md)
+- [悬疑小说](/site1369/category110/index.md)

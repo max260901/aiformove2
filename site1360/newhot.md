@@ -1,0 +1,57 @@
+
+# 生活文学小说-质感小说文学网站|高质量文学作品与创作交流平台
+
+更新时间：2026-09-01 03:34:45
+
+生活文学小说是一个专注于提供质感小说文学的网站，致力于为文学爱好者打造一个高质量的文学作品和创作交流平台，在这里可以享受到独特的夜间文学之美。
+
+- [生活文学小说](https://www.shenghuo988.com/)
+
+## 最新小说
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shenghuo988.com/book/86gar8d/)
+- [阿竹与野桃](https://www.shenghuo988.com/book/86gar6e/)
+- [你，后室管理员](https://www.shenghuo988.com/book/86g9rs6/)
+- [星际团宠小人鱼](https://www.shenghuo988.com/book/86g9ro3/)
+- [高调装神，猥琐发育](https://www.shenghuo988.com/book/86g9kll/)
+- [如何正确哄睡暴君](https://www.shenghuo988.com/book/86g91bo/)
+- [寻真](https://www.shenghuo988.com/book/86g8q7n/)
+- [逝水](https://www.shenghuo988.com/book/86g8q72/)
+- [老公是松散生命体](https://www.shenghuo988.com/book/86g8huu/)
+- [微臣怜惜公主](https://www.shenghuo988.com/book/86g8gl5/)
+- [炮灰的我该如何上位？](https://www.shenghuo988.com/book/86g82db/)
+- [[封神]圣人生欲](https://www.shenghuo988.com/book/86g82aq/)
+- [多梦你一会儿](https://www.shenghuo988.com/book/86g81rk/)
+- [善逸拒绝成为咒术师](https://www.shenghuo988.com/book/86g7v7p/)
+- [这谁的沙雕二次元心声！](https://www.shenghuo988.com/book/86g7uj9/)
+- [青空来信](https://www.shenghuo988.com/book/86g7q15/)
+- [[足球]罗蜜第一志愿](https://www.shenghuo988.com/book/86g7n9p/)
+- [井闼山经理每天都被挖墙脚](https://www.shenghuo988.com/book/86g7kh7/)
+- [[足球]小小鸟堂堂来袭](https://www.shenghuo988.com/book/86g7cdu/)
+- [好兄弟暴富后非要跟我结婚](https://www.shenghuo988.com/book/86g77bd/)
+- [法外狂猫](https://www.shenghuo988.com/book/86g76ef/)
+- [关于我虚构了一个男友这件事](https://www.shenghuo988.com/book/86g73ul/)
+- [和室友他爸恋爱后](https://www.shenghuo988.com/book/86g6q62/)
+- [拯救世界从扮演反派开始](https://www.shenghuo988.com/book/86g5lv3/)
+- [纯爱宇智波基本恋爱法](https://www.shenghuo988.com/book/86g5lcf/)
+- [直男咒术师的限制级游戏](https://www.shenghuo988.com/book/86g5l2b/)
+- [女扮男装科举和皇帝撞脸了！](https://www.shenghuo988.com/book/86g5kne/)
+## 相关内容
+- [README](/README.md)
+- [首页](/site1360/index.md)
+- [最新热点小说](/site1360/newhot.md)
+- [人气小说](/site1360/b111.md)
+- [推荐小说](/site1360/recommend1.md)
+- [推荐小说列表](/site1360/recommend/index.md)
+- [热点小说](/site1360/hot/index.md)
+- [全本小说](/site1360/quanben/index.md)
+- [网站地图](/site1360/sitemap/index.md)
+- [标签](/site1360/tag/index.md)
+- [爱情小说](/site1360/category101/index.md)
+- [武侠小说](/site1360/category102/index.md)
+- [奇幻小说](/site1360/category103/index.md)
+- [仙侠小说](/site1360/category104/index.md)
+- [游戏小说](/site1360/category105/index.md)
+- [传奇小说](/site1360/category106/index.md)
+- [科幻小说](/site1360/category107/index.md)
+- [惊悚小说](/site1360/category109/index.md)
+- [悬疑小说](/site1360/category110/index.md)
