@@ -1,0 +1,57 @@
+
+# 看剧文学网 - 书友最值得收藏的小说阅读网
+
+更新时间：2026-09-01 03:28:24
+
+看剧文学网，精选最好看的小说推荐给大家在线阅读。这里有网络小说大全，包括最火、最热门的小说最新章节，是书友最值得收藏的免费小说阅读网。
+
+- [看剧文学网](https://www.kanju788.com/)
+
+## 最新小说
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kanju788.com/book/to4ico/)
+- [阿竹与野桃](https://www.kanju788.com/book/to4ibq/)
+- [星际团宠小人鱼](https://www.kanju788.com/book/to3jnv/)
+- [你，后室管理员](https://www.kanju788.com/book/to3jeb/)
+- [高调装神，猥琐发育](https://www.kanju788.com/book/to3ckd/)
+- [如何正确哄睡暴君](https://www.kanju788.com/book/to2phd/)
+- [寻真](https://www.kanju788.com/book/to2fee/)
+- [逝水](https://www.kanju788.com/book/to2env/)
+- [老公是松散生命体](https://www.kanju788.com/book/to2a6p/)
+- [微臣怜惜公主](https://www.kanju788.com/book/to2782/)
+- [[封神]圣人生欲](https://www.kanju788.com/book/to1p42/)
+- [炮灰的我该如何上位？](https://www.kanju788.com/book/to1o3d/)
+- [多梦你一会儿](https://www.kanju788.com/book/to1mpi/)
+- [这谁的沙雕二次元心声！](https://www.kanju788.com/book/to1lai/)
+- [善逸拒绝成为咒术师](https://www.kanju788.com/book/to1k9p/)
+- [[足球]罗蜜第一志愿](https://www.kanju788.com/book/to1ge4/)
+- [青空来信](https://www.kanju788.com/book/to1fe1/)
+- [井闼山经理每天都被挖墙脚](https://www.kanju788.com/book/to1dih/)
+- [[足球]小小鸟堂堂来袭](https://www.kanju788.com/book/to12el/)
+- [好兄弟暴富后非要跟我结婚](https://www.kanju788.com/book/to0toh/)
+- [法外狂猫](https://www.kanju788.com/book/to0sb3/)
+- [关于我虚构了一个男友这件事](https://www.kanju788.com/book/to0oig/)
+- [和室友他爸恋爱后](https://www.kanju788.com/book/to0imn/)
+- [女扮男装科举和皇帝撞脸了！](https://www.kanju788.com/book/tnvdf9/)
+- [纯爱宇智波基本恋爱法](https://www.kanju788.com/book/tnvcdv/)
+- [直男咒术师的限制级游戏](https://www.kanju788.com/book/tnvb1d/)
+- [拯救世界从扮演反派开始](https://www.kanju788.com/book/tnvajd/)
+## 相关内容
+- [README](/README.md)
+- [首页](/site1348/index.md)
+- [最新热点小说](/site1348/newhot.md)
+- [人气小说](/site1348/b111.md)
+- [推荐小说](/site1348/recommend1.md)
+- [推荐小说列表](/site1348/recommend/index.md)
+- [热点小说](/site1348/hot/index.md)
+- [全本小说](/site1348/quanben/index.md)
+- [网站地图](/site1348/sitemap/index.md)
+- [标签](/site1348/tag/index.md)
+- [爱情小说](/site1348/category101/index.md)
+- [武侠小说](/site1348/category102/index.md)
+- [奇幻小说](/site1348/category103/index.md)
+- [仙侠小说](/site1348/category104/index.md)
+- [游戏小说](/site1348/category105/index.md)
+- [传奇小说](/site1348/category106/index.md)
+- [科幻小说](/site1348/category107/index.md)
+- [惊悚小说](/site1348/category109/index.md)
+- [悬疑小说](/site1348/category110/index.md)
