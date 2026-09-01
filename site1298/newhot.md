@@ -1,31 +1,38 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-09-01 03:29:42
+更新时间：2026-09-02 03:29:46
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
 - [笔趣屋](https://www.kmjike.com/)
 
 ## 最新小说
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kmjike.com/book/4mlvlll/)
+- [躲避原书剧情五年后](https://www.kmjike.com/book/4mlvlkt/)
+- [失而复得的白月光[快穿]](https://www.kmjike.com/book/4mlvlir/)
 - [阿竹与野桃](https://www.kmjike.com/book/4mlvlio/)
 - [井闼山经理每天都被挖墙脚](https://www.kmjike.com/book/4mlvli6/)
 - [[封神]圣人生欲](https://www.kmjike.com/book/4mlvlgr/)
+- [原配夫人](https://www.kmjike.com/book/4mlvlgm/)
 - [星际团宠小人鱼](https://www.kmjike.com/book/4mlvlgg/)
+- [被四皇错看成小动物后](https://www.kmjike.com/book/4mlvlgd/)
 - [你，后室管理员](https://www.kmjike.com/book/4mlvlep/)
 - [高调装神，猥琐发育](https://www.kmjike.com/book/4mlvlef/)
 - [纯爱宇智波基本恋爱法](https://www.kmjike.com/book/4mlvlde/)
 - [直男咒术师的限制级游戏](https://www.kmjike.com/book/4mlvld8/)
-- [女扮男装科举和皇帝撞脸了！](https://www.kmjike.com/book/4mlvl9f/)
-- [寻真](https://www.kmjike.com/book/4mlrujs/)
+- [从异世界穿回来后](https://www.kmjike.com/book/4mlvl9p/)
+- [某柯学的正义伙伴](https://www.kmjike.com/book/4mlsscs/)
+- [男朋友买一送一](https://www.kmjike.com/book/4mlshpc/)
+- [我有嘉宾](https://www.kmjike.com/book/4mlsbre/)
+- [沈助理又在隐藏他的超能力](https://www.kmjike.com/book/f28hep/)
+- [系统不许我摆烂](https://www.kmjike.com/book/f28bt6/)
 - [逝水](https://www.kmjike.com/book/f28547/)
-- [青空来信](https://www.kmjike.com/book/f27j82/)
-- [这谁的沙雕二次元心声！](https://www.kmjike.com/book/f27hnd/)
-- [老公是松散生命体](https://www.kmjike.com/book/f27hkv/)
+- [隔壁班的松田君](https://www.kmjike.com/book/f27psr/)
+- [你也没死？](https://www.kmjike.com/book/f27kl8/)
+- [误入反派培养直播后](https://www.kmjike.com/book/f278ku/)
 - [多梦你一会儿](https://www.kmjike.com/book/f2760j/)
 - [[足球]罗蜜第一志愿](https://www.kmjike.com/book/f274bp/)
-- [拯救世界从扮演反派开始](https://www.kmjike.com/book/f273b5/)
+- [哥你不能不要我](https://www.kmjike.com/book/f26ig6/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1298/index.md)

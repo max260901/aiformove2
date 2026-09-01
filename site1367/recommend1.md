@@ -1,14 +1,15 @@
 
 # 奇幻笔趣屋 - 书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-01 03:33:22
+更新时间：2026-09-02 03:33:27
 
 奇幻笔趣屋收录整理最新最全的热门网络小说，提供所有小说首发最新章节免费阅读服务，是书友们最值得收藏的小说阅读网站。
 
 - [奇幻笔趣屋](https://www.qihuan958.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.qihuan958.com/book/4ratrcg/)
+- [宠妃岂敢压我！](https://www.qihuan958.com/book/4rattpo/)
+- [死遁后，师弟他不哄不停](https://www.qihuan958.com/book/4rattmu/)
 - [发家致富小夫郎](https://www.qihuan958.com/book/4ratmrp/)
 - [猫猫也要被魅魔魅惑吗？](https://www.qihuan958.com/book/4ratkgq/)
 - [游戏boss们抢着要当我的猫[全息]](https://www.qihuan958.com/book/4ratkgp/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.qihuan958.com/book/4rati2m/)
 - [灭世龙崽有什么错](https://www.qihuan958.com/book/4ratb5p/)
 - [九零重组小家庭](https://www.qihuan958.com/book/4rat9a3/)
-- [养父](https://www.qihuan958.com/book/4rat853/)
-- [人妻O救赎指南](https://www.qihuan958.com/book/4rat83p/)
+- [假少爷有特殊的算命技巧](https://www.qihuan958.com/book/4rat8cl/)
 - [在虫族世界逃命升级](https://www.qihuan958.com/book/4rat4kb/)
 - [神豪文男主是我爸](https://www.qihuan958.com/book/4rat3sb/)
 - [从维多利亚时代开始](https://www.qihuan958.com/book/4rasr1r/)
-- [我有特殊的升官技巧](https://www.qihuan958.com/book/4raso2f/)
 - [十九世纪贵族厨房（美食）](https://www.qihuan958.com/book/4rasl9q/)
 - [星际团宠小人鱼](https://www.qihuan958.com/book/4rasl0k/)
 - [反派人生，易如反掌[快穿]](https://www.qihuan958.com/book/4raskcg/)
@@ -91,13 +90,11 @@
 - [当我穿为龙傲天的情敌](https://www.qihuan958.com/book/4rarca1/)
 - [在民俗惊悚片被诸神庇护](https://www.qihuan958.com/book/4rarc7t/)
 - [十福晋吃瓜日常(清穿)](https://www.qihuan958.com/book/4rarbuc/)
-- [社恐直播鉴宝，但带球跑](https://www.qihuan958.com/book/4rarbtj/)
 - [当菟丝花要分手后](https://www.qihuan958.com/book/4rarae0/)
 - [假金丝雀深陷修罗场](https://www.qihuan958.com/book/4rara1u/)
 - [[全职高手]霸图老板是叶修](https://www.qihuan958.com/book/4rar9c5/)
 - [养成游戏，但破解版](https://www.qihuan958.com/book/4rar3hh/)
 - [霓虹夏日](https://www.qihuan958.com/book/4rar1qm/)
-- [替嫁后咸鱼继母佛系日常](https://www.qihuan958.com/book/4raqs5a/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.qihuan958.com/book/4raqrqu/)
 - [[综英美]让我统治哥谭！！！](https://www.qihuan958.com/book/4raqqhh/)
 - [重力系杀手误入忍界记实录](https://www.qihuan958.com/book/4raqorh/)
@@ -148,21 +145,18 @@
 - [徐娘子的美食发家日常](https://www.qihuan958.com/book/4rapdao/)
 - [把清冷权臣调成荡夫后](https://www.qihuan958.com/book/4rapcc9/)
 - [[群穿]我在御兽番抢人气](https://www.qihuan958.com/book/4rapc4e/)
-- [在医院旧楼捡到个外科鼻祖](https://www.qihuan958.com/book/4rapatm/)
 - [日化人生[科研]](https://www.qihuan958.com/book/4raofs2/)
 - [高门小婢](https://www.qihuan958.com/book/4raofpi/)
 - [御兽师，我打工养你啊](https://www.qihuan958.com/book/4raofm0/)
 - [95美国贵族高中模拟](https://www.qihuan958.com/book/4raofe7/)
+- [绝不会喜欢五条君的！](https://www.qihuan958.com/book/4raofd1/)
 - [穿成炮灰后我封神了［快穿］](https://www.qihuan958.com/book/4raofbe/)
-- [卧底后被港岛大小姐缠上了](https://www.qihuan958.com/book/4raof9o/)
 - [五十年代港城日常](https://www.qihuan958.com/book/4raof2o/)
 - [科学主义魔法学院](https://www.qihuan958.com/book/4raoet9/)
 - [[娱乐圈]过分美丽的她](https://www.qihuan958.com/book/4raoesk/)
 - [全民求生:从小木屋到魔法农场](https://www.qihuan958.com/book/4raoes5/)
-- [如何扮演源氏重宝](https://www.qihuan958.com/book/4raoept/)
 - [假少爷不想活了](https://www.qihuan958.com/book/4raoeld/)
 - [刑部的小衙门](https://www.qihuan958.com/book/4raoeiv/)
-- [警察，但犯罪大师系统[刑侦]](https://www.qihuan958.com/book/4raoeic/)
 - [我有一座安全城](https://www.qihuan958.com/book/4raoe7t/)
 - [成为养成系练习生后](https://www.qihuan958.com/book/4raoe7g/)
 - [我是唯一地上神国](https://www.qihuan958.com/book/4raoe0q/)

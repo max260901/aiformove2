@@ -1,40 +1,49 @@
 
 # 哲理书客吧-全本小说免费阅读及txt下载,最新章节无弹窗
 
-更新时间：2026-09-01 03:44:32
+更新时间：2026-09-02 03:44:45
 
 哲理书客吧提供最快更新的热门网络小说最新章节，支持全本小说在线免费阅读与txt电子书打包下载服务。收录多本经典好看的小说，并承诺无广告弹窗清爽阅读体验，是小说爱好者的理想选择。
 
 - [哲理书客吧](https://www.zheli518.com/)
 
 ## 最新小说
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.zheli518.com/book/4taqa6q/)
 - [阿竹与野桃](https://www.zheli518.com/book/4taqa6c/)
+- [从异世界穿回来后](https://www.zheli518.com/book/4taq5pu/)
+- [我有嘉宾](https://www.zheli518.com/book/4taq5hf/)
 - [你，后室管理员](https://www.zheli518.com/book/4tapam7/)
+- [原配夫人](https://www.zheli518.com/book/4tapaku/)
 - [星际团宠小人鱼](https://www.zheli518.com/book/4tapaki/)
 - [高调装神，猥琐发育](https://www.zheli518.com/book/4tap3nr/)
+- [男朋友买一送一](https://www.zheli518.com/book/4taoq5p/)
+- [失而复得的白月光[快穿]](https://www.zheli518.com/book/4taoknq/)
 - [如何正确哄睡暴君](https://www.zheli518.com/book/4taofv8/)
-- [寻真](https://www.zheli518.com/book/4tao72g/)
+- [躲避原书剧情五年后](https://www.zheli518.com/book/4taof5g/)
+- [我不可能舔一个漂亮捞子](https://www.zheli518.com/book/4tao8tj/)
+- [你也没死？](https://www.zheli518.com/book/4tao7s9/)
 - [逝水](https://www.zheli518.com/book/4tao6pg/)
-- [老公是松散生命体](https://www.zheli518.com/book/4tao1qs/)
+- [沈助理又在隐藏他的超能力](https://www.zheli518.com/book/4tao1b8/)
+- [被鬼怪宠爱的漂亮书生](https://www.zheli518.com/book/4tao0lo/)
 - [微臣怜惜公主](https://www.zheli518.com/book/4tants1/)
+- [系统不许我摆烂](https://www.zheli518.com/book/4tanrpi/)
+- [误入反派培养直播后](https://www.zheli518.com/book/4tanksl/)
 - [多梦你一会儿](https://www.zheli518.com/book/4tanghb/)
+- [被四皇错看成小动物后](https://www.zheli518.com/book/4tang9k/)
 - [炮灰的我该如何上位？](https://www.zheli518.com/book/4tanfkt/)
+- [哥你不能不要我](https://www.zheli518.com/book/4tanfir/)
 - [[封神]圣人生欲](https://www.zheli518.com/book/4tanfc1/)
-- [这谁的沙雕二次元心声！](https://www.zheli518.com/book/4taneq0/)
-- [善逸拒绝成为咒术师](https://www.zheli518.com/book/4tand37/)
+- [隔壁班的松田君](https://www.zheli518.com/book/4tana7h/)
 - [[足球]罗蜜第一志愿](https://www.zheli518.com/book/4tan8ir/)
-- [青空来信](https://www.zheli518.com/book/4tan6n4/)
+- [某柯学的正义伙伴](https://www.zheli518.com/book/4tan7fl/)
 - [井闼山经理每天都被挖墙脚](https://www.zheli518.com/book/4tan5sr/)
 - [[足球]小小鸟堂堂来袭](https://www.zheli518.com/book/4tamr7j/)
+- [侯府打工人](https://www.zheli518.com/book/4tamn5j/)
 - [好兄弟暴富后非要跟我结婚](https://www.zheli518.com/book/4tamkss/)
 - [法外狂猫](https://www.zheli518.com/book/4tamkpn/)
-- [关于我虚构了一个男友这件事](https://www.zheli518.com/book/4tamiqa/)
+- [我，剑圣，养生中，勿扰](https://www.zheli518.com/book/4tami1o/)
 - [和室友他爸恋爱后](https://www.zheli518.com/book/4tam9go/)
 - [直男咒术师的限制级游戏](https://www.zheli518.com/book/4tal5a1/)
-- [女扮男装科举和皇帝撞脸了！](https://www.zheli518.com/book/4tal4im/)
 - [纯爱宇智波基本恋爱法](https://www.zheli518.com/book/4tal3ts/)
-- [拯救世界从扮演反派开始](https://www.zheli518.com/book/4tal3n1/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1358/index.md)

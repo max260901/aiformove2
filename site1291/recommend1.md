@@ -1,14 +1,15 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-09-01 03:33:52
+更新时间：2026-09-02 03:33:57
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
 - [笔趣阁啦](https://www.qingyuchun.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.qingyuchun.com/book/10578k5/)
+- [死遁后，师弟他不哄不停](https://www.qingyuchun.com/book/10578k7/)
+- [宠妃岂敢压我！](https://www.qingyuchun.com/book/10578k6/)
 - [发家致富小夫郎](https://www.qingyuchun.com/book/10578k4/)
 - [我要当厨修啊[美食]](https://www.qingyuchun.com/book/10578jv/)
 - [猫猫也要被魅魔魅惑吗？](https://www.qingyuchun.com/book/10578jt/)
@@ -69,7 +70,6 @@
 - [宫陷](https://www.qingyuchun.com/book/10578f9/)
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.qingyuchun.com/book/10578f3/)
 - [折禅（强取豪夺）](https://www.qingyuchun.com/book/10578f2/)
-- [养父](https://www.qingyuchun.com/book/10578ev/)
 - [九零首富的替嫁小媳妇](https://www.qingyuchun.com/book/10578ea/)
 - [星际团宠小人鱼](https://www.qingyuchun.com/book/10578e2/)
 - [十九世纪贵族厨房（美食）](https://www.qingyuchun.com/book/10578ci/)
@@ -77,6 +77,7 @@
 - [假少爷不想活了](https://www.qingyuchun.com/book/10578cd/)
 - [千禧年，拆迁分了十栋楼！](https://www.qingyuchun.com/book/105789s/)
 - [高嫁之后](https://www.qingyuchun.com/book/105789i/)
+- [绝不会喜欢五条君的！](https://www.qingyuchun.com/book/1057706/)
 - [满级大佬制霸热血运动番](https://www.qingyuchun.com/book/10576vg/)
 - [我不是御兽大师](https://www.qingyuchun.com/book/10576vc/)
 - [六零之成了卷王的妹妹](https://www.qingyuchun.com/book/10576va/)
@@ -84,9 +85,9 @@
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.qingyuchun.com/book/1056hi7/)
 - [灭世龙崽有什么错](https://www.qingyuchun.com/book/1055n2a/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.qingyuchun.com/book/1055h0e/)
+- [假少爷有特殊的算命技巧](https://www.qingyuchun.com/book/1055d4a/)
 - [九零重组小家庭](https://www.qingyuchun.com/book/10557s8/)
 - [从维多利亚时代开始](https://www.qingyuchun.com/book/1054u6p/)
-- [我有特殊的升官技巧](https://www.qingyuchun.com/book/1054rj0/)
 - [御兽师，我打工养你啊](https://www.qingyuchun.com/book/1054pd4/)
 - [反派人生，易如反掌[快穿]](https://www.qingyuchun.com/book/1054o0v/)
 - [当菟丝花要分手后](https://www.qingyuchun.com/book/1054fsf/)
@@ -100,7 +101,6 @@
 - [巨物致富：回乡开钓场](https://www.qingyuchun.com/book/1053vqo/)
 - [趁她之危](https://www.qingyuchun.com/book/1053roj/)
 - [第一游侠[全息]](https://www.qingyuchun.com/book/1053r3e/)
-- [人妻O救赎指南](https://www.qingyuchun.com/book/1053qap/)
 - [始皇闺女躺平失败的日子](https://www.qingyuchun.com/book/1053kr1/)
 - [摄政王家的咸鱼夫郎](https://www.qingyuchun.com/book/1053koh/)
 - [寄人篱下](https://www.qingyuchun.com/book/1053iob/)
@@ -109,7 +109,6 @@
 - [不当救世主就要当人类恶了吗](https://www.qingyuchun.com/book/36vpc1/)
 - [[全职高手]霸图老板是叶修](https://www.qingyuchun.com/book/36vmn1/)
 - [枕边热吻](https://www.qingyuchun.com/book/36vld0/)
-- [社恐直播鉴宝，但带球跑](https://www.qingyuchun.com/book/36vkuv/)
 - [误标记隔壁阿姨O之后](https://www.qingyuchun.com/book/36vie1/)
 - [成为养成系练习生后](https://www.qingyuchun.com/book/36vh1f/)
 - [十福晋吃瓜日常(清穿)](https://www.qingyuchun.com/book/36vgs9/)
@@ -156,15 +155,11 @@
 - [徐娘子的美食发家日常](https://www.qingyuchun.com/book/36tt6u/)
 - [萩原警官的咒术大冒险](https://www.qingyuchun.com/book/36tt2l/)
 - [绿茶病秧子骗他说喜欢](https://www.qingyuchun.com/book/36tsjc/)
-- [在医院旧楼捡到个外科鼻祖](https://www.qingyuchun.com/book/36tqrh/)
 - [把清冷权臣调成荡夫后](https://www.qingyuchun.com/book/36tp5j/)
 - [我有一座安全城](https://www.qingyuchun.com/book/a9c9l/)
-- [替嫁后咸鱼继母佛系日常](https://www.qingyuchun.com/book/a9c3q/)
 - [大瑛弟国](https://www.qingyuchun.com/book/a9buk/)
 - [清澈女大的六零年代](https://www.qingyuchun.com/book/a9btv/)
-- [如何扮演源氏重宝](https://www.qingyuchun.com/book/a9bsl/)
 - [科学主义魔法学院](https://www.qingyuchun.com/book/a9bjm/)
-- [警察，但犯罪大师系统[刑侦]](https://www.qingyuchun.com/book/a9bj4/)
 - [高门小婢](https://www.qingyuchun.com/book/a9bfm/)
 - [米花无刁民](https://www.qingyuchun.com/book/a9b9m/)
 - [我是唯一地上神国](https://www.qingyuchun.com/book/a9b92/)
@@ -175,7 +170,6 @@
 - [[娱乐圈]过分美丽的她](https://www.qingyuchun.com/book/a9a60/)
 - [当恶女捡回高岭之花](https://www.qingyuchun.com/book/10ujd/)
 - [95美国贵族高中模拟](https://www.qingyuchun.com/book/10u75/)
-- [卧底后被港岛大小姐缠上了](https://www.qingyuchun.com/book/39ds/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1291/index.md)

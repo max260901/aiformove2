@@ -1,37 +1,44 @@
 
 # 国威御林小说_国威御林小说小说在线阅读
 
-更新时间：2026-09-01 03:25:26
+更新时间：2026-09-02 03:25:31
 
 国威御林小说是拥有海量的完结全本小说作品, 提供热门小说排行榜免费在线阅读, 每日更新言情、都市、穿越、青春、悬疑等作品连载。
 
 - [国威御林小说](https://www.guoweiyulin.com/)
 
 ## 最新小说
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.guoweiyulin.com/book/360q1ik/)
 - [阿竹与野桃](https://www.guoweiyulin.com/book/360q1id/)
+- [躲避原书剧情五年后](https://www.guoweiyulin.com/book/360pvbr/)
+- [我有嘉宾](https://www.guoweiyulin.com/book/360pmca/)
+- [从异世界穿回来后](https://www.guoweiyulin.com/book/360plkl/)
 - [你，后室管理员](https://www.guoweiyulin.com/book/360ph9h/)
+- [原配夫人](https://www.guoweiyulin.com/book/360ph82/)
 - [星际团宠小人鱼](https://www.guoweiyulin.com/book/360ph67/)
 - [高调装神，猥琐发育](https://www.guoweiyulin.com/book/360o5ap/)
-- [女扮男装科举和皇帝撞脸了！](https://www.guoweiyulin.com/book/360o0ff/)
+- [男朋友买一送一](https://www.guoweiyulin.com/book/360o4kk/)
 - [直男咒术师的限制级游戏](https://www.guoweiyulin.com/book/360nuk5/)
+- [失而复得的白月光[快穿]](https://www.guoweiyulin.com/book/360nmqr/)
 - [如何正确哄睡暴君](https://www.guoweiyulin.com/book/360nl2q/)
-- [寻真](https://www.guoweiyulin.com/book/360njh9/)
 - [逝水](https://www.guoweiyulin.com/book/360nftc/)
+- [你也没死？](https://www.guoweiyulin.com/book/360nf45/)
+- [沈助理又在隐藏他的超能力](https://www.guoweiyulin.com/book/360nc2h/)
+- [我不可能舔一个漂亮捞子](https://www.guoweiyulin.com/book/360nair/)
+- [系统不许我摆烂](https://www.guoweiyulin.com/book/360n7vq/)
+- [误入反派培养直播后](https://www.guoweiyulin.com/book/360mvi9/)
+- [哥你不能不要我](https://www.guoweiyulin.com/book/360mpoh/)
+- [被鬼怪宠爱的漂亮书生](https://www.guoweiyulin.com/book/360mo93/)
 - [微臣怜惜公主](https://www.guoweiyulin.com/book/360mo0f/)
 - [多梦你一会儿](https://www.guoweiyulin.com/book/360mnu3/)
 - [炮灰的我该如何上位？](https://www.guoweiyulin.com/book/360mn7h/)
-- [拯救世界从扮演反派开始](https://www.guoweiyulin.com/book/360mlhn/)
-- [这谁的沙雕二次元心声！](https://www.guoweiyulin.com/book/360mjnk/)
+- [隔壁班的松田君](https://www.guoweiyulin.com/book/360mjp6/)
 - [[封神]圣人生欲](https://www.guoweiyulin.com/book/360mgqq/)
-- [青空来信](https://www.guoweiyulin.com/book/360mgog/)
+- [某柯学的正义伙伴](https://www.guoweiyulin.com/book/360mfcn/)
 - [纯爱宇智波基本恋爱法](https://www.guoweiyulin.com/book/360mee6/)
-- [老公是松散生命体](https://www.guoweiyulin.com/book/360mdov/)
-- [善逸拒绝成为咒术师](https://www.guoweiyulin.com/book/360mcjh/)
+- [被四皇错看成小动物后](https://www.guoweiyulin.com/book/360mal1/)
 - [[足球]罗蜜第一志愿](https://www.guoweiyulin.com/book/360m9k3/)
 - [井闼山经理每天都被挖墙脚](https://www.guoweiyulin.com/book/360m66q/)
 - [好兄弟暴富后非要跟我结婚](https://www.guoweiyulin.com/book/360lr6f/)
-- [关于我虚构了一个男友这件事](https://www.guoweiyulin.com/book/360lqgt/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1344/index.md)

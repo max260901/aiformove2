@@ -1,14 +1,16 @@
 
 # 宁波慈绿农垦小说-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-01 03:31:40
+更新时间：2026-09-02 03:31:45
 
 宁波慈绿农垦小说提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
 - [宁波慈绿农垦小说](https://www.nbcxnk.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.nbcxnk.com/book/2ss0gpd/)
+- [死遁后，师弟他不哄不停](https://www.nbcxnk.com/book/2ss0ke2/)
+- [宠妃岂敢压我！](https://www.nbcxnk.com/book/2ss0kdo/)
+- [假少爷有特殊的算命技巧](https://www.nbcxnk.com/book/2ss0ctf/)
 - [九零重组小家庭](https://www.nbcxnk.com/book/2ss0bd1/)
 - [发家致富小夫郎](https://www.nbcxnk.com/book/2ss06fm/)
 - [从维多利亚时代开始](https://www.nbcxnk.com/book/2srvvqv/)
@@ -69,7 +71,6 @@
 - [灭世龙崽有什么错](https://www.nbcxnk.com/book/2srvvb7/)
 - [我真的只会Ctrl啊！！！](https://www.nbcxnk.com/book/2srvojf/)
 - [反派人生，易如反掌[快穿]](https://www.nbcxnk.com/book/2srvoc0/)
-- [我有特殊的升官技巧](https://www.nbcxnk.com/book/2srvobn/)
 - [摄政王家的咸鱼夫郎](https://www.nbcxnk.com/book/2srv6fo/)
 - [绿叶](https://www.nbcxnk.com/book/2srv5er/)
 - [枕边热吻](https://www.nbcxnk.com/book/2srv4e0/)
@@ -86,7 +87,6 @@
 - [十福晋吃瓜日常(清穿)](https://www.nbcxnk.com/book/2srukbs/)
 - [当菟丝花要分手后](https://www.nbcxnk.com/book/2srujop/)
 - [假金丝雀深陷修罗场](https://www.nbcxnk.com/book/2sruiv2/)
-- [社恐直播鉴宝，但带球跑](https://www.nbcxnk.com/book/2sruh5a/)
 - [当我穿为龙傲天的情敌](https://www.nbcxnk.com/book/2srug9m/)
 - [[综英美]让我统治哥谭！！！](https://www.nbcxnk.com/book/2srudfq/)
 - [养成游戏，但破解版](https://www.nbcxnk.com/book/2sruc4c/)
@@ -137,15 +137,12 @@
 - [这男人该死的甜美](https://www.nbcxnk.com/book/2srsoot/)
 - [绿茶病秧子骗他说喜欢](https://www.nbcxnk.com/book/2srsliv/)
 - [把清冷权臣调成荡夫后](https://www.nbcxnk.com/book/2srslgj/)
+- [绝不会喜欢五条君的！](https://www.nbcxnk.com/book/2srsle8/)
 - [我真的没想在选秀炒CP](https://www.nbcxnk.com/book/2srskbq/)
 - [欢迎来到纳萨力克丧葬公司](https://www.nbcxnk.com/book/2srsh89/)
-- [在医院旧楼捡到个外科鼻祖](https://www.nbcxnk.com/book/2srsg7r/)
 - [[群穿]我在御兽番抢人气](https://www.nbcxnk.com/book/2srsfgr/)
-- [养父](https://www.nbcxnk.com/book/2srsf57/)
-- [人妻O救赎指南](https://www.nbcxnk.com/book/2srsedf/)
 - [日化人生[科研]](https://www.nbcxnk.com/book/2srrkvi/)
 - [在民俗惊悚片被诸神庇护](https://www.nbcxnk.com/book/2srrkt8/)
-- [卧底后被港岛大小姐缠上了](https://www.nbcxnk.com/book/2srrkt6/)
 - [古代种田养娃日常](https://www.nbcxnk.com/book/2srrkmb/)
 - [十九世纪贵族厨房（美食）](https://www.nbcxnk.com/book/2srrkjc/)
 - [假少爷不想活了](https://www.nbcxnk.com/book/2srrkim/)
@@ -156,7 +153,6 @@
 - [海岛求生：生活玩家种田囤货](https://www.nbcxnk.com/book/2srrk0v/)
 - [大瑛弟国](https://www.nbcxnk.com/book/2srrjui/)
 - [星际团宠小人鱼](https://www.nbcxnk.com/book/2srrjt3/)
-- [警察，但犯罪大师系统[刑侦]](https://www.nbcxnk.com/book/2srrjs2/)
 - [穿成炮灰后我封神了［快穿］](https://www.nbcxnk.com/book/2srrjqh/)
 - [千禧年，拆迁分了十栋楼！](https://www.nbcxnk.com/book/2srrjpn/)
 - [趁她之危](https://www.nbcxnk.com/book/2srrjik/)
@@ -165,8 +161,6 @@
 - [御兽师，我打工养你啊](https://www.nbcxnk.com/book/2srrj8a/)
 - [高调装神，猥琐发育](https://www.nbcxnk.com/book/2srrj6v/)
 - [95美国贵族高中模拟](https://www.nbcxnk.com/book/2srriuu/)
-- [如何扮演源氏重宝](https://www.nbcxnk.com/book/2srritu/)
-- [替嫁后咸鱼继母佛系日常](https://www.nbcxnk.com/book/2srrisd/)
 - [八零恶毒后妈杀疯了](https://www.nbcxnk.com/book/2srrirn/)
 - [我是唯一地上神国](https://www.nbcxnk.com/book/2srrila/)
 - [[娱乐圈]过分美丽的她](https://www.nbcxnk.com/book/2srriko/)

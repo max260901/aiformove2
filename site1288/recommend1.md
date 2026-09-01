@@ -1,14 +1,15 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-01 03:37:51
+更新时间：2026-09-02 03:38:03
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
 - [读读窝小说网](https://www.tiananfoundry.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.tiananfoundry.com/book/1ol4n03/)
+- [宠妃岂敢压我！](https://www.tiananfoundry.com/book/1ol4n05/)
+- [死遁后，师弟他不哄不停](https://www.tiananfoundry.com/book/1ol4n04/)
 - [发家致富小夫郎](https://www.tiananfoundry.com/book/1ol4n02/)
 - [被怪物女友始乱终弃后[gb]](https://www.tiananfoundry.com/book/1ol4mvu/)
 - [[足球]顶级名帅](https://www.tiananfoundry.com/book/1ol4mvt/)
@@ -69,7 +70,6 @@
 - [无限回档，我把自己刷成了女帝](https://www.tiananfoundry.com/book/1ol4mr2/)
 - [[综英美]让我统治哥谭！！！](https://www.tiananfoundry.com/book/1ol4mr1/)
 - [我的NPC队友全是火影天花板](https://www.tiananfoundry.com/book/1ol4mr0/)
-- [养父](https://www.tiananfoundry.com/book/1ol4mqt/)
 - [九零首富的替嫁小媳妇](https://www.tiananfoundry.com/book/1ol4mq9/)
 - [十九世纪贵族厨房（美食）](https://www.tiananfoundry.com/book/1ol4mpo/)
 - [星际团宠小人鱼](https://www.tiananfoundry.com/book/1ol4mol/)
@@ -77,16 +77,17 @@
 - [假少爷不想活了](https://www.tiananfoundry.com/book/1ol4mob/)
 - [千禧年，拆迁分了十栋楼！](https://www.tiananfoundry.com/book/1ol4mn5/)
 - [高嫁之后](https://www.tiananfoundry.com/book/1ol4mj8/)
+- [绝不会喜欢五条君的！](https://www.tiananfoundry.com/book/1ol4lc9/)
 - [我不是御兽大师](https://www.tiananfoundry.com/book/1ol4lbg/)
 - [六零之成了卷王的妹妹](https://www.tiananfoundry.com/book/1ol4lba/)
 - [满级大佬制霸热血运动番](https://www.tiananfoundry.com/book/1ol4lb7/)
 - [古代种田养娃日常](https://www.tiananfoundry.com/book/1ol3m4b/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.tiananfoundry.com/book/1ol3lkn/)
+- [假少爷有特殊的算命技巧](https://www.tiananfoundry.com/book/1ol34kk/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.tiananfoundry.com/book/1ol303i/)
 - [灭世龙崽有什么错](https://www.tiananfoundry.com/book/1ol2q8l/)
 - [九零重组小家庭](https://www.tiananfoundry.com/book/1ol2kj1/)
 - [从维多利亚时代开始](https://www.tiananfoundry.com/book/1ol2au7/)
-- [我有特殊的升官技巧](https://www.tiananfoundry.com/book/1ol28eg/)
 - [御兽师，我打工养你啊](https://www.tiananfoundry.com/book/1ol26b8/)
 - [反派人生，易如反掌[快穿]](https://www.tiananfoundry.com/book/1ol24ub/)
 - [神豪文男主是我爸](https://www.tiananfoundry.com/book/1ol1snt/)
@@ -99,7 +100,6 @@
 - [日化人生[科研]](https://www.tiananfoundry.com/book/1ol1i58/)
 - [巨物致富：回乡开钓场](https://www.tiananfoundry.com/book/1ol1ehi/)
 - [趁她之危](https://www.tiananfoundry.com/book/1ol1ale/)
-- [人妻O救赎指南](https://www.tiananfoundry.com/book/1ol1870/)
 - [第一游侠[全息]](https://www.tiananfoundry.com/book/1ol1823/)
 - [摄政王家的咸鱼夫郎](https://www.tiananfoundry.com/book/1ol13u2/)
 - [寄人篱下](https://www.tiananfoundry.com/book/1ol11lr/)
@@ -108,7 +108,6 @@
 - [不当救世主就要当人类恶了吗](https://www.tiananfoundry.com/book/5lcc31/)
 - [当我穿为龙傲天的情敌](https://www.tiananfoundry.com/book/5lcb52/)
 - [枕边热吻](https://www.tiananfoundry.com/book/5lc9jd/)
-- [社恐直播鉴宝，但带球跑](https://www.tiananfoundry.com/book/5lc7ja/)
 - [[全职高手]霸图老板是叶修](https://www.tiananfoundry.com/book/5lc5li/)
 - [成为养成系练习生后](https://www.tiananfoundry.com/book/5lc45p/)
 - [假金丝雀深陷修罗场](https://www.tiananfoundry.com/book/5lc3ak/)
@@ -157,7 +156,6 @@
 - [绿茶病秧子骗他说喜欢](https://www.tiananfoundry.com/book/5ladud/)
 - [搭档，一起来玩求生游戏吧！](https://www.tiananfoundry.com/book/5ladpt/)
 - [徐娘子的美食发家日常](https://www.tiananfoundry.com/book/5lad1l/)
-- [在医院旧楼捡到个外科鼻祖](https://www.tiananfoundry.com/book/5laav7/)
 - [科学主义魔法学院](https://www.tiananfoundry.com/book/i47fl/)
 - [猫猫也要养家糊口](https://www.tiananfoundry.com/book/i47b4/)
 - [高门小婢](https://www.tiananfoundry.com/book/i476h/)
@@ -165,15 +163,11 @@
 - [95美国贵族高中模拟](https://www.tiananfoundry.com/book/i46nt/)
 - [我是唯一地上神国](https://www.tiananfoundry.com/book/i46mi/)
 - [米花无刁民](https://www.tiananfoundry.com/book/i46ct/)
-- [卧底后被港岛大小姐缠上了](https://www.tiananfoundry.com/book/i46b1/)
 - [清澈女大的六零年代](https://www.tiananfoundry.com/book/i462n/)
 - [五十年代港城日常](https://www.tiananfoundry.com/book/i462h/)
 - [当恶女捡回高岭之花](https://www.tiananfoundry.com/book/i45s2/)
 - [大瑛弟国](https://www.tiananfoundry.com/book/i45ej/)
 - [全民求生:从小木屋到魔法农场](https://www.tiananfoundry.com/book/1q19i/)
-- [警察，但犯罪大师系统[刑侦]](https://www.tiananfoundry.com/book/1q185/)
-- [替嫁后咸鱼继母佛系日常](https://www.tiananfoundry.com/book/1q15b/)
-- [如何扮演源氏重宝](https://www.tiananfoundry.com/book/1q0sg/)
 - [海岛求生：生活玩家种田囤货](https://www.tiananfoundry.com/book/1q0or/)
 - [[娱乐圈]过分美丽的她](https://www.tiananfoundry.com/book/1q0ls/)
 ## 相关内容

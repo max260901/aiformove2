@@ -1,14 +1,15 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-09-01 03:22:33
+更新时间：2026-09-02 03:22:38
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
 - [创意小说网](https://www.chuangyi1687.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.chuangyi1687.com/book/1hvgp05/)
+- [宠妃岂敢压我！](https://www.chuangyi1687.com/book/1hvgp07/)
+- [死遁后，师弟他不哄不停](https://www.chuangyi1687.com/book/1hvgp06/)
 - [发家致富小夫郎](https://www.chuangyi1687.com/book/1hvgp04/)
 - [痴情女配开始放手了（快穿）](https://www.chuangyi1687.com/book/1hvgp03/)
 - [身为人造人的我梦想是成为救世主](https://www.chuangyi1687.com/book/1hvgovv/)
@@ -69,7 +70,6 @@
 - [[群穿]我在御兽番抢人气](https://www.chuangyi1687.com/book/1hvgor6/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.chuangyi1687.com/book/1hvgor5/)
 - [始乱终弃高岭之花以后](https://www.chuangyi1687.com/book/1hvgor2/)
-- [养父](https://www.chuangyi1687.com/book/1hvgoqv/)
 - [十九世纪贵族厨房（美食）](https://www.chuangyi1687.com/book/1hvgoqq/)
 - [星际团宠小人鱼](https://www.chuangyi1687.com/book/1hvgopt/)
 - [九零首富的替嫁小媳妇](https://www.chuangyi1687.com/book/1hvgook/)
@@ -79,14 +79,15 @@
 - [高嫁之后](https://www.chuangyi1687.com/book/1hvgoje/)
 - [六零之成了卷王的妹妹](https://www.chuangyi1687.com/book/1hvgnbq/)
 - [满级大佬制霸热血运动番](https://www.chuangyi1687.com/book/1hvgnbn/)
+- [绝不会喜欢五条君的！](https://www.chuangyi1687.com/book/1hvgnbm/)
 - [我不是御兽大师](https://www.chuangyi1687.com/book/1hvgnbd/)
 - [古代种田养娃日常](https://www.chuangyi1687.com/book/1hvg29s/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.chuangyi1687.com/book/1hvg1gu/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.chuangyi1687.com/book/1hvf6d2/)
 - [九零重组小家庭](https://www.chuangyi1687.com/book/1hvf4qt/)
+- [假少爷有特殊的算命技巧](https://www.chuangyi1687.com/book/1hvevkf/)
 - [灭世龙崽有什么错](https://www.chuangyi1687.com/book/1hveps6/)
 - [从维多利亚时代开始](https://www.chuangyi1687.com/book/1hvee9k/)
-- [我有特殊的升官技巧](https://www.chuangyi1687.com/book/1hvebhu/)
 - [御兽师，我打工养你啊](https://www.chuangyi1687.com/book/1hve9dc/)
 - [反派人生，易如反掌[快穿]](https://www.chuangyi1687.com/book/1hve84m/)
 - [神豪文男主是我爸](https://www.chuangyi1687.com/book/1hve067/)
@@ -98,7 +99,6 @@
 - [春归燕](https://www.chuangyi1687.com/book/1hvdlgt/)
 - [日化人生[科研]](https://www.chuangyi1687.com/book/1hvdja9/)
 - [巨物致富：回乡开钓场](https://www.chuangyi1687.com/book/1hvdhup/)
-- [人妻O救赎指南](https://www.chuangyi1687.com/book/1hvdb6e/)
 - [第一游侠[全息]](https://www.chuangyi1687.com/book/1hvdacv/)
 - [趁她之危](https://www.chuangyi1687.com/book/1hvda2g/)
 - [摄政王家的咸鱼夫郎](https://www.chuangyi1687.com/book/1hvd5sh/)
@@ -107,7 +107,6 @@
 - [当我穿为龙傲天的情敌](https://www.chuangyi1687.com/book/500p96/)
 - [全球进化，而我保持不变](https://www.chuangyi1687.com/book/500oa4/)
 - [不当救世主就要当人类恶了吗](https://www.chuangyi1687.com/book/500mf2/)
-- [社恐直播鉴宝，但带球跑](https://www.chuangyi1687.com/book/500kf3/)
 - [[全职高手]霸图老板是叶修](https://www.chuangyi1687.com/book/500k6d/)
 - [枕边热吻](https://www.chuangyi1687.com/book/500ibj/)
 - [误标记隔壁阿姨O之后](https://www.chuangyi1687.com/book/500h5o/)
@@ -156,12 +155,9 @@
 - [搭档，一起来玩求生游戏吧！](https://www.chuangyi1687.com/book/4vurqn/)
 - [萩原警官的咒术大冒险](https://www.chuangyi1687.com/book/4vurob/)
 - [我真的没想在选秀炒CP](https://www.chuangyi1687.com/book/4vuqgb/)
-- [在医院旧楼捡到个外科鼻祖](https://www.chuangyi1687.com/book/4vupoq/)
 - [把清冷权臣调成荡夫后](https://www.chuangyi1687.com/book/4vup29/)
-- [替嫁后咸鱼继母佛系日常](https://www.chuangyi1687.com/book/fvs3l/)
 - [米花无刁民](https://www.chuangyi1687.com/book/fvrvr/)
 - [高门小婢](https://www.chuangyi1687.com/book/fvrv2/)
-- [卧底后被港岛大小姐缠上了](https://www.chuangyi1687.com/book/fvrhp/)
 - [科学主义魔法学院](https://www.chuangyi1687.com/book/fvrhl/)
 - [清澈女大的六零年代](https://www.chuangyi1687.com/book/fvr7g/)
 - [[娱乐圈]过分美丽的她](https://www.chuangyi1687.com/book/fvr64/)
@@ -172,10 +168,8 @@
 - [我有一座安全城](https://www.chuangyi1687.com/book/fvqdi/)
 - [95美国贵族高中模拟](https://www.chuangyi1687.com/book/fvqb3/)
 - [五十年代港城日常](https://www.chuangyi1687.com/book/fvq8j/)
-- [如何扮演源氏重宝](https://www.chuangyi1687.com/book/fvq09/)
 - [猫猫也要养家糊口](https://www.chuangyi1687.com/book/fvq05/)
 - [海岛求生：生活玩家种田囤货](https://www.chuangyi1687.com/book/1j623/)
-- [警察，但犯罪大师系统[刑侦]](https://www.chuangyi1687.com/book/1j5r0/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1316/index.md)

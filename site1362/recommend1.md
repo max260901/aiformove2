@@ -1,14 +1,15 @@
 
 # 漫话乐文小说-免费小说阅读,无弹窗,最新章节更新快
 
-更新时间：2026-09-01 03:31:10
+更新时间：2026-09-02 03:31:15
 
 漫话乐文小说是广大书友最值得收藏的网络小说阅读网，提供当前最火热的网络小说免费阅读服务，高质量的小说最新章节更新快速，适合所有网络小说爱好者。
 
 - [漫话乐文小说](https://www.manhua958.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.manhua958.com/book/17scoah/)
+- [宠妃岂敢压我！](https://www.manhua958.com/book/17scqka/)
+- [死遁后，师弟他不哄不停](https://www.manhua958.com/book/17scqin/)
 - [发家致富小夫郎](https://www.manhua958.com/book/17scjmr/)
 - [败类游戏](https://www.manhua958.com/book/17schcs/)
 - [昼色清明](https://www.manhua958.com/book/17schcp/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.manhua958.com/book/17scevt/)
 - [灭世龙崽有什么错](https://www.manhua958.com/book/17sc824/)
 - [九零重组小家庭](https://www.manhua958.com/book/17sc687/)
-- [养父](https://www.manhua958.com/book/17sc54c/)
-- [人妻O救赎指南](https://www.manhua958.com/book/17sc54a/)
+- [假少爷有特殊的算命技巧](https://www.manhua958.com/book/17sc555/)
 - [在虫族世界逃命升级](https://www.manhua958.com/book/17sc1ga/)
 - [神豪文男主是我爸](https://www.manhua958.com/book/17sc0ns/)
 - [从维多利亚时代开始](https://www.manhua958.com/book/17sbnv3/)
-- [我有特殊的升官技巧](https://www.manhua958.com/book/17sbkqo/)
 - [十九世纪贵族厨房（美食）](https://www.manhua958.com/book/17sbhvu/)
 - [星际团宠小人鱼](https://www.manhua958.com/book/17sbhqj/)
 - [反派人生，易如反掌[快穿]](https://www.manhua958.com/book/17sbhge/)
@@ -87,7 +86,6 @@
 - [九零首富的替嫁小媳妇](https://www.manhua958.com/book/17sagn1/)
 - [为诡异打工，但反封建迷信](https://www.manhua958.com/book/17sad6u/)
 - [误标记隔壁阿姨O之后](https://www.manhua958.com/book/17saco2/)
-- [社恐直播鉴宝，但带球跑](https://www.manhua958.com/book/17sa9a1/)
 - [十福晋吃瓜日常(清穿)](https://www.manhua958.com/book/17sa8t3/)
 - [在民俗惊悚片被诸神庇护](https://www.manhua958.com/book/17sa8oq/)
 - [当我穿为龙傲天的情敌](https://www.manhua958.com/book/17sa8dt/)
@@ -97,7 +95,6 @@
 - [[全职高手]霸图老板是叶修](https://www.manhua958.com/book/17sa5l4/)
 - [养成游戏，但破解版](https://www.manhua958.com/book/17sa13o/)
 - [霓虹夏日](https://www.manhua958.com/book/17s9sr2/)
-- [替嫁后咸鱼继母佛系日常](https://www.manhua958.com/book/17s9p9l/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.manhua958.com/book/17s9opo/)
 - [[综英美]让我统治哥谭！！！](https://www.manhua958.com/book/17s9o4m/)
 - [米花无刁民](https://www.manhua958.com/book/17s9lgr/)
@@ -147,19 +144,17 @@
 - [徐娘子的美食发家日常](https://www.manhua958.com/book/17s8bt5/)
 - [我真的没想在选秀炒CP](https://www.manhua958.com/book/17s8bdb/)
 - [[群穿]我在御兽番抢人气](https://www.manhua958.com/book/17s89mt/)
-- [在医院旧楼捡到个外科鼻祖](https://www.manhua958.com/book/17s89fe/)
 - [把清冷权臣调成荡夫后](https://www.manhua958.com/book/17s87ul/)
 - [御兽师，我打工养你啊](https://www.manhua958.com/book/17s7cms/)
 - [六零之成了卷王的妹妹](https://www.manhua958.com/book/17s7clq/)
-- [如何扮演源氏重宝](https://www.manhua958.com/book/17s7cfq/)
 - [千禧年，拆迁分了十栋楼！](https://www.manhua958.com/book/17s7c7t/)
 - [我有一座安全城](https://www.manhua958.com/book/17s7c1k/)
 - [95美国贵族高中模拟](https://www.manhua958.com/book/17s7bo4/)
 - [科学主义魔法学院](https://www.manhua958.com/book/17s7bmo/)
 - [[娱乐圈]过分美丽的她](https://www.manhua958.com/book/17s7bl5/)
-- [卧底后被港岛大小姐缠上了](https://www.manhua958.com/book/17s7bh3/)
 - [假少爷不想活了](https://www.manhua958.com/book/17s7b7l/)
 - [穿成炮灰后我封神了［快穿］](https://www.manhua958.com/book/17s7atu/)
+- [绝不会喜欢五条君的！](https://www.manhua958.com/book/17s7asa/)
 - [我是唯一地上神国](https://www.manhua958.com/book/17s7ar4/)
 - [全民求生:从小木屋到魔法农场](https://www.manhua958.com/book/17s7amb/)
 - [成为养成系练习生后](https://www.manhua958.com/book/17s7aj7/)
@@ -168,7 +163,6 @@
 - [巨物致富：回乡开钓场](https://www.manhua958.com/book/17s7ab8/)
 - [高门小婢](https://www.manhua958.com/book/17s7a9e/)
 - [刑部的小衙门](https://www.manhua958.com/book/17s7a7r/)
-- [警察，但犯罪大师系统[刑侦]](https://www.manhua958.com/book/17s7a2o/)
 - [猫猫也要养家糊口](https://www.manhua958.com/book/17s7a1k/)
 - [大瑛弟国](https://www.manhua958.com/book/17s79qq/)
 - [海岛求生：生活玩家种田囤货](https://www.manhua958.com/book/17s79nd/)

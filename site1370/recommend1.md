@@ -1,14 +1,15 @@
 
 # 燃文故事小说网 - 无弹窗全本小说免费阅读
 
-更新时间：2026-09-01 03:25:59
+更新时间：2026-09-02 03:26:04
 
 燃文故事小说网提供无弹窗干扰的小说阅读体验，支持全本小说在线免费阅读。
 
 - [燃文故事小说网](https://www.gushi687.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.gushi687.com/book/63qv7rq/)
+- [宠妃岂敢压我！](https://www.gushi687.com/book/63qva59/)
+- [死遁后，师弟他不哄不停](https://www.gushi687.com/book/63qva56/)
 - [发家致富小夫郎](https://www.gushi687.com/book/63qv376/)
 - [撕碎[刑侦]](https://www.gushi687.com/book/63qv0ua/)
 - [痴情女配开始放手了（快穿）](https://www.gushi687.com/book/63qv0u9/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.gushi687.com/book/63quug1/)
 - [灭世龙崽有什么错](https://www.gushi687.com/book/63qunff/)
 - [九零重组小家庭](https://www.gushi687.com/book/63quln6/)
-- [养父](https://www.gushi687.com/book/63qukke/)
-- [人妻O救赎指南](https://www.gushi687.com/book/63qukiu/)
+- [假少爷有特殊的算命技巧](https://www.gushi687.com/book/63qukmn/)
 - [在虫族世界逃命升级](https://www.gushi687.com/book/63quh3i/)
 - [神豪文男主是我爸](https://www.gushi687.com/book/63qug3h/)
 - [从维多利亚时代开始](https://www.gushi687.com/book/63qu7il/)
-- [我有特殊的升官技巧](https://www.gushi687.com/book/63qu4eq/)
 - [十九世纪贵族厨房（美食）](https://www.gushi687.com/book/63qu1lv/)
 - [星际团宠小人鱼](https://www.gushi687.com/book/63qu1ll/)
 - [反派人生，易如反掌[快穿]](https://www.gushi687.com/book/63qu0pk/)
@@ -87,7 +86,6 @@
 - [寄人篱下](https://www.gushi687.com/book/63qt0g7/)
 - [误标记隔壁阿姨O之后](https://www.gushi687.com/book/63qsstv/)
 - [为诡异打工，但反封建迷信](https://www.gushi687.com/book/63qsru6/)
-- [社恐直播鉴宝，但带球跑](https://www.gushi687.com/book/63qspmp/)
 - [在民俗惊悚片被诸神庇护](https://www.gushi687.com/book/63qson5/)
 - [当我穿为龙傲天的情敌](https://www.gushi687.com/book/63qsogo/)
 - [不当救世主就要当人类恶了吗](https://www.gushi687.com/book/63qsog3/)
@@ -97,7 +95,6 @@
 - [假金丝雀深陷修罗场](https://www.gushi687.com/book/63qskms/)
 - [养成游戏，但破解版](https://www.gushi687.com/book/63qsgct/)
 - [霓虹夏日](https://www.gushi687.com/book/63qsboq/)
-- [替嫁后咸鱼继母佛系日常](https://www.gushi687.com/book/63qs8gm/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.gushi687.com/book/63qs7le/)
 - [[综英美]让我统治哥谭！！！](https://www.gushi687.com/book/63qs7dv/)
 - [啊？我是万人迷？［虫族］](https://www.gushi687.com/book/63qs5ed/)
@@ -148,7 +145,6 @@
 - [徐娘子的美食发家日常](https://www.gushi687.com/book/63qqq6r/)
 - [把清冷权臣调成荡夫后](https://www.gushi687.com/book/63qqp7l/)
 - [[群穿]我在御兽番抢人气](https://www.gushi687.com/book/63qqnuh/)
-- [在医院旧楼捡到个外科鼻祖](https://www.gushi687.com/book/63qqn4m/)
 - [全民求生:从小木屋到魔法农场](https://www.gushi687.com/book/63qps90/)
 - [大瑛弟国](https://www.gushi687.com/book/63qps8r/)
 - [巨物致富：回乡开钓场](https://www.gushi687.com/book/63qps7u/)
@@ -158,8 +154,6 @@
 - [御兽师，我打工养你啊](https://www.gushi687.com/book/63qprit/)
 - [六零之成了卷王的妹妹](https://www.gushi687.com/book/63qprfd/)
 - [成为养成系练习生后](https://www.gushi687.com/book/63qpr9r/)
-- [如何扮演源氏重宝](https://www.gushi687.com/book/63qpr92/)
-- [卧底后被港岛大小姐缠上了](https://www.gushi687.com/book/63qpr8i/)
 - [假少爷不想活了](https://www.gushi687.com/book/63qpr5g/)
 - [科学主义魔法学院](https://www.gushi687.com/book/63qpr36/)
 - [猫猫也要养家糊口](https://www.gushi687.com/book/63qpqmo/)
@@ -168,12 +162,12 @@
 - [海岛求生：生活玩家种田囤货](https://www.gushi687.com/book/63qpq56/)
 - [千禧年，拆迁分了十栋楼！](https://www.gushi687.com/book/63qpq53/)
 - [五十年代港城日常](https://www.gushi687.com/book/63qppp5/)
+- [绝不会喜欢五条君的！](https://www.gushi687.com/book/63qppep/)
 - [刑部的小衙门](https://www.gushi687.com/book/63qppen/)
 - [穿成炮灰后我封神了［快穿］](https://www.gushi687.com/book/63qppd9/)
 - [[娱乐圈]过分美丽的她](https://www.gushi687.com/book/63qpp9q/)
 - [高嫁之后](https://www.gushi687.com/book/63qpp9a/)
 - [日化人生[科研]](https://www.gushi687.com/book/63qpp58/)
-- [警察，但犯罪大师系统[刑侦]](https://www.gushi687.com/book/63qpp56/)
 - [清澈女大的六零年代](https://www.gushi687.com/book/63qpp24/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.gushi687.com/book/63qpp1i/)
 ## 相关内容

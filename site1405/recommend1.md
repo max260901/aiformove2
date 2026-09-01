@@ -1,14 +1,16 @@
 
 # 耽美小说 - 最新全本免费手机小说阅读推荐
 
-更新时间：2026-09-01 03:35:13
+更新时间：2026-09-02 03:35:20
 
 耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！
 
 - [耽美小说](https://www.shgifts8.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.shgifts8.com/book/32uhk66/)
+- [死遁后，师弟他不哄不停](https://www.shgifts8.com/book/32uhrbk/)
+- [宠妃岂敢压我！](https://www.shgifts8.com/book/32uhrb9/)
+- [假少爷有特殊的算命技巧](https://www.shgifts8.com/book/32uhr6h/)
 - [从维多利亚时代开始](https://www.shgifts8.com/book/32uhihv/)
 - [九零重组小家庭](https://www.shgifts8.com/book/32uhda6/)
 - [发家致富小夫郎](https://www.shgifts8.com/book/32uh6ju/)
@@ -83,7 +85,6 @@
 - [当菟丝花要分手后](https://www.shgifts8.com/book/32ug6he/)
 - [假金丝雀深陷修罗场](https://www.shgifts8.com/book/32ug5sh/)
 - [[综英美]让我统治哥谭！！！](https://www.shgifts8.com/book/32ug4g8/)
-- [社恐直播鉴宝，但带球跑](https://www.shgifts8.com/book/32ug4ab/)
 - [当我穿为龙傲天的情敌](https://www.shgifts8.com/book/32ug2rj/)
 - [霓虹夏日](https://www.shgifts8.com/book/32ug1td/)
 - [我司艺人永不塌房](https://www.shgifts8.com/book/32uftsh/)
@@ -123,7 +124,6 @@
 - [满级大佬制霸热血运动番](https://www.shgifts8.com/book/32uem89/)
 - [我不是御兽大师](https://www.shgifts8.com/book/32uem7u/)
 - [我真的只会Ctrl啊！！！](https://www.shgifts8.com/book/32uellf/)
-- [我有特殊的升官技巧](https://www.shgifts8.com/book/32uelkp/)
 - [如果时光不记得](https://www.shgifts8.com/book/32uelev/)
 - [反派人生，易如反掌[快穿]](https://www.shgifts8.com/book/32uekop/)
 - [穿越废星，我靠种田求生](https://www.shgifts8.com/book/32uekhi/)
@@ -136,27 +136,22 @@
 - [红楼之霸总他被迫拯救女主角](https://www.shgifts8.com/book/32uebli/)
 - [恶犬攻绑定上司的乖狗系统](https://www.shgifts8.com/book/32ueb89/)
 - [绿茶病秧子骗他说喜欢](https://www.shgifts8.com/book/32ueagv/)
+- [绝不会喜欢五条君的！](https://www.shgifts8.com/book/32ue8s7/)
 - [把清冷权臣调成荡夫后](https://www.shgifts8.com/book/32ue8f5/)
 - [我真的没想在选秀炒CP](https://www.shgifts8.com/book/32ue5hn/)
-- [在医院旧楼捡到个外科鼻祖](https://www.shgifts8.com/book/32ue3v9/)
 - [欢迎来到纳萨力克丧葬公司](https://www.shgifts8.com/book/32ue2v8/)
 - [[群穿]我在御兽番抢人气](https://www.shgifts8.com/book/32ue2s7/)
-- [养父](https://www.shgifts8.com/book/32ue2p0/)
 - [御兽师，我打工养你啊](https://www.shgifts8.com/book/32ud7om/)
 - [日化人生[科研]](https://www.shgifts8.com/book/32ud7e3/)
 - [95美国贵族高中模拟](https://www.shgifts8.com/book/32ud7ct/)
 - [为诡异打工，但反封建迷信](https://www.shgifts8.com/book/32ud7at/)
 - [成为养成系练习生后](https://www.shgifts8.com/book/32ud7a7/)
-- [如何扮演源氏重宝](https://www.shgifts8.com/book/32ud77v/)
 - [全民求生:从小木屋到魔法农场](https://www.shgifts8.com/book/32ud76t/)
 - [高门小婢](https://www.shgifts8.com/book/32ud74p/)
 - [千禧年，拆迁分了十栋楼！](https://www.shgifts8.com/book/32ud6vn/)
-- [替嫁后咸鱼继母佛系日常](https://www.shgifts8.com/book/32ud6u6/)
-- [人妻O救赎指南](https://www.shgifts8.com/book/32ud6qa/)
 - [大瑛弟国](https://www.shgifts8.com/book/32ud6ma/)
 - [趁她之危](https://www.shgifts8.com/book/32ud6gc/)
 - [八零恶毒后妈杀疯了](https://www.shgifts8.com/book/32ud6f9/)
-- [卧底后被港岛大小姐缠上了](https://www.shgifts8.com/book/32ud6ef/)
 - [十九世纪贵族厨房（美食）](https://www.shgifts8.com/book/32ud6d3/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shgifts8.com/book/32ud69n/)
 - [我是唯一地上神国](https://www.shgifts8.com/book/32ud5um/)
@@ -170,7 +165,6 @@
 - [清澈女大的六零年代](https://www.shgifts8.com/book/32ud545/)
 - [巨物致富：回乡开钓场](https://www.shgifts8.com/book/32ud52d/)
 - [猫猫也要养家糊口](https://www.shgifts8.com/book/32ud504/)
-- [警察，但犯罪大师系统[刑侦]](https://www.shgifts8.com/book/32ud4tc/)
 - [在民俗惊悚片被诸神庇护](https://www.shgifts8.com/book/32ud4qa/)
 - [六零之成了卷王的妹妹](https://www.shgifts8.com/book/32ud4pb/)
 - [假少爷不想活了](https://www.shgifts8.com/book/32ud4mg/)

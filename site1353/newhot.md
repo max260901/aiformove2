@@ -1,39 +1,48 @@
 
 # 书社1687小说免费-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-01 03:36:13
+更新时间：2026-09-02 03:36:21
 
 书社1687小说免费提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏书社1687小说，享受便捷的小说阅读体验。
 
 - [书社1687小说免费](https://www.shushe1687.com/)
 
 ## 最新小说
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shushe1687.com/book/489gtas/)
 - [阿竹与野桃](https://www.shushe1687.com/book/489gt8s/)
+- [从异世界穿回来后](https://www.shushe1687.com/book/489gokg/)
+- [我有嘉宾](https://www.shushe1687.com/book/489gock/)
+- [原配夫人](https://www.shushe1687.com/book/489fumg/)
 - [星际团宠小人鱼](https://www.shushe1687.com/book/489fuk7/)
 - [你，后室管理员](https://www.shushe1687.com/book/489fui2/)
 - [高调装神，猥琐发育](https://www.shushe1687.com/book/489fnds/)
+- [男朋友买一送一](https://www.shushe1687.com/book/489fbrp/)
+- [失而复得的白月光[快穿]](https://www.shushe1687.com/book/489f770/)
 - [如何正确哄睡暴君](https://www.shushe1687.com/book/489f3st/)
+- [躲避原书剧情五年后](https://www.shushe1687.com/book/489f3go/)
 - [逝水](https://www.shushe1687.com/book/489erao/)
-- [寻真](https://www.shushe1687.com/book/489ep61/)
-- [老公是松散生命体](https://www.shushe1687.com/book/489ekhh/)
+- [我不可能舔一个漂亮捞子](https://www.shushe1687.com/book/489epv2/)
+- [你也没死？](https://www.shushe1687.com/book/489ep88/)
+- [沈助理又在隐藏他的超能力](https://www.shushe1687.com/book/489em6a/)
+- [被鬼怪宠爱的漂亮书生](https://www.shushe1687.com/book/489ejae/)
 - [微臣怜惜公主](https://www.shushe1687.com/book/489eiie/)
+- [系统不许我摆烂](https://www.shushe1687.com/book/489ees6/)
+- [误入反派培养直播后](https://www.shushe1687.com/book/489eaai/)
 - [多梦你一会儿](https://www.shushe1687.com/book/489e4ge/)
 - [炮灰的我该如何上位？](https://www.shushe1687.com/book/489e3ur/)
 - [[封神]圣人生欲](https://www.shushe1687.com/book/489e3op/)
-- [这谁的沙雕二次元心声！](https://www.shushe1687.com/book/489e1lo/)
-- [善逸拒绝成为咒术师](https://www.shushe1687.com/book/489e0j0/)
-- [青空来信](https://www.shushe1687.com/book/489dr0a/)
+- [被四皇错看成小动物后](https://www.shushe1687.com/book/489e2jm/)
+- [哥你不能不要我](https://www.shushe1687.com/book/489e1sk/)
+- [隔壁班的松田君](https://www.shushe1687.com/book/489dt4b/)
 - [[足球]罗蜜第一志愿](https://www.shushe1687.com/book/489dppr/)
+- [某柯学的正义伙伴](https://www.shushe1687.com/book/489dpaj/)
 - [井闼山经理每天都被挖墙脚](https://www.shushe1687.com/book/489donc/)
 - [[足球]小小鸟堂堂来袭](https://www.shushe1687.com/book/489dfs6/)
+- [侯府打工人](https://www.shushe1687.com/book/489d9i8/)
 - [好兄弟暴富后非要跟我结婚](https://www.shushe1687.com/book/489d95h/)
 - [法外狂猫](https://www.shushe1687.com/book/489d65a/)
-- [关于我虚构了一个男友这件事](https://www.shushe1687.com/book/489d2st/)
+- [我，剑圣，养生中，勿扰](https://www.shushe1687.com/book/489d2ea/)
 - [和室友他爸恋爱后](https://www.shushe1687.com/book/489cudm/)
 - [直男咒术师的限制级游戏](https://www.shushe1687.com/book/489bnc9/)
-- [女扮男装科举和皇帝撞脸了！](https://www.shushe1687.com/book/489bms6/)
-- [拯救世界从扮演反派开始](https://www.shushe1687.com/book/489bmpl/)
 - [纯爱宇智波基本恋爱法](https://www.shushe1687.com/book/489blvd/)
 ## 相关内容
 - [README](/README.md)

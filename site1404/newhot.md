@@ -1,41 +1,47 @@
 
 # 小顽童寻书网-最热门的免费小说阅读平台|全本玄幻言情网游穿越都市小说在线阅读
 
-更新时间：2026-09-01 03:42:09
+更新时间：2026-09-02 03:42:24
 
 小顽童寻书网提供一个无广告、无弹窗干扰的环境，让您享受纯净的小说阅读体验。涵盖玄幻、网游、言情、穿越、都市等多种类型的小说资源，在这里可以找到最新的章节更新以及完整的书籍内容。
 
 - [小顽童寻书网](https://www.xwt999.com/)
 
 ## 最新小说
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xwt999.com/book/1u5m5df/)
+- [被鬼怪宠爱的漂亮书生](https://www.xwt999.com/book/1u5m8ki/)
+- [男朋友买一送一](https://www.xwt999.com/book/1u5m4v1/)
+- [全天下都在求太子殿下别死！](https://www.xwt999.com/book/1u5m4rn/)
 - [阿竹与野桃](https://www.xwt999.com/book/1u5m4d6/)
 - [如何正确哄睡暴君](https://www.xwt999.com/book/1u5m1dl/)
+- [我不可能舔一个漂亮捞子](https://www.xwt999.com/book/1u5m0f0/)
 - [逝水](https://www.xwt999.com/book/1u5lu82/)
-- [老公是松散生命体](https://www.xwt999.com/book/1u5lp1v/)
+- [你也没死？](https://www.xwt999.com/book/1u5lpem/)
 - [法外狂猫](https://www.xwt999.com/book/1u5lnuk/)
 - [微臣怜惜公主](https://www.xwt999.com/book/1u5lm6c/)
-- [寻真](https://www.xwt999.com/book/1u5lkf4/)
-- [就算是龙傲天也不可以[快穿]](https://www.xwt999.com/book/1u5le8l/)
+- [哥你不能不要我](https://www.xwt999.com/book/1u5lh99/)
+- [沈助理又在隐藏他的超能力](https://www.xwt999.com/book/1u5leil/)
 - [和室友他爸恋爱后](https://www.xwt999.com/book/1u5ldp3/)
-- [女扮男装科举和皇帝撞脸了！](https://www.xwt999.com/book/1u5lcuh/)
+- [系统不许我摆烂](https://www.xwt999.com/book/1u5l92t/)
+- [被豪门封建长兄娇养了](https://www.xwt999.com/book/1u5l602/)
 - [直男咒术师的限制级游戏](https://www.xwt999.com/book/1u5l5o3/)
 - [多梦你一会儿](https://www.xwt999.com/book/1u5l3h8/)
-- [这谁的沙雕二次元心声！](https://www.xwt999.com/book/1u5l1nm/)
 - [穿为清冷影后的污点A](https://www.xwt999.com/book/1u5l0vs/)
-- [善逸拒绝成为咒术师](https://www.xwt999.com/book/1u5kvso/)
+- [侯府打工人](https://www.xwt999.com/book/1u5l0gt/)
 - [炮灰的我该如何上位？](https://www.xwt999.com/book/1u5kv4r/)
-- [豪门养子怀了大哥的崽](https://www.xwt999.com/book/1u5ku4l/)
 - [井闼山经理每天都被挖墙脚](https://www.xwt999.com/book/1u5kt53/)
-- [拯救世界从扮演反派开始](https://www.xwt999.com/book/1u5kt0k/)
 - [[足球]小小鸟堂堂来袭](https://www.xwt999.com/book/1u5kr4d/)
 - [[足球]罗蜜第一志愿](https://www.xwt999.com/book/1u5ko6q/)
-- [青空来信](https://www.xwt999.com/book/1u5kn4n/)
+- [某柯学的正义伙伴](https://www.xwt999.com/book/1u5knen/)
+- [隔壁班的松田君](https://www.xwt999.com/book/1u5kl5g/)
 - [好兄弟暴富后非要跟我结婚](https://www.xwt999.com/book/1u5kl34/)
-- [关于我虚构了一个男友这件事](https://www.xwt999.com/book/1u5kkdp/)
+- [撕毁女配剧本的我被神之子读心了](https://www.xwt999.com/book/1u5kili/)
+- [我，剑圣，养生中，勿扰](https://www.xwt999.com/book/1u5ki4q/)
+- [被四皇错看成小动物后](https://www.xwt999.com/book/1u5ih1k/)
 - [高调装神，猥琐发育](https://www.xwt999.com/book/1u5igkh/)
 - [纯爱宇智波基本恋爱法](https://www.xwt999.com/book/1u5igfk/)
 - [你，后室管理员](https://www.xwt999.com/book/1u5igd7/)
+- [误入反派培养直播后](https://www.xwt999.com/book/1u5ig7j/)
+- [原配夫人](https://www.xwt999.com/book/1u5if8o/)
 - [[封神]圣人生欲](https://www.xwt999.com/book/1u5ierl/)
 - [星际团宠小人鱼](https://www.xwt999.com/book/1u5ieem/)
 ## 相关内容

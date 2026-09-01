@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-09-01 03:43:57
+更新时间：2026-09-02 03:44:11
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
@@ -166,7 +166,6 @@
 - [猫猫也要养家糊口](https://www.yumin66.com/book/1rhru/)
 - [我有一座安全城](https://www.yumin66.com/book/1rhld/)
 - [五十年代港城日常](https://www.yumin66.com/book/1rhj3/)
-- [卧底后被港岛大小姐缠上了](https://www.yumin66.com/book/1rhfj/)
 - [海岛求生：生活玩家种田囤货](https://www.yumin66.com/book/1rhdr/)
 - [当恶女捡回高岭之花](https://www.yumin66.com/book/1rhc3/)
 - [清澈女大的六零年代](https://www.yumin66.com/book/5upa/)

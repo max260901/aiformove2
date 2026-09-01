@@ -1,31 +1,38 @@
 
 # 紫玉海小说 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-09-01 03:44:47
+更新时间：2026-09-02 03:44:59
 
 紫玉海小说网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
 - [紫玉海小说](https://www.ziyuhai.com/)
 
 ## 最新小说
+- [从异世界穿回来后](https://www.ziyuhai.com/book/84rn57r/)
 - [阿竹与野桃](https://www.ziyuhai.com/book/84rn572/)
+- [失而复得的白月光[快穿]](https://www.ziyuhai.com/book/84rn571/)
 - [井闼山经理每天都被挖墙脚](https://www.ziyuhai.com/book/84rn56n/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.ziyuhai.com/book/84rn54a/)
+- [躲避原书剧情五年后](https://www.ziyuhai.com/book/84rn56h/)
 - [星际团宠小人鱼](https://www.ziyuhai.com/book/84rn52t/)
 - [[封神]圣人生欲](https://www.ziyuhai.com/book/84rn52m/)
 - [你，后室管理员](https://www.ziyuhai.com/book/84rn52k/)
+- [原配夫人](https://www.ziyuhai.com/book/84rn529/)
+- [被四皇错看成小动物后](https://www.ziyuhai.com/book/84rn521/)
 - [高调装神，猥琐发育](https://www.ziyuhai.com/book/84rn50f/)
-- [女扮男装科举和皇帝撞脸了！](https://www.ziyuhai.com/book/84rn4t0/)
 - [纯爱宇智波基本恋爱法](https://www.ziyuhai.com/book/84rn4so/)
 - [直男咒术师的限制级游戏](https://www.ziyuhai.com/book/84rn4s3/)
-- [寻真](https://www.ziyuhai.com/book/84rjg67/)
+- [某柯学的正义伙伴](https://www.ziyuhai.com/book/84rkc7d/)
+- [男朋友买一送一](https://www.ziyuhai.com/book/84rk0l8/)
+- [我有嘉宾](https://www.ziyuhai.com/book/84rjs3m/)
+- [沈助理又在隐藏他的超能力](https://www.ziyuhai.com/book/q2qrpa/)
+- [系统不许我摆烂](https://www.ziyuhai.com/book/q2qnpb/)
 - [逝水](https://www.ziyuhai.com/book/q2qh1n/)
-- [青空来信](https://www.ziyuhai.com/book/q2pvcb/)
-- [这谁的沙雕二次元心声！](https://www.ziyuhai.com/book/q2ptab/)
-- [老公是松散生命体](https://www.ziyuhai.com/book/q2pt2v/)
+- [隔壁班的松田君](https://www.ziyuhai.com/book/q2q3rs/)
+- [你也没死？](https://www.ziyuhai.com/book/q2pvnh/)
+- [误入反派培养直播后](https://www.ziyuhai.com/book/q2pm7h/)
 - [多梦你一会儿](https://www.ziyuhai.com/book/q2pi25/)
 - [[足球]罗蜜第一志愿](https://www.ziyuhai.com/book/q2pfeg/)
-- [拯救世界从扮演反派开始](https://www.ziyuhai.com/book/q2pecm/)
+- [哥你不能不要我](https://www.ziyuhai.com/book/q2os1a/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1278/index.md)
