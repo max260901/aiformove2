@@ -1,14 +1,15 @@
 
 # 泡泡中文书社-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-01 03:36:27
+更新时间：2026-09-02 03:36:36
 
 泡泡中文书社是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
 - [泡泡书社](https://www.shushe818.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.shushe818.com/book/29bbvta/)
+- [死遁后，师弟他不哄不停](https://www.shushe818.com/book/29bc2b2/)
+- [宠妃岂敢压我！](https://www.shushe818.com/book/29bc28d/)
 - [发家致富小夫郎](https://www.shushe818.com/book/29bbrag/)
 - [师姐她怎么还不来追求我](https://www.shushe818.com/book/29bbp2d/)
 - [[原神+崩铁]在提瓦特隐居也未尝不可](https://www.shushe818.com/book/29bbp29/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.shushe818.com/book/29bbmjh/)
 - [灭世龙崽有什么错](https://www.shushe818.com/book/29bbfks/)
 - [九零重组小家庭](https://www.shushe818.com/book/29bbdst/)
-- [人妻O救赎指南](https://www.shushe818.com/book/29bbclc/)
-- [养父](https://www.shushe818.com/book/29bbckv/)
+- [假少爷有特殊的算命技巧](https://www.shushe818.com/book/29bbcum/)
 - [在虫族世界逃命升级](https://www.shushe818.com/book/29bb97k/)
 - [神豪文男主是我爸](https://www.shushe818.com/book/29bb892/)
 - [从维多利亚时代开始](https://www.shushe818.com/book/29bavg3/)
-- [我有特殊的升官技巧](https://www.shushe818.com/book/29basoj/)
 - [十九世纪贵族厨房（美食）](https://www.shushe818.com/book/29bapn3/)
 - [星际团宠小人鱼](https://www.shushe818.com/book/29baph2/)
 - [反派人生，易如反掌[快穿]](https://www.shushe818.com/book/29baot2/)
@@ -89,7 +88,6 @@
 - [为诡异打工，但反封建迷信](https://www.shushe818.com/book/29b9ifm/)
 - [在民俗惊悚片被诸神庇护](https://www.shushe818.com/book/29b9hvu/)
 - [不当救世主就要当人类恶了吗](https://www.shushe818.com/book/29b9hkv/)
-- [社恐直播鉴宝，但带球跑](https://www.shushe818.com/book/29b9hk7/)
 - [十福晋吃瓜日常(清穿)](https://www.shushe818.com/book/29b9gbq/)
 - [当我穿为龙傲天的情敌](https://www.shushe818.com/book/29b9fpr/)
 - [假金丝雀深陷修罗场](https://www.shushe818.com/book/29b9f5o/)
@@ -97,7 +95,6 @@
 - [[全职高手]霸图老板是叶修](https://www.shushe818.com/book/29b9e6b/)
 - [养成游戏，但破解版](https://www.shushe818.com/book/29b96ol/)
 - [霓虹夏日](https://www.shushe818.com/book/29b94jn/)
-- [替嫁后咸鱼继母佛系日常](https://www.shushe818.com/book/29b90mq/)
 - [[综英美]让我统治哥谭！！！](https://www.shushe818.com/book/29b8uhh/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.shushe818.com/book/29b8ua0/)
 - [八零恶毒后妈杀疯了](https://www.shushe818.com/book/29b8t5f/)
@@ -148,23 +145,21 @@
 - [我真的没想在选秀炒CP](https://www.shushe818.com/book/29b7iaf/)
 - [把清冷权臣调成荡夫后](https://www.shushe818.com/book/29b7h2t/)
 - [[群穿]我在御兽番抢人气](https://www.shushe818.com/book/29b7gjs/)
-- [在医院旧楼捡到个外科鼻祖](https://www.shushe818.com/book/29b7gbp/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shushe818.com/book/29b6kei/)
 - [假少爷不想活了](https://www.shushe818.com/book/29b6kd5/)
 - [日化人生[科研]](https://www.shushe818.com/book/29b6kcf/)
 - [大瑛弟国](https://www.shushe818.com/book/29b6kak/)
 - [刑部的小衙门](https://www.shushe818.com/book/29b6ka0/)
-- [如何扮演源氏重宝](https://www.shushe818.com/book/29b6k56/)
 - [御兽师，我打工养你啊](https://www.shushe818.com/book/29b6k3h/)
 - [高嫁之后](https://www.shushe818.com/book/29b6k38/)
 - [穿成炮灰后我封神了［快穿］](https://www.shushe818.com/book/29b6jrg/)
 - [古代种田养娃日常](https://www.shushe818.com/book/29b6jki/)
 - [猫猫也要养家糊口](https://www.shushe818.com/book/29b6jic/)
-- [警察，但犯罪大师系统[刑侦]](https://www.shushe818.com/book/29b6jbv/)
 - [全民求生:从小木屋到魔法农场](https://www.shushe818.com/book/29b6j1v/)
 - [六零之成了卷王的妹妹](https://www.shushe818.com/book/29b6j1o/)
 - [95美国贵族高中模拟](https://www.shushe818.com/book/29b6iu2/)
 - [巨物致富：回乡开钓场](https://www.shushe818.com/book/29b6irb/)
+- [绝不会喜欢五条君的！](https://www.shushe818.com/book/29b6iqg/)
 - [科学主义魔法学院](https://www.shushe818.com/book/29b6iq5/)
 - [[娱乐圈]过分美丽的她](https://www.shushe818.com/book/29b6ii6/)
 - [千禧年，拆迁分了十栋楼！](https://www.shushe818.com/book/29b6ifk/)
@@ -175,7 +170,6 @@
 - [五十年代港城日常](https://www.shushe818.com/book/29b6htc/)
 - [清澈女大的六零年代](https://www.shushe818.com/book/29b6hrd/)
 - [海岛求生：生活玩家种田囤货](https://www.shushe818.com/book/29b6hr7/)
-- [卧底后被港岛大小姐缠上了](https://www.shushe818.com/book/29b6hbg/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1373/index.md)

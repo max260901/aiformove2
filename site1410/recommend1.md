@@ -1,7 +1,7 @@
 
 # 新华 MBA雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-09-01 03:41:05
+更新时间：2026-09-02 03:41:21
 
 新华 MBA雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。
 
@@ -158,7 +158,6 @@
 - [星际团宠小人鱼](https://www.xhmba.com/book/7mit8o9/)
 - [我是唯一地上神国](https://www.xhmba.com/book/7mit8k3/)
 - [巨物致富：回乡开钓场](https://www.xhmba.com/book/7mit8ej/)
-- [卧底后被港岛大小姐缠上了](https://www.xhmba.com/book/7mit8d0/)
 - [六零之成了卷王的妹妹](https://www.xhmba.com/book/7mit8cd/)
 - [全民求生:从小木屋到魔法农场](https://www.xhmba.com/book/7mit82n/)
 - [古代种田养娃日常](https://www.xhmba.com/book/7mit82k/)

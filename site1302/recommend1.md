@@ -1,14 +1,15 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-01 03:34:10
+更新时间：2026-09-02 03:34:14
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
 - [七步阁](https://www.revwarny.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.revwarny.com/book/3sgl7q6/)
+- [宠妃岂敢压我！](https://www.revwarny.com/book/3sgl7q8/)
+- [死遁后，师弟他不哄不停](https://www.revwarny.com/book/3sgl7q7/)
 - [发家致富小夫郎](https://www.revwarny.com/book/3sgl7q5/)
 - [痴情女配开始放手了（快穿）](https://www.revwarny.com/book/3sgl7q4/)
 - [[综英美]让我统治哥谭！！！](https://www.revwarny.com/book/3sgl7q2/)
@@ -69,7 +70,6 @@
 - [婚后矜持](https://www.revwarny.com/book/3sgl7la/)
 - [乖乖小宝被豪门长兄娇养了](https://www.revwarny.com/book/3sgl7l6/)
 - [欢迎来到纳萨力克丧葬公司](https://www.revwarny.com/book/3sgl7l4/)
-- [养父](https://www.revwarny.com/book/3sgl7l0/)
 - [九零首富的替嫁小媳妇](https://www.revwarny.com/book/3sgl7kr/)
 - [星际团宠小人鱼](https://www.revwarny.com/book/3sgl7kn/)
 - [十九世纪贵族厨房（美食）](https://www.revwarny.com/book/3sgl7kk/)
@@ -78,15 +78,16 @@
 - [高嫁之后](https://www.revwarny.com/book/3sgl7g1/)
 - [千禧年，拆迁分了十栋楼！](https://www.revwarny.com/book/3sgl7f9/)
 - [我不是御兽大师](https://www.revwarny.com/book/3sgl66e/)
+- [绝不会喜欢五条君的！](https://www.revwarny.com/book/3sgl66a/)
 - [满级大佬制霸热血运动番](https://www.revwarny.com/book/3sgl660/)
 - [六零之成了卷王的妹妹](https://www.revwarny.com/book/3sgl65m/)
 - [古代种田养娃日常](https://www.revwarny.com/book/3sgkh44/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.revwarny.com/book/3sgkga2/)
 - [灭世龙崽有什么错](https://www.revwarny.com/book/3sgjj4b/)
+- [假少爷有特殊的算命技巧](https://www.revwarny.com/book/3sgj9ti/)
 - [九零重组小家庭](https://www.revwarny.com/book/3sgj9lh/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.revwarny.com/book/3sgj6el/)
 - [从维多利亚时代开始](https://www.revwarny.com/book/3sgist4/)
-- [我有特殊的升官技巧](https://www.revwarny.com/book/3sgiqee/)
 - [御兽师，我打工养你啊](https://www.revwarny.com/book/3sgio5k/)
 - [反派人生，易如反掌[快穿]](https://www.revwarny.com/book/3sgimsn/)
 - [啊？我是万人迷？［虫族］](https://www.revwarny.com/book/3sgiedv/)
@@ -99,7 +100,6 @@
 - [日化人生[科研]](https://www.revwarny.com/book/3sgi25i/)
 - [巨物致富：回乡开钓场](https://www.revwarny.com/book/3sghv1q/)
 - [趁她之危](https://www.revwarny.com/book/3sghs6r/)
-- [人妻O救赎指南](https://www.revwarny.com/book/3sghqcq/)
 - [第一游侠[全息]](https://www.revwarny.com/book/3sghpq1/)
 - [摄政王家的咸鱼夫郎](https://www.revwarny.com/book/3sghkq1/)
 - [始皇闺女躺平失败的日子](https://www.revwarny.com/book/3sghiv5/)
@@ -108,7 +108,6 @@
 - [全球进化，而我保持不变](https://www.revwarny.com/book/ceh6u5/)
 - [不当救世主就要当人类恶了吗](https://www.revwarny.com/book/ceh5gl/)
 - [枕边热吻](https://www.revwarny.com/book/ceh2ed/)
-- [社恐直播鉴宝，但带球跑](https://www.revwarny.com/book/ceh0o5/)
 - [[全职高手]霸图老板是叶修](https://www.revwarny.com/book/ceh0lk/)
 - [误标记隔壁阿姨O之后](https://www.revwarny.com/book/ceh09g/)
 - [假金丝雀深陷修罗场](https://www.revwarny.com/book/cegsk0/)
@@ -157,19 +156,14 @@
 - [萩原警官的咒术大冒险](https://www.revwarny.com/book/cef9jg/)
 - [徐娘子的美食发家日常](https://www.revwarny.com/book/cef95t/)
 - [把清冷权臣调成荡夫后](https://www.revwarny.com/book/cef7qh/)
-- [在医院旧楼捡到个外科鼻祖](https://www.revwarny.com/book/cef5eo/)
 - [清澈女大的六零年代](https://www.revwarny.com/book/17r3v0/)
 - [95美国贵族高中模拟](https://www.revwarny.com/book/17r3rh/)
 - [猫猫也要养家糊口](https://www.revwarny.com/book/17r3ji/)
 - [全民求生:从小木屋到魔法农场](https://www.revwarny.com/book/17r37s/)
 - [大瑛弟国](https://www.revwarny.com/book/17r330/)
-- [警察，但犯罪大师系统[刑侦]](https://www.revwarny.com/book/17r2pb/)
 - [海岛求生：生活玩家种田囤货](https://www.revwarny.com/book/17r2la/)
-- [卧底后被港岛大小姐缠上了](https://www.revwarny.com/book/17r2i0/)
 - [[娱乐圈]过分美丽的她](https://www.revwarny.com/book/17r26l/)
 - [我有一座安全城](https://www.revwarny.com/book/17r257/)
-- [替嫁后咸鱼继母佛系日常](https://www.revwarny.com/book/17r24k/)
-- [如何扮演源氏重宝](https://www.revwarny.com/book/17r1on/)
 - [科学主义魔法学院](https://www.revwarny.com/book/3vgn8/)
 - [五十年代港城日常](https://www.revwarny.com/book/3vgbd/)
 - [高门小婢](https://www.revwarny.com/book/3vgac/)

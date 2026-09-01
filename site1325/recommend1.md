@@ -1,7 +1,7 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-09-01 03:41:52
+更新时间：2026-09-02 03:42:07
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。
 
@@ -156,7 +156,6 @@
 - [把清冷权臣调成荡夫后](https://www.xqwz8bk.com/book/51loa0/)
 - [搭档，一起来玩求生游戏吧！](https://www.xqwz8bk.com/book/51ln11/)
 - [绿茶病秧子骗他说喜欢](https://www.xqwz8bk.com/book/51lm4c/)
-- [卧底后被港岛大小姐缠上了](https://www.xqwz8bk.com/book/g5bpk/)
 - [全民求生:从小木屋到魔法农场](https://www.xqwz8bk.com/book/g5blo/)
 - [科学主义魔法学院](https://www.xqwz8bk.com/book/g5bki/)
 - [大瑛弟国](https://www.xqwz8bk.com/book/g5bh4/)

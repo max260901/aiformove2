@@ -1,14 +1,15 @@
 
 # 故事来书吧-免费阅读全网最新最热小说
 
-更新时间：2026-09-01 03:26:14
+更新时间：2026-09-02 03:26:19
 
 故事来书吧提供海量免费无弹窗小说在线阅读服务，涵盖言情、都市、玄幻、武侠等多种类型，让你随时随地享受阅读的乐趣。
 
 - [故事来书吧](https://www.gushi688.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.gushi688.com/book/51217m3/)
+- [宠妃岂敢压我！](https://www.gushi688.com/book/5121a2e/)
+- [死遁后，师弟他不哄不停](https://www.gushi688.com/book/5121a24/)
 - [发家致富小夫郎](https://www.gushi688.com/book/512134u/)
 - [撕碎[刑侦]](https://www.gushi688.com/book/51210pt/)
 - [我的NPC队友全是火影天花板](https://www.gushi688.com/book/51210pj/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.gushi688.com/book/5120uco/)
 - [灭世龙崽有什么错](https://www.gushi688.com/book/5120n4d/)
 - [九零重组小家庭](https://www.gushi688.com/book/5120l9c/)
-- [养父](https://www.gushi688.com/book/5120kqk/)
-- [人妻O救赎指南](https://www.gushi688.com/book/5120kkp/)
+- [假少爷有特殊的算命技巧](https://www.gushi688.com/book/5120kcn/)
 - [在虫族世界逃命升级](https://www.gushi688.com/book/5120gkk/)
 - [神豪文男主是我爸](https://www.gushi688.com/book/5120fpf/)
 - [从维多利亚时代开始](https://www.gushi688.com/book/5120747/)
-- [我有特殊的升官技巧](https://www.gushi688.com/book/5120454/)
 - [星际团宠小人鱼](https://www.gushi688.com/book/512021u/)
 - [十九世纪贵族厨房（美食）](https://www.gushi688.com/book/51201re/)
 - [反派人生，易如反掌[快穿]](https://www.gushi688.com/book/51200hp/)
@@ -89,7 +88,6 @@
 - [为诡异打工，但反封建迷信](https://www.gushi688.com/book/511uqhi/)
 - [当我穿为龙傲天的情敌](https://www.gushi688.com/book/511upea/)
 - [十福晋吃瓜日常(清穿)](https://www.gushi688.com/book/511uolc/)
-- [社恐直播鉴宝，但带球跑](https://www.gushi688.com/book/511uohg/)
 - [不当救世主就要当人类恶了吗](https://www.gushi688.com/book/511umtb/)
 - [在民俗惊悚片被诸神庇护](https://www.gushi688.com/book/511umpk/)
 - [假金丝雀深陷修罗场](https://www.gushi688.com/book/511um5v/)
@@ -97,7 +95,6 @@
 - [当菟丝花要分手后](https://www.gushi688.com/book/511ukqi/)
 - [养成游戏，但破解版](https://www.gushi688.com/book/511ugh8/)
 - [霓虹夏日](https://www.gushi688.com/book/511ubtc/)
-- [替嫁后咸鱼继母佛系日常](https://www.gushi688.com/book/511ua53/)
 - [[综英美]让我统治哥谭！！！](https://www.gushi688.com/book/511u5k1/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.gushi688.com/book/511u56s/)
 - [米花无刁民](https://www.gushi688.com/book/511u4qu/)
@@ -147,17 +144,16 @@
 - [我真的没想在选秀炒CP](https://www.gushi688.com/book/511ss02/)
 - [徐娘子的美食发家日常](https://www.gushi688.com/book/511sqnf/)
 - [把清冷权臣调成荡夫后](https://www.gushi688.com/book/511sno7/)
-- [在医院旧楼捡到个外科鼻祖](https://www.gushi688.com/book/511sngq/)
 - [[群穿]我在御兽番抢人气](https://www.gushi688.com/book/511smem/)
 - [六零之成了卷王的妹妹](https://www.gushi688.com/book/511rrqv/)
 - [假少爷不想活了](https://www.gushi688.com/book/511rrep/)
 - [刑部的小衙门](https://www.gushi688.com/book/511rrc8/)
+- [绝不会喜欢五条君的！](https://www.gushi688.com/book/511rrb7/)
 - [成为养成系练习生后](https://www.gushi688.com/book/511rr53/)
 - [高门小婢](https://www.gushi688.com/book/511rr1u/)
 - [巨物致富：回乡开钓场](https://www.gushi688.com/book/511rqv9/)
 - [高嫁之后](https://www.gushi688.com/book/511rqrm/)
 - [大瑛弟国](https://www.gushi688.com/book/511rqld/)
-- [警察，但犯罪大师系统[刑侦]](https://www.gushi688.com/book/511rqja/)
 - [我是唯一地上神国](https://www.gushi688.com/book/511rqi8/)
 - [穿成炮灰后我封神了［快穿］](https://www.gushi688.com/book/511rq9m/)
 - [海岛求生：生活玩家种田囤货](https://www.gushi688.com/book/511rq69/)
@@ -171,10 +167,8 @@
 - [御兽师，我打工养你啊](https://www.gushi688.com/book/511rp8n/)
 - [五十年代港城日常](https://www.gushi688.com/book/511rp87/)
 - [全民求生:从小木屋到魔法农场](https://www.gushi688.com/book/511rp6q/)
-- [卧底后被港岛大小姐缠上了](https://www.gushi688.com/book/511rp2g/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.gushi688.com/book/511rotp/)
 - [千禧年，拆迁分了十栋楼！](https://www.gushi688.com/book/511roqf/)
-- [如何扮演源氏重宝](https://www.gushi688.com/book/511rop4/)
 - [猫猫也要养家糊口](https://www.gushi688.com/book/511roju/)
 ## 相关内容
 - [README](/README.md)

@@ -1,31 +1,38 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-09-01 03:25:41
+更新时间：2026-09-02 03:25:46
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
 - [故事文学网](https://www.gushi1314.com/)
 
 ## 最新小说
+- [失而复得的白月光[快穿]](https://www.gushi1314.com/book/8m9ju92/)
 - [阿竹与野桃](https://www.gushi1314.com/book/8m9ju8u/)
+- [躲避原书剧情五年后](https://www.gushi1314.com/book/8m9ju76/)
 - [井闼山经理每天都被挖墙脚](https://www.gushi1314.com/book/8m9ju6i/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.gushi1314.com/book/8m9ju58/)
 - [[封神]圣人生欲](https://www.gushi1314.com/book/8m9ju4p/)
 - [你，后室管理员](https://www.gushi1314.com/book/8m9ju36/)
+- [原配夫人](https://www.gushi1314.com/book/8m9ju2n/)
 - [星际团宠小人鱼](https://www.gushi1314.com/book/8m9ju2l/)
+- [被四皇错看成小动物后](https://www.gushi1314.com/book/8m9ju2j/)
 - [高调装神，猥琐发育](https://www.gushi1314.com/book/8m9ju2f/)
 - [直男咒术师的限制级游戏](https://www.gushi1314.com/book/8m9ju1p/)
-- [女扮男装科举和皇帝撞脸了！](https://www.gushi1314.com/book/8m9ju0v/)
+- [从异世界穿回来后](https://www.gushi1314.com/book/8m9jtuv/)
 - [纯爱宇智波基本恋爱法](https://www.gushi1314.com/book/8m9jtta/)
-- [寻真](https://www.gushi1314.com/book/8m9g8bg/)
+- [某柯学的正义伙伴](https://www.gushi1314.com/book/8m9h4g7/)
+- [男朋友买一送一](https://www.gushi1314.com/book/8m9gq8p/)
+- [我有嘉宾](https://www.gushi1314.com/book/8m9gl73/)
+- [系统不许我摆烂](https://www.gushi1314.com/book/rqk3ut/)
+- [沈助理又在隐藏他的超能力](https://www.gushi1314.com/book/rqk36j/)
 - [逝水](https://www.gushi1314.com/book/rqjpgj/)
-- [这谁的沙雕二次元心声！](https://www.gushi1314.com/book/rqj9pb/)
-- [青空来信](https://www.gushi1314.com/book/rqj87r/)
-- [老公是松散生命体](https://www.gushi1314.com/book/rqj719/)
+- [隔壁班的松田君](https://www.gushi1314.com/book/rqjeq5/)
+- [你也没死？](https://www.gushi1314.com/book/rqj8nn/)
+- [误入反派培养直播后](https://www.gushi1314.com/book/rqitan/)
 - [[足球]罗蜜第一志愿](https://www.gushi1314.com/book/rqirav/)
 - [多梦你一会儿](https://www.gushi1314.com/book/rqiqt9/)
-- [拯救世界从扮演反派开始](https://www.gushi1314.com/book/rqim81/)
+- [哥你不能不要我](https://www.gushi1314.com/book/rqi56o/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1320/index.md)

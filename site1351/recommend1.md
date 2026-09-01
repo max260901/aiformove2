@@ -1,7 +1,7 @@
 
 # 泡泡中文小说-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-01 03:41:37
+更新时间：2026-09-02 03:41:52
 
 泡泡中文小说是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -152,7 +152,6 @@
 - [高嫁之后](https://www.xiaoshuo288.com/book/dlue3j/)
 - [猫猫也要养家糊口](https://www.xiaoshuo288.com/book/dludio/)
 - [假少爷不想活了](https://www.xiaoshuo288.com/book/dludh6/)
-- [卧底后被港岛大小姐缠上了](https://www.xiaoshuo288.com/book/dludgd/)
 - [大瑛弟国](https://www.xiaoshuo288.com/book/dludfv/)
 - [御兽师，我打工养你啊](https://www.xiaoshuo288.com/book/dlud7n/)
 - [全民求生:从小木屋到魔法农场](https://www.xiaoshuo288.com/book/dlucs6/)

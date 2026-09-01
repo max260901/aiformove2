@@ -1,14 +1,16 @@
 
 # 微雨数据小说,新笔趣小说阅读网,顶点小说网备份-热门小说大全
 
-更新时间：2026-09-01 03:38:22
+更新时间：2026-09-02 03:38:34
 
 微雨数据小说网作为广大书友喜爱的平台之一，同时也是顶点小说阅读网的官方备份网站，汇集了当前最受欢迎和最火热的小说资源。当遇到顶点小说网无法访问时，请访问笔趣看小说网继续享受精彩内容！
 
 - [微雨数据小说](https://www.weiyushuju.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.weiyushuju.com/book/6rf6n5f/)
+- [死遁后，师弟他不哄不停](https://www.weiyushuju.com/book/6rf6u8e/)
+- [假少爷有特殊的算命技巧](https://www.weiyushuju.com/book/6rf6u67/)
+- [宠妃岂敢压我！](https://www.weiyushuju.com/book/6rf6u33/)
 - [从维多利亚时代开始](https://www.weiyushuju.com/book/6rf6lb0/)
 - [九零重组小家庭](https://www.weiyushuju.com/book/6rf6g0r/)
 - [发家致富小夫郎](https://www.weiyushuju.com/book/6rf696a/)
@@ -84,7 +86,6 @@
 - [假金丝雀深陷修罗场](https://www.weiyushuju.com/book/6rf58vd/)
 - [[综英美]让我统治哥谭！！！](https://www.weiyushuju.com/book/6rf57bn/)
 - [当我穿为龙傲天的情敌](https://www.weiyushuju.com/book/6rf5667/)
-- [社恐直播鉴宝，但带球跑](https://www.weiyushuju.com/book/6rf55ep/)
 - [霓虹夏日](https://www.weiyushuju.com/book/6rf556s/)
 - [我司艺人永不塌房](https://www.weiyushuju.com/book/6rf52fa/)
 - [养成游戏，但破解版](https://www.weiyushuju.com/book/6rf4vru/)
@@ -118,7 +119,6 @@
 - [悟咪观察笔记](https://www.weiyushuju.com/book/6rf3sat/)
 - [直男误入攻略天龙人游戏](https://www.weiyushuju.com/book/6rf3s87/)
 - [今天在伟大航路抽到SSR了吗](https://www.weiyushuju.com/book/6rf3qqp/)
-- [我有特殊的升官技巧](https://www.weiyushuju.com/book/6rf3p9q/)
 - [如果时光不记得](https://www.weiyushuju.com/book/6rf3oqd/)
 - [萩原警官的咒术大冒险](https://www.weiyushuju.com/book/6rf3nu4/)
 - [我不是御兽大师](https://www.weiyushuju.com/book/6rf3nqj/)
@@ -136,23 +136,18 @@
 - [红楼之霸总他被迫拯救女主角](https://www.weiyushuju.com/book/6rf3dv3/)
 - [这男人该死的甜美](https://www.weiyushuju.com/book/6rf3dqk/)
 - [把清冷权臣调成荡夫后](https://www.weiyushuju.com/book/6rf3cur/)
+- [绝不会喜欢五条君的！](https://www.weiyushuju.com/book/6rf3c03/)
 - [绿茶病秧子骗他说喜欢](https://www.weiyushuju.com/book/6rf3b0k/)
 - [我真的没想在选秀炒CP](https://www.weiyushuju.com/book/6rf38op/)
-- [养父](https://www.weiyushuju.com/book/6rf36j6/)
 - [欢迎来到纳萨力克丧葬公司](https://www.weiyushuju.com/book/6rf36it/)
 - [[群穿]我在御兽番抢人气](https://www.weiyushuju.com/book/6rf35r2/)
-- [在医院旧楼捡到个外科鼻祖](https://www.weiyushuju.com/book/6rf354u/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.weiyushuju.com/book/6rf2agr/)
 - [我有一座安全城](https://www.weiyushuju.com/book/6rf2af9/)
-- [如何扮演源氏重宝](https://www.weiyushuju.com/book/6rf2acf/)
 - [猫猫也要养家糊口](https://www.weiyushuju.com/book/6rf2a76/)
 - [星际团宠小人鱼](https://www.weiyushuju.com/book/6rf2a5n/)
 - [日化人生[科研]](https://www.weiyushuju.com/book/6rf2a4d/)
 - [古代种田养娃日常](https://www.weiyushuju.com/book/6rf2a0l/)
-- [警察，但犯罪大师系统[刑侦]](https://www.weiyushuju.com/book/6rf29ia/)
 - [为诡异打工，但反封建迷信](https://www.weiyushuju.com/book/6rf29ds/)
-- [替嫁后咸鱼继母佛系日常](https://www.weiyushuju.com/book/6rf29bl/)
-- [卧底后被港岛大小姐缠上了](https://www.weiyushuju.com/book/6rf29an/)
 - [六零之成了卷王的妹妹](https://www.weiyushuju.com/book/6rf293s/)
 - [千禧年，拆迁分了十栋楼！](https://www.weiyushuju.com/book/6rf28uh/)
 - [御兽师，我打工养你啊](https://www.weiyushuju.com/book/6rf28ss/)
@@ -174,7 +169,6 @@
 - [我是唯一地上神国](https://www.weiyushuju.com/book/6rf27qj/)
 - [成为养成系练习生后](https://www.weiyushuju.com/book/6rf27nd/)
 - [在民俗惊悚片被诸神庇护](https://www.weiyushuju.com/book/6rf27lj/)
-- [人妻O救赎指南](https://www.weiyushuju.com/book/6rf27j7/)
 - [十九世纪贵族厨房（美食）](https://www.weiyushuju.com/book/6rf27h2/)
 ## 相关内容
 - [README](/README.md)

@@ -1,14 +1,16 @@
 
 # 曹操SPA小说 - 小说的海洋，文学的殿堂 | 在线阅读与下载原创小说
 
-更新时间：2026-09-01 03:22:02
+更新时间：2026-09-02 03:22:06
 
 曹操SPA小说是一个专注于优质小说和文学创作的网站，这里是书迷们的天堂，提供丰富的原创网络小说、经典文学作品在线阅读与下载，致力于打造一个充满灵感与创意的文学世界。
 
 - [曹操SPA小说](https://www.caocaospa.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.caocaospa.com/book/8q1tk7n/)
+- [宠妃岂敢压我！](https://www.caocaospa.com/book/8q1tre6/)
+- [死遁后，师弟他不哄不停](https://www.caocaospa.com/book/8q1tre1/)
+- [假少爷有特殊的算命技巧](https://www.caocaospa.com/book/8q1tr90/)
 - [从维多利亚时代开始](https://www.caocaospa.com/book/8q1tig0/)
 - [九零重组小家庭](https://www.caocaospa.com/book/8q1tdd6/)
 - [发家致富小夫郎](https://www.caocaospa.com/book/8q1t6dh/)
@@ -83,7 +85,6 @@
 - [十福晋吃瓜日常(清穿)](https://www.caocaospa.com/book/8q1s5va/)
 - [当菟丝花要分手后](https://www.caocaospa.com/book/8q1s5l8/)
 - [[综英美]让我统治哥谭！！！](https://www.caocaospa.com/book/8q1s5e9/)
-- [社恐直播鉴宝，但带球跑](https://www.caocaospa.com/book/8q1s4vs/)
 - [当我穿为龙傲天的情敌](https://www.caocaospa.com/book/8q1s2k9/)
 - [霓虹夏日](https://www.caocaospa.com/book/8q1s03c/)
 - [养成游戏，但破解版](https://www.caocaospa.com/book/8q1rvdh/)
@@ -126,7 +127,6 @@
 - [始皇闺女躺平失败的日子](https://www.caocaospa.com/book/8q1ql2t/)
 - [我不是御兽大师](https://www.caocaospa.com/book/8q1qktj/)
 - [我真的只会Ctrl啊！！！](https://www.caocaospa.com/book/8q1qk3e/)
-- [我有特殊的升官技巧](https://www.caocaospa.com/book/8q1qjq1/)
 - [徐娘子的美食发家日常](https://www.caocaospa.com/book/8q1qi49/)
 - [搭档，一起来玩求生游戏吧！](https://www.caocaospa.com/book/8q1qfn1/)
 - [刑部的小衙门](https://www.caocaospa.com/book/8q1qfd6/)
@@ -137,30 +137,24 @@
 - [恶犬攻绑定上司的乖狗系统](https://www.caocaospa.com/book/8q1qc2l/)
 - [把清冷权臣调成荡夫后](https://www.caocaospa.com/book/8q1q9vn/)
 - [绿茶病秧子骗他说喜欢](https://www.caocaospa.com/book/8q1q9mc/)
+- [绝不会喜欢五条君的！](https://www.caocaospa.com/book/8q1q9h0/)
 - [我真的没想在选秀炒CP](https://www.caocaospa.com/book/8q1q5ar/)
-- [在医院旧楼捡到个外科鼻祖](https://www.caocaospa.com/book/8q1q50l/)
 - [[群穿]我在御兽番抢人气](https://www.caocaospa.com/book/8q1q4ib/)
 - [欢迎来到纳萨力克丧葬公司](https://www.caocaospa.com/book/8q1q3mk/)
-- [养父](https://www.caocaospa.com/book/8q1q38v/)
 - [高门小婢](https://www.caocaospa.com/book/8q1p7pd/)
 - [全民求生:从小木屋到魔法农场](https://www.caocaospa.com/book/8q1p7o7/)
 - [趁她之危](https://www.caocaospa.com/book/8q1p7o1/)
-- [警察，但犯罪大师系统[刑侦]](https://www.caocaospa.com/book/8q1p7mn/)
 - [在民俗惊悚片被诸神庇护](https://www.caocaospa.com/book/8q1p7kj/)
 - [千禧年，拆迁分了十栋楼！](https://www.caocaospa.com/book/8q1p7i3/)
-- [如何扮演源氏重宝](https://www.caocaospa.com/book/8q1p7fv/)
 - [御兽师，我打工养你啊](https://www.caocaospa.com/book/8q1p7ff/)
 - [我是唯一地上神国](https://www.caocaospa.com/book/8q1p7ab/)
 - [成为养成系练习生后](https://www.caocaospa.com/book/8q1p7a7/)
 - [穿成炮灰后我封神了［快穿］](https://www.caocaospa.com/book/8q1p79l/)
-- [替嫁后咸鱼继母佛系日常](https://www.caocaospa.com/book/8q1p75c/)
 - [为诡异打工，但反封建迷信](https://www.caocaospa.com/book/8q1p6nj/)
 - [[娱乐圈]过分美丽的她](https://www.caocaospa.com/book/8q1p6ls/)
 - [五十年代港城日常](https://www.caocaospa.com/book/8q1p6lc/)
-- [人妻O救赎指南](https://www.caocaospa.com/book/8q1p6kb/)
 - [95美国贵族高中模拟](https://www.caocaospa.com/book/8q1p6b5/)
 - [假少爷不想活了](https://www.caocaospa.com/book/8q1p6a3/)
-- [卧底后被港岛大小姐缠上了](https://www.caocaospa.com/book/8q1p65k/)
 - [八零恶毒后妈杀疯了](https://www.caocaospa.com/book/8q1p60t/)
 - [九零首富的替嫁小媳妇](https://www.caocaospa.com/book/8q1p5ub/)
 - [星际团宠小人鱼](https://www.caocaospa.com/book/8q1p5tj/)

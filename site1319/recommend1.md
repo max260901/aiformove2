@@ -1,14 +1,15 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-09-01 03:28:39
+更新时间：2026-09-02 03:28:44
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
 - [看书小说网](https://www.kanshu666.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.kanshu666.com/book/8jv7ie8/)
+- [死遁后，师弟他不哄不停](https://www.kanshu666.com/book/8jv7iea/)
+- [宠妃岂敢压我！](https://www.kanshu666.com/book/8jv7ie9/)
 - [发家致富小夫郎](https://www.kanshu666.com/book/8jv7ie7/)
 - [我的烧烤摊超美味[美食]](https://www.kanshu666.com/book/8jv7ie0/)
 - [[娱乐圈]穿进同人文里哦多尅](https://www.kanshu666.com/book/8jv7idr/)
@@ -69,7 +70,6 @@
 - [败类游戏](https://www.kanshu666.com/book/8jv7i99/)
 - [我夫君怎会是龙傲天？](https://www.kanshu666.com/book/8jv7i98/)
 - [猫猫也要被魅魔魅惑吗？](https://www.kanshu666.com/book/8jv7i95/)
-- [养父](https://www.kanshu666.com/book/8jv7i92/)
 - [十九世纪贵族厨房（美食）](https://www.kanshu666.com/book/8jv7i8q/)
 - [九零首富的替嫁小媳妇](https://www.kanshu666.com/book/8jv7i7v/)
 - [星际团宠小人鱼](https://www.kanshu666.com/book/8jv7i7j/)
@@ -80,13 +80,14 @@
 - [六零之成了卷王的妹妹](https://www.kanshu666.com/book/8jv7gqb/)
 - [我不是御兽大师](https://www.kanshu666.com/book/8jv7gpv/)
 - [满级大佬制霸热血运动番](https://www.kanshu666.com/book/8jv7gpp/)
+- [绝不会喜欢五条君的！](https://www.kanshu666.com/book/8jv7gpi/)
 - [古代种田养娃日常](https://www.kanshu666.com/book/8jv6rmu/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.kanshu666.com/book/8jv6r7p/)
 - [九零重组小家庭](https://www.kanshu666.com/book/8jv5trc/)
 - [灭世龙崽有什么错](https://www.kanshu666.com/book/8jv5s9o/)
+- [假少爷有特殊的算命技巧](https://www.kanshu666.com/book/8jv5oeq/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kanshu666.com/book/8jv5l9q/)
 - [从维多利亚时代开始](https://www.kanshu666.com/book/8jv57v9/)
-- [我有特殊的升官技巧](https://www.kanshu666.com/book/8jv554c/)
 - [御兽师，我打工养你啊](https://www.kanshu666.com/book/8jv5382/)
 - [反派人生，易如反掌[快穿]](https://www.kanshu666.com/book/8jv51r2/)
 - [啊？我是万人迷？［虫族］](https://www.kanshu666.com/book/8jv4phs/)
@@ -100,7 +101,6 @@
 - [巨物致富：回乡开钓场](https://www.kanshu666.com/book/8jv4bqq/)
 - [趁她之危](https://www.kanshu666.com/book/8jv465f/)
 - [第一游侠[全息]](https://www.kanshu666.com/book/8jv45q2/)
-- [人妻O救赎指南](https://www.kanshu666.com/book/8jv44pc/)
 - [摄政王家的咸鱼夫郎](https://www.kanshu666.com/book/8jv3u0j/)
 - [始皇闺女躺平失败的日子](https://www.kanshu666.com/book/8jv3tio/)
 - [寄人篱下](https://www.kanshu666.com/book/8jv3t88/)
@@ -109,7 +109,6 @@
 - [不当救世主就要当人类恶了吗](https://www.kanshu666.com/book/rj67c2/)
 - [[全职高手]霸图老板是叶修](https://www.kanshu666.com/book/rj64hh/)
 - [枕边热吻](https://www.kanshu666.com/book/rj644b/)
-- [社恐直播鉴宝，但带球跑](https://www.kanshu666.com/book/rj63jj/)
 - [误标记隔壁阿姨O之后](https://www.kanshu666.com/book/rj5uvt/)
 - [养成游戏，但破解版](https://www.kanshu666.com/book/rj5unq/)
 - [十福晋吃瓜日常(清穿)](https://www.kanshu666.com/book/rj5u20/)
@@ -157,23 +156,18 @@
 - [今天在伟大航路抽到SSR了吗](https://www.kanshu666.com/book/rj4an7/)
 - [绿茶病秧子骗他说喜欢](https://www.kanshu666.com/book/rj4a4m/)
 - [把清冷权臣调成荡夫后](https://www.kanshu666.com/book/rj49n4/)
-- [在医院旧楼捡到个外科鼻祖](https://www.kanshu666.com/book/rj48nr/)
 - [我有一座安全城](https://www.kanshu666.com/book/2oa0r5/)
 - [95美国贵族高中模拟](https://www.kanshu666.com/book/2oa09b/)
-- [替嫁后咸鱼继母佛系日常](https://www.kanshu666.com/book/2oa02a/)
 - [猫猫也要养家糊口](https://www.kanshu666.com/book/2o9vo7/)
 - [[娱乐圈]过分美丽的她](https://www.kanshu666.com/book/2o9vnb/)
 - [高门小婢](https://www.kanshu666.com/book/2o9vfk/)
 - [五十年代港城日常](https://www.kanshu666.com/book/2o9v0t/)
 - [米花无刁民](https://www.kanshu666.com/book/2o9uui/)
-- [警察，但犯罪大师系统[刑侦]](https://www.kanshu666.com/book/2o9ulj/)
 - [当恶女捡回高岭之花](https://www.kanshu666.com/book/8qjn1/)
 - [海岛求生：生活玩家种田囤货](https://www.kanshu666.com/book/8qjmi/)
-- [卧底后被港岛大小姐缠上了](https://www.kanshu666.com/book/8qjk3/)
 - [我是唯一地上神国](https://www.kanshu666.com/book/8qji6/)
 - [清澈女大的六零年代](https://www.kanshu666.com/book/8qjhe/)
 - [全民求生:从小木屋到魔法农场](https://www.kanshu666.com/book/8qjbt/)
-- [如何扮演源氏重宝](https://www.kanshu666.com/book/8qjan/)
 - [科学主义魔法学院](https://www.kanshu666.com/book/8qja4/)
 - [大瑛弟国](https://www.kanshu666.com/book/s8bn/)
 ## 相关内容
