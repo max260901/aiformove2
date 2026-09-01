@@ -1,0 +1,57 @@
+
+# 阅读大文学 - 弘扬华夏文化的综合小说阅读平台
+
+更新时间：2026-09-01 03:43:09
+
+阅读大文学致力于弘扬华夏文化，提供丰富的小说资源供免费阅读，涵盖但不限于古典文学、现代文学、当代文学及各类流行小说如言情、都市、玄幻等。
+
+- [阅读大文学](https://www.yuedu188.com/)
+
+## 最新小说
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yuedu188.com/book/1egr6ei/)
+- [阿竹与野桃](https://www.yuedu188.com/book/1egr6bc/)
+- [你，后室管理员](https://www.yuedu188.com/book/1egq81a/)
+- [星际团宠小人鱼](https://www.yuedu188.com/book/1egq7tn/)
+- [高调装神，猥琐发育](https://www.yuedu188.com/book/1egq124/)
+- [如何正确哄睡暴君](https://www.yuedu188.com/book/1egpcjo/)
+- [寻真](https://www.yuedu188.com/book/1egp3pi/)
+- [逝水](https://www.yuedu188.com/book/1egp2mn/)
+- [老公是松散生命体](https://www.yuedu188.com/book/4kup6g/)
+- [微臣怜惜公主](https://www.yuedu188.com/book/4kunau/)
+- [炮灰的我该如何上位？](https://www.yuedu188.com/book/4ku8l3/)
+- [多梦你一会儿](https://www.yuedu188.com/book/4ku7mq/)
+- [[封神]圣人生欲](https://www.yuedu188.com/book/4ku7a2/)
+- [善逸拒绝成为咒术师](https://www.yuedu188.com/book/4ku5l9/)
+- [这谁的沙雕二次元心声！](https://www.yuedu188.com/book/4ku3nq/)
+- [青空来信](https://www.yuedu188.com/book/4ktvge/)
+- [[足球]罗蜜第一志愿](https://www.yuedu188.com/book/4ktush/)
+- [井闼山经理每天都被挖墙脚](https://www.yuedu188.com/book/4ktqpd/)
+- [[足球]小小鸟堂堂来袭](https://www.yuedu188.com/book/4kth6v/)
+- [好兄弟暴富后非要跟我结婚](https://www.yuedu188.com/book/4ktbta/)
+- [法外狂猫](https://www.yuedu188.com/book/4kt8nt/)
+- [关于我虚构了一个男友这件事](https://www.yuedu188.com/book/4kt7iv/)
+- [和室友他爸恋爱后](https://www.yuedu188.com/book/4kt0bl/)
+- [拯救世界从扮演反派开始](https://www.yuedu188.com/book/esf7u/)
+- [纯爱宇智波基本恋爱法](https://www.yuedu188.com/book/eseba/)
+- [直男咒术师的限制级游戏](https://www.yuedu188.com/book/ese05/)
+- [女扮男装科举和皇帝撞脸了！](https://www.yuedu188.com/book/esdv9/)
+## 相关内容
+- [README](/README.md)
+- [首页](/site1354/index.md)
+- [最新热点小说](/site1354/newhot.md)
+- [人气小说](/site1354/b111.md)
+- [推荐小说](/site1354/recommend1.md)
+- [推荐小说列表](/site1354/recommend/index.md)
+- [热点小说](/site1354/hot/index.md)
+- [全本小说](/site1354/quanben/index.md)
+- [网站地图](/site1354/sitemap/index.md)
+- [标签](/site1354/tag/index.md)
+- [爱情小说](/site1354/category101/index.md)
+- [武侠小说](/site1354/category102/index.md)
+- [奇幻小说](/site1354/category103/index.md)
+- [仙侠小说](/site1354/category104/index.md)
+- [游戏小说](/site1354/category105/index.md)
+- [传奇小说](/site1354/category106/index.md)
+- [科幻小说](/site1354/category107/index.md)
+- [惊悚小说](/site1354/category109/index.md)
+- [悬疑小说](/site1354/category110/index.md)
