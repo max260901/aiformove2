@@ -1,14 +1,15 @@
 
 # 笔看阁-最热门的免费小说网 | 玄幻、网游、言情、穿越、都市全本小说在线阅读
 
-更新时间：2026-09-01 03:23:38
+更新时间：2026-09-02 03:23:43
 
 笔看阁是最热门的免费小说网站之一，专注于提供包括玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读服务。本站承诺不设任何弹窗广告，页面简洁易用，为读者创造一个纯净舒适的阅读环境。
 
 - [笔看阁](https://www.dasenluan.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.dasenluan.com/book/3jmhki5/)
+- [宠妃岂敢压我！](https://www.dasenluan.com/book/3jmhki7/)
+- [死遁后，师弟他不哄不停](https://www.dasenluan.com/book/3jmhki6/)
 - [发家致富小夫郎](https://www.dasenluan.com/book/3jmhki4/)
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.dasenluan.com/book/3jmhjou/)
 - [被怪物女友始乱终弃后[gb]](https://www.dasenluan.com/book/3jmhjot/)
@@ -64,16 +65,14 @@
 - [异种新婚报告](https://www.dasenluan.com/book/3jmhjk9/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.dasenluan.com/book/3jmhede/)
 - [我真的只会Ctrl啊！！！](https://www.dasenluan.com/book/3jmhai0/)
-- [养父](https://www.dasenluan.com/book/3jmhadt/)
-- [人妻O救赎指南](https://www.dasenluan.com/book/3jmha61/)
 - [星际团宠小人鱼](https://www.dasenluan.com/book/3jmh3e1/)
 - [灭世龙崽有什么错](https://www.dasenluan.com/book/3jmgv7u/)
 - [九零重组小家庭](https://www.dasenluan.com/book/3jmguv5/)
+- [假少爷有特殊的算命技巧](https://www.dasenluan.com/book/3jmgsue/)
 - [神豪文男主是我爸](https://www.dasenluan.com/book/3jmgpkp/)
 - [在虫族世界逃命升级](https://www.dasenluan.com/book/3jmgo88/)
 - [趁她之危](https://www.dasenluan.com/book/3jmgm6k/)
 - [从维多利亚时代开始](https://www.dasenluan.com/book/3jmgej6/)
-- [我有特殊的升官技巧](https://www.dasenluan.com/book/3jmgbnm/)
 - [反派人生，易如反掌[快穿]](https://www.dasenluan.com/book/3jmg8kf/)
 - [假少爷不想活了](https://www.dasenluan.com/book/3jmg85e/)
 - [春归燕](https://www.dasenluan.com/book/3jmfrin/)
@@ -95,7 +94,6 @@
 - [误标记隔壁阿姨O之后](https://www.dasenluan.com/book/3jmf02c/)
 - [当我穿为龙傲天的情敌](https://www.dasenluan.com/book/3jmev3a/)
 - [不当救世主就要当人类恶了吗](https://www.dasenluan.com/book/3jmeuuh/)
-- [社恐直播鉴宝，但带球跑](https://www.dasenluan.com/book/3jmeuat/)
 - [[全职高手]霸图老板是叶修](https://www.dasenluan.com/book/3jmesai/)
 - [假金丝雀深陷修罗场](https://www.dasenluan.com/book/3jmepnm/)
 - [当菟丝花要分手后](https://www.dasenluan.com/book/3jmeodo/)
@@ -106,7 +104,6 @@
 - [今天又该给祖宗哭坟了[快穿]](https://www.dasenluan.com/book/3jmedbf/)
 - [米花无刁民](https://www.dasenluan.com/book/3jmeceu/)
 - [啊？我是万人迷？［虫族］](https://www.dasenluan.com/book/3jmeb81/)
-- [替嫁后咸鱼继母佛系日常](https://www.dasenluan.com/book/3jmea57/)
 - [重力系杀手误入忍界记实录](https://www.dasenluan.com/book/3jme9i3/)
 - [直男在耽美被迫万人迷［快穿］](https://www.dasenluan.com/book/3jme7hh/)
 - [老婆是恋爱脑女配](https://www.dasenluan.com/book/3jme5cs/)
@@ -150,7 +147,6 @@
 - [绿茶病秧子骗他说喜欢](https://www.dasenluan.com/book/3jmd2gk/)
 - [徐娘子的美食发家日常](https://www.dasenluan.com/book/3jmd19l/)
 - [把清冷权臣调成荡夫后](https://www.dasenluan.com/book/3jmcvln/)
-- [在医院旧楼捡到个外科鼻祖](https://www.dasenluan.com/book/3jmcudo/)
 - [[群穿]我在御兽番抢人气](https://www.dasenluan.com/book/3jmcr32/)
 - [六零之成了卷王的妹妹](https://www.dasenluan.com/book/3jmc3ic/)
 - [穿成炮灰后我封神了［快穿］](https://www.dasenluan.com/book/3jmc3cu/)
@@ -159,10 +155,8 @@
 - [我不是御兽大师](https://www.dasenluan.com/book/3jmc2uj/)
 - [成为养成系练习生后](https://www.dasenluan.com/book/3jmc2rp/)
 - [日化人生[科研]](https://www.dasenluan.com/book/3jmc2qi/)
-- [如何扮演源氏重宝](https://www.dasenluan.com/book/3jmc2qg/)
 - [我是唯一地上神国](https://www.dasenluan.com/book/3jmc2pu/)
 - [海岛求生：生活玩家种田囤货](https://www.dasenluan.com/book/3jmc2ot/)
-- [卧底后被港岛大小姐缠上了](https://www.dasenluan.com/book/3jmc2ge/)
 - [全民求生:从小木屋到魔法农场](https://www.dasenluan.com/book/3jmc2cj/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.dasenluan.com/book/3jmc2ap/)
 - [古代种田养娃日常](https://www.dasenluan.com/book/3jmc25f/)
@@ -172,8 +166,8 @@
 - [五十年代港城日常](https://www.dasenluan.com/book/3jmc15s/)
 - [猫猫也要养家糊口](https://www.dasenluan.com/book/3jmc0vq/)
 - [巨物致富：回乡开钓场](https://www.dasenluan.com/book/3jmc0tb/)
+- [绝不会喜欢五条君的！](https://www.dasenluan.com/book/3jmc0p6/)
 - [满级大佬制霸热血运动番](https://www.dasenluan.com/book/3jmc0o3/)
-- [警察，但犯罪大师系统[刑侦]](https://www.dasenluan.com/book/3jmc0mo/)
 - [高门小婢](https://www.dasenluan.com/book/3jmc0lt/)
 - [清澈女大的六零年代](https://www.dasenluan.com/book/3jmc0j7/)
 ## 相关内容

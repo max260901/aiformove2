@@ -1,7 +1,7 @@
 
 # 哲理书客吧-全本小说免费阅读及txt下载,最新章节无弹窗
 
-更新时间：2026-09-01 03:44:32
+更新时间：2026-09-02 03:44:45
 
 哲理书客吧提供最快更新的热门网络小说最新章节，支持全本小说在线免费阅读与txt电子书打包下载服务。收录多本经典好看的小说，并承诺无广告弹窗清爽阅读体验，是小说爱好者的理想选择。
 
@@ -160,7 +160,6 @@
 - [日化人生[科研]](https://www.zheli518.com/book/4tal458/)
 - [成为养成系练习生后](https://www.zheli518.com/book/4tal42q/)
 - [科学主义魔法学院](https://www.zheli518.com/book/4tal40s/)
-- [卧底后被港岛大小姐缠上了](https://www.zheli518.com/book/4tal3su/)
 - [千禧年，拆迁分了十栋楼！](https://www.zheli518.com/book/4tal3f0/)
 - [高嫁之后](https://www.zheli518.com/book/4tal3dn/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.zheli518.com/book/4tal3a0/)

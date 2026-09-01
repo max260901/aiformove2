@@ -1,14 +1,15 @@
 
 # 读者电子书-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-09-01 03:23:54
+更新时间：2026-09-02 03:23:58
 
 读者电子书提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
 
 - [读者电子书](https://www.duzhe368.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.duzhe368.com/book/3hfv5uh/)
+- [死遁后，师弟他不哄不停](https://www.duzhe368.com/book/3hfv8af/)
+- [宠妃岂敢压我！](https://www.duzhe368.com/book/3hfv884/)
 - [发家致富小夫郎](https://www.duzhe368.com/book/3hfv1ab/)
 - [痴情女配开始放手了（快穿）](https://www.duzhe368.com/book/3hfuv1o/)
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.duzhe368.com/book/3hfuv1l/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.duzhe368.com/book/3hfuskr/)
 - [灭世龙崽有什么错](https://www.duzhe368.com/book/3hfulcm/)
 - [九零重组小家庭](https://www.duzhe368.com/book/3hfujkd/)
-- [人妻O救赎指南](https://www.duzhe368.com/book/3hfuj17/)
-- [养父](https://www.duzhe368.com/book/3hfuiv8/)
+- [假少爷有特殊的算命技巧](https://www.duzhe368.com/book/3hfuii0/)
 - [在虫族世界逃命升级](https://www.duzhe368.com/book/3hfuepo/)
 - [神豪文男主是我爸](https://www.duzhe368.com/book/3hfue5d/)
 - [从维多利亚时代开始](https://www.duzhe368.com/book/3hfu576/)
-- [我有特殊的升官技巧](https://www.duzhe368.com/book/3hfu29l/)
 - [十九世纪贵族厨房（美食）](https://www.duzhe368.com/book/3hfu082/)
 - [星际团宠小人鱼](https://www.duzhe368.com/book/3hfu02v/)
 - [反派人生，易如反掌[快穿]](https://www.duzhe368.com/book/3hftuoa/)
@@ -88,7 +87,6 @@
 - [为诡异打工，但反封建迷信](https://www.duzhe368.com/book/3hfsqeb/)
 - [误标记隔壁阿姨O之后](https://www.duzhe368.com/book/3hfspgr/)
 - [十福晋吃瓜日常(清穿)](https://www.duzhe368.com/book/3hfsnk2/)
-- [社恐直播鉴宝，但带球跑](https://www.duzhe368.com/book/3hfsn7p/)
 - [在民俗惊悚片被诸神庇护](https://www.duzhe368.com/book/3hfsmqe/)
 - [不当救世主就要当人类恶了吗](https://www.duzhe368.com/book/3hfsls2/)
 - [当我穿为龙傲天的情敌](https://www.duzhe368.com/book/3hfslrc/)
@@ -97,7 +95,6 @@
 - [假金丝雀深陷修罗场](https://www.duzhe368.com/book/3hfsj6f/)
 - [养成游戏，但破解版](https://www.duzhe368.com/book/3hfscr7/)
 - [霓虹夏日](https://www.duzhe368.com/book/3hfsaa9/)
-- [替嫁后咸鱼继母佛系日常](https://www.duzhe368.com/book/3hfs88q/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.duzhe368.com/book/3hfs52i/)
 - [[综英美]让我统治哥谭！！！](https://www.duzhe368.com/book/3hfs3p5/)
 - [啊？我是万人迷？［虫族］](https://www.duzhe368.com/book/3hfs1jm/)
@@ -146,12 +143,10 @@
 - [我不是御兽大师](https://www.duzhe368.com/book/3hfqr6j/)
 - [我真的没想在选秀炒CP](https://www.duzhe368.com/book/3hfqoqi/)
 - [徐娘子的美食发家日常](https://www.duzhe368.com/book/3hfqojj/)
-- [在医院旧楼捡到个外科鼻祖](https://www.duzhe368.com/book/3hfqmv8/)
 - [把清冷权臣调成荡夫后](https://www.duzhe368.com/book/3hfqkp4/)
 - [[群穿]我在御兽番抢人气](https://www.duzhe368.com/book/3hfqkm0/)
 - [古代种田养娃日常](https://www.duzhe368.com/book/3hfpq0i/)
 - [我是唯一地上神国](https://www.duzhe368.com/book/3hfppvf/)
-- [如何扮演源氏重宝](https://www.duzhe368.com/book/3hfppkb/)
 - [[娱乐圈]过分美丽的她](https://www.duzhe368.com/book/3hfppge/)
 - [日化人生[科研]](https://www.duzhe368.com/book/3hfppfb/)
 - [假少爷不想活了](https://www.duzhe368.com/book/3hfppdd/)
@@ -159,9 +154,8 @@
 - [千禧年，拆迁分了十栋楼！](https://www.duzhe368.com/book/3hfpp7f/)
 - [大瑛弟国](https://www.duzhe368.com/book/3hfpp62/)
 - [95美国贵族高中模拟](https://www.duzhe368.com/book/3hfpp5l/)
-- [警察，但犯罪大师系统[刑侦]](https://www.duzhe368.com/book/3hfpp4t/)
+- [绝不会喜欢五条君的！](https://www.duzhe368.com/book/3hfpp3u/)
 - [六零之成了卷王的妹妹](https://www.duzhe368.com/book/3hfpp3i/)
-- [卧底后被港岛大小姐缠上了](https://www.duzhe368.com/book/3hfpp2j/)
 - [我有一座安全城](https://www.duzhe368.com/book/3hfpoio/)
 - [巨物致富：回乡开钓场](https://www.duzhe368.com/book/3hfpoei/)
 - [成为养成系练习生后](https://www.duzhe368.com/book/3hfpoe0/)

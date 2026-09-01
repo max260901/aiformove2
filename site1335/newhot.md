@@ -1,7 +1,7 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-09-01 03:27:36
+更新时间：2026-09-02 03:27:41
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。
 
@@ -9,29 +9,36 @@
 
 ## 最新小说
 - [阿竹与野桃](https://www.jxbfsz.com/book/29i1oa4/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.jxbfsz.com/book/29i1o9t/)
+- [躲避原书剧情五年后](https://www.jxbfsz.com/book/29i1m5v/)
+- [我有嘉宾](https://www.jxbfsz.com/book/29i1d50/)
+- [从异世界穿回来后](https://www.jxbfsz.com/book/29i1cej/)
 - [你，后室管理员](https://www.jxbfsz.com/book/29i181q/)
+- [原配夫人](https://www.jxbfsz.com/book/29i181d/)
 - [星际团宠小人鱼](https://www.jxbfsz.com/book/29i17vc/)
 - [高调装神，猥琐发育](https://www.jxbfsz.com/book/29hvs6r/)
+- [男朋友买一送一](https://www.jxbfsz.com/book/29hvqvp/)
 - [直男咒术师的限制级游戏](https://www.jxbfsz.com/book/29hvl7t/)
-- [女扮男装科举和皇帝撞脸了！](https://www.jxbfsz.com/book/29hvkve/)
 - [如何正确哄睡暴君](https://www.jxbfsz.com/book/29hvemd/)
-- [寻真](https://www.jxbfsz.com/book/29hv8uo/)
+- [失而复得的白月光[快穿]](https://www.jxbfsz.com/book/29hvc5d/)
 - [逝水](https://www.jxbfsz.com/book/29hv7gk/)
+- [你也没死？](https://www.jxbfsz.com/book/29hv5d9/)
+- [我不可能舔一个漂亮捞子](https://www.jxbfsz.com/book/29hv2hj/)
+- [沈助理又在隐藏他的超能力](https://www.jxbfsz.com/book/29hv1ir/)
+- [系统不许我摆烂](https://www.jxbfsz.com/book/29huvon/)
+- [误入反派培养直播后](https://www.jxbfsz.com/book/29humht/)
 - [多梦你一会儿](https://www.jxbfsz.com/book/29hugot/)
 - [微臣怜惜公主](https://www.jxbfsz.com/book/29hugg0/)
-- [拯救世界从扮演反派开始](https://www.jxbfsz.com/book/29hud2g/)
+- [哥你不能不要我](https://www.jxbfsz.com/book/29hufj7/)
+- [被鬼怪宠爱的漂亮书生](https://www.jxbfsz.com/book/29hufhb/)
 - [炮灰的我该如何上位？](https://www.jxbfsz.com/book/29hucvb/)
-- [这谁的沙雕二次元心声！](https://www.jxbfsz.com/book/29hua9m/)
+- [隔壁班的松田君](https://www.jxbfsz.com/book/29hu938/)
 - [[封神]圣人生欲](https://www.jxbfsz.com/book/29hu85n/)
-- [青空来信](https://www.jxbfsz.com/book/29hu63l/)
-- [老公是松散生命体](https://www.jxbfsz.com/book/29hu5mg/)
+- [某柯学的正义伙伴](https://www.jxbfsz.com/book/29hu68r/)
 - [纯爱宇智波基本恋爱法](https://www.jxbfsz.com/book/29hu5hu/)
-- [善逸拒绝成为咒术师](https://www.jxbfsz.com/book/29hu5hd/)
 - [[足球]罗蜜第一志愿](https://www.jxbfsz.com/book/29hu27p/)
+- [被四皇错看成小动物后](https://www.jxbfsz.com/book/29hu1i4/)
 - [井闼山经理每天都被挖墙脚](https://www.jxbfsz.com/book/29htu83/)
 - [好兄弟暴富后非要跟我结婚](https://www.jxbfsz.com/book/29htjav/)
-- [关于我虚构了一个男友这件事](https://www.jxbfsz.com/book/29htit1/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1335/index.md)

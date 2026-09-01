@@ -1,7 +1,7 @@
 
 # 爱阅读-最新优质免费无弹窗小说在线阅读
 
-更新时间：2026-09-01 03:43:42
+更新时间：2026-09-02 03:43:56
 
 爱阅读提供清爽干净、页面整洁没弹窗的网络小说阅读体验。这里有大量的免费小说、完本小说供您选择，包括热门言情小说、玄幻小说、仙侠小说等多种类型。是广大书友必备的纯绿色小说阅读网站。
 
@@ -148,7 +148,6 @@
 - [大瑛弟国](https://www.yuedu788.com/book/1on1qfs/)
 - [绝不会喜欢五条君的！](https://www.yuedu788.com/book/1on1qes/)
 - [95美国贵族高中模拟](https://www.yuedu788.com/book/1on1qb5/)
-- [卧底后被港岛大小姐缠上了](https://www.yuedu788.com/book/1on1qb3/)
 - [刑部的小衙门](https://www.yuedu788.com/book/1on1q4c/)
 - [高门小婢](https://www.yuedu788.com/book/1on1puk/)
 - [古代种田养娃日常](https://www.yuedu788.com/book/1on1pt1/)

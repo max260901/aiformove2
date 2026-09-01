@@ -1,7 +1,7 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-09-01 03:43:24
+更新时间：2026-09-02 03:43:39
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
@@ -165,7 +165,6 @@
 - [海岛求生：生活玩家种田囤货](https://www.yuedu687.com/book/o9kof/)
 - [米花无刁民](https://www.yuedu687.com/book/o9kj4/)
 - [大瑛弟国](https://www.yuedu687.com/book/o9kft/)
-- [卧底后被港岛大小姐缠上了](https://www.yuedu687.com/book/o9kde/)
 - [当恶女捡回高岭之花](https://www.yuedu687.com/book/o9k9b/)
 - [我是唯一地上神国](https://www.yuedu687.com/book/o9k11/)
 - [95美国贵族高中模拟](https://www.yuedu687.com/book/o9js1/)
