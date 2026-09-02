@@ -1,19 +1,22 @@
 
 # 耽美小说 - 最新全本免费手机小说阅读推荐
 
-更新时间：2026-09-02 03:35:20
+更新时间：2026-09-03 03:35:23
 
 耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！
 
 - [耽美小说](https://www.shgifts8.com/)
 
 ## 最新小说
-- [死遁后，师弟他不哄不停](https://www.shgifts8.com/book/32uhrbk/)
-- [宠妃岂敢压我！](https://www.shgifts8.com/book/32uhrb9/)
-- [假少爷有特殊的算命技巧](https://www.shgifts8.com/book/32uhr6h/)
+- [上个鬼班[无限]](https://www.shgifts8.com/book/32ui0bj/)
+- [[足球]足坛人生模拟器](https://www.shgifts8.com/book/32uhvpi/)
+- [让暴君Alpha怀崽后](https://www.shgifts8.com/book/32uhqgt/)
+- [娇美人换嫁七零大佬后](https://www.shgifts8.com/book/32uhob9/)
 - [从维多利亚时代开始](https://www.shgifts8.com/book/32uhihv/)
-- [九零重组小家庭](https://www.shgifts8.com/book/32uhda6/)
-- [发家致富小夫郎](https://www.shgifts8.com/book/32uh6ju/)
+- [昭暮](https://www.shgifts8.com/book/32uhe5t/)
+- [边关小夫郎](https://www.shgifts8.com/book/32uh6ju/)
+- [食明](https://www.shgifts8.com/book/32uh3uv/)
+- [诡话第一boss](https://www.shgifts8.com/book/32uh0mq/)
 - [灭世龙崽有什么错](https://www.shgifts8.com/book/32ugsqh/)
 - [[娱乐圈]穿进同人文里哦多尅](https://www.shgifts8.com/book/32ugspa/)
 - [我的NPC队友全是火影天花板](https://www.shgifts8.com/book/32ugsfa/)
@@ -47,7 +50,6 @@
 - [阿竹与野桃](https://www.shgifts8.com/book/32ugqo2/)
 - [炮灰丫鬟靠签到躺赢了](https://www.shgifts8.com/book/32ugqo1/)
 - [被怪物女友始乱终弃后[gb]](https://www.shgifts8.com/book/32ugqnl/)
-- [乖乖小宝被豪门长兄娇养了](https://www.shgifts8.com/book/32ugqnb/)
 - [私恋旧星](https://www.shgifts8.com/book/32ugqmo/)
 - [身为人造人的我梦想是成为救世主](https://www.shgifts8.com/book/32ugqll/)
 - [我们生活玩家是这样的](https://www.shgifts8.com/book/32ugql9/)
@@ -77,7 +79,7 @@
 - [我写小说纯粹为了赚钱](https://www.shgifts8.com/book/32ughoi/)
 - [寄人篱下](https://www.shgifts8.com/book/32uggna/)
 - [第一游侠[全息]](https://www.shgifts8.com/book/32ugfee/)
-- [[全职高手]霸图老板是叶修](https://www.shgifts8.com/book/32uga2g/)
+- [韩团绿卡不想忍了](https://www.shgifts8.com/book/32ugd83/)
 - [高嫁之后](https://www.shgifts8.com/book/32ug9qi/)
 - [误标记隔壁阿姨O之后](https://www.shgifts8.com/book/32ug9je/)
 - [不当救世主就要当人类恶了吗](https://www.shgifts8.com/book/32ug78a/)
@@ -85,6 +87,7 @@
 - [当菟丝花要分手后](https://www.shgifts8.com/book/32ug6he/)
 - [假金丝雀深陷修罗场](https://www.shgifts8.com/book/32ug5sh/)
 - [[综英美]让我统治哥谭！！！](https://www.shgifts8.com/book/32ug4g8/)
+- [社恐直播鉴宝，但带球跑](https://www.shgifts8.com/book/32ug4ab/)
 - [当我穿为龙傲天的情敌](https://www.shgifts8.com/book/32ug2rj/)
 - [霓虹夏日](https://www.shgifts8.com/book/32ug1td/)
 - [我司艺人永不塌房](https://www.shgifts8.com/book/32uftsh/)
@@ -120,7 +123,6 @@
 - [直男误入攻略天龙人游戏](https://www.shgifts8.com/book/32uenrb/)
 - [悟咪观察笔记](https://www.shgifts8.com/book/32uempb/)
 - [萩原警官的咒术大冒险](https://www.shgifts8.com/book/32uemh1/)
-- [始皇闺女躺平失败的日子](https://www.shgifts8.com/book/32ueme9/)
 - [满级大佬制霸热血运动番](https://www.shgifts8.com/book/32uem89/)
 - [我不是御兽大师](https://www.shgifts8.com/book/32uem7u/)
 - [我真的只会Ctrl啊！！！](https://www.shgifts8.com/book/32uellf/)
@@ -141,7 +143,6 @@
 - [我真的没想在选秀炒CP](https://www.shgifts8.com/book/32ue5hn/)
 - [欢迎来到纳萨力克丧葬公司](https://www.shgifts8.com/book/32ue2v8/)
 - [[群穿]我在御兽番抢人气](https://www.shgifts8.com/book/32ue2s7/)
-- [御兽师，我打工养你啊](https://www.shgifts8.com/book/32ud7om/)
 - [日化人生[科研]](https://www.shgifts8.com/book/32ud7e3/)
 - [95美国贵族高中模拟](https://www.shgifts8.com/book/32ud7ct/)
 - [为诡异打工，但反封建迷信](https://www.shgifts8.com/book/32ud7at/)
@@ -168,7 +169,6 @@
 - [在民俗惊悚片被诸神庇护](https://www.shgifts8.com/book/32ud4qa/)
 - [六零之成了卷王的妹妹](https://www.shgifts8.com/book/32ud4pb/)
 - [假少爷不想活了](https://www.shgifts8.com/book/32ud4mg/)
-- [穿成炮灰后我封神了［快穿］](https://www.shgifts8.com/book/32ud4l8/)
 - [星际团宠小人鱼](https://www.shgifts8.com/book/32ud4io/)
 ## 相关内容
 - [README](/README.md)

@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-02 03:22:20
+更新时间：2026-09-03 03:22:21
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
@@ -10,29 +10,29 @@
 ## 最新小说
 - [阿竹与野桃](https://www.ccccenergy.com/book/7car69i/)
 - [井闼山经理每天都被挖墙脚](https://www.ccccenergy.com/book/7car68e/)
+- [暴君偏头痛](https://www.ccccenergy.com/book/7car684/)
 - [失而复得的白月光[快穿]](https://www.ccccenergy.com/book/7car67a/)
 - [躲避原书剧情五年后](https://www.ccccenergy.com/book/7car66c/)
+- [[综英美]让我统治哥谭！！！](https://www.ccccenergy.com/book/7car660/)
 - [[封神]圣人生欲](https://www.ccccenergy.com/book/7car64n/)
-- [原配夫人](https://www.ccccenergy.com/book/7car646/)
 - [星际团宠小人鱼](https://www.ccccenergy.com/book/7car63c/)
 - [你，后室管理员](https://www.ccccenergy.com/book/7car635/)
 - [被四皇错看成小动物后](https://www.ccccenergy.com/book/7car634/)
-- [高调装神，猥琐发育](https://www.ccccenergy.com/book/7car62g/)
 - [从异世界穿回来后](https://www.ccccenergy.com/book/7car60a/)
 - [直男咒术师的限制级游戏](https://www.ccccenergy.com/book/7car5tj/)
 - [纯爱宇智波基本恋爱法](https://www.ccccenergy.com/book/7car5tc/)
-- [某柯学的正义伙伴](https://www.ccccenergy.com/book/7caod92/)
-- [男朋友买一送一](https://www.ccccenergy.com/book/7cao14c/)
-- [我有嘉宾](https://www.ccccenergy.com/book/7cansm0/)
-- [系统不许我摆烂](https://www.ccccenergy.com/book/nkb84k/)
+- [阴郁路人不想被喜欢](https://www.ccccenergy.com/book/7car5tb/)
+- [昭暮](https://www.ccccenergy.com/book/7caqr3e/)
+- [乱步他哥，但武力值max](https://www.ccccenergy.com/book/7cao5n6/)
 - [沈助理又在隐藏他的超能力](https://www.ccccenergy.com/book/nkb70f/)
-- [逝水](https://www.ccccenergy.com/book/nkav2a/)
-- [隔壁班的松田君](https://www.ccccenergy.com/book/nkaevu/)
-- [你也没死？](https://www.ccccenergy.com/book/nkadaj/)
-- [误入反派培养直播后](https://www.ccccenergy.com/book/nka2g6/)
-- [多梦你一会儿](https://www.ccccenergy.com/book/nk9v65/)
+- [在立海大玩网球模拟器](https://www.ccccenergy.com/book/nkargr/)
+- [奶奶蛋糕店[美食]](https://www.ccccenergy.com/book/nkarer/)
+- [[全职高手]问就是没钱](https://www.ccccenergy.com/book/nkal0q/)
+- [虫族治愈师，但恐虫](https://www.ccccenergy.com/book/nkaf7v/)
+- [老公是松散生命体](https://www.ccccenergy.com/book/nka9ut/)
+- [这谁的沙雕二次元心声！](https://www.ccccenergy.com/book/nka963/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.ccccenergy.com/book/nk9tio/)
 - [[足球]罗蜜第一志愿](https://www.ccccenergy.com/book/nk9sjl/)
-- [哥你不能不要我](https://www.ccccenergy.com/book/nk9ase/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1293/index.md)

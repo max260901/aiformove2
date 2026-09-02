@@ -1,7 +1,7 @@
 
 # 书城读书网_免费小说在线阅读|无弹窗广告
 
-更新时间：2026-09-02 03:35:33
+更新时间：2026-09-03 03:35:37
 
 书城读书网是最热门的免费小说网站，提供包括玄幻、都市、言情等多种类型的小说在线阅读服务。这里不仅有最新章节的实时更新，还有全面的小说排行榜，让您轻松找到喜欢的作品。阅读体验极佳，全程无弹窗广告干扰，值得收藏！
 
@@ -10,39 +10,38 @@
 ## 最新小说
 - [阿竹与野桃](https://www.shucheng168.com/book/47fotqn/)
 - [从异世界穿回来后](https://www.shucheng168.com/book/47fopfu/)
-- [我有嘉宾](https://www.shucheng168.com/book/47fop7g/)
+- [昭暮](https://www.shucheng168.com/book/47fo26p/)
 - [星际团宠小人鱼](https://www.shucheng168.com/book/47fnukd/)
 - [你，后室管理员](https://www.shucheng168.com/book/47fnugt/)
-- [原配夫人](https://www.shucheng168.com/book/47fnuft/)
-- [高调装神，猥琐发育](https://www.shucheng168.com/book/47fnn9t/)
-- [男朋友买一送一](https://www.shucheng168.com/book/47fnc7o/)
+- [乱步他哥，但武力值max](https://www.shucheng168.com/book/47fngde/)
 - [失而复得的白月光[快穿]](https://www.shucheng168.com/book/47fn6k7/)
-- [如何正确哄睡暴君](https://www.shucheng168.com/book/47fn5j0/)
 - [躲避原书剧情五年后](https://www.shucheng168.com/book/47fn42s/)
-- [你也没死？](https://www.shucheng168.com/book/47fms0h/)
-- [逝水](https://www.shucheng168.com/book/47fmrss/)
-- [我不可能舔一个漂亮捞子](https://www.shucheng168.com/book/47fmr5e/)
 - [被鬼怪宠爱的漂亮书生](https://www.shucheng168.com/book/47fmmpe/)
+- [老公是松散生命体](https://www.shucheng168.com/book/47fmm2g/)
 - [沈助理又在隐藏他的超能力](https://www.shucheng168.com/book/47fmked/)
 - [微臣怜惜公主](https://www.shucheng168.com/book/47fmj5u/)
-- [系统不许我摆烂](https://www.shucheng168.com/book/47fmfrh/)
-- [误入反派培养直播后](https://www.shucheng168.com/book/47fm8m4/)
-- [多梦你一会儿](https://www.shucheng168.com/book/47fm56o/)
+- [亚当斯与韦恩的适配性](https://www.shucheng168.com/book/47fma1i/)
+- [大美人怀了enigma上司的崽](https://www.shucheng168.com/book/47fm7k1/)
+- [在立海大玩网球模拟器](https://www.shucheng168.com/book/47fm5h0/)
 - [炮灰的我该如何上位？](https://www.shucheng168.com/book/47fm56b/)
 - [被四皇错看成小动物后](https://www.shucheng168.com/book/47fm512/)
-- [哥你不能不要我](https://www.shucheng168.com/book/47fm3oq/)
+- [[综英美]让我统治哥谭！！！](https://www.shucheng168.com/book/47fm510/)
+- [奶奶蛋糕店[美食]](https://www.shucheng168.com/book/47fm4co/)
 - [[封神]圣人生欲](https://www.shucheng168.com/book/47fm2va/)
-- [隔壁班的松田君](https://www.shucheng168.com/book/47flunc/)
-- [某柯学的正义伙伴](https://www.shucheng168.com/book/47flqqn/)
+- [[全职高手]问就是没钱](https://www.shucheng168.com/book/47fm2ga/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.shucheng168.com/book/47fm0nq/)
+- [这谁的沙雕二次元心声！](https://www.shucheng168.com/book/47flvpj/)
 - [[足球]罗蜜第一志愿](https://www.shucheng168.com/book/47flqfn/)
+- [虫族治愈师，但恐虫](https://www.shucheng168.com/book/47flpt7/)
 - [井闼山经理每天都被挖墙脚](https://www.shucheng168.com/book/47fln3k/)
 - [[足球]小小鸟堂堂来袭](https://www.shucheng168.com/book/47fleov/)
 - [好兄弟暴富后非要跟我结婚](https://www.shucheng168.com/book/47fl97c/)
-- [侯府打工人](https://www.shucheng168.com/book/47fl8m3/)
 - [法外狂猫](https://www.shucheng168.com/book/47fl8ab/)
-- [我，剑圣，养生中，勿扰](https://www.shucheng168.com/book/47fl7pt/)
+- [关于我虚构了一个男友这件事](https://www.shucheng168.com/book/47fl7gf/)
+- [暴君偏头痛](https://www.shucheng168.com/book/47fl115/)
 - [和室友他爸恋爱后](https://www.shucheng168.com/book/47fkuom/)
 - [直男咒术师的限制级游戏](https://www.shucheng168.com/book/47fjonv/)
+- [阴郁路人不想被喜欢](https://www.shucheng168.com/book/47fjo3m/)
 - [纯爱宇智波基本恋爱法](https://www.shucheng168.com/book/47fjn9g/)
 ## 相关内容
 - [README](/README.md)

@@ -1,16 +1,14 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-02 03:23:28
+更新时间：2026-09-03 03:23:29
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
 - [随梦小说网](https://www.cq082.com/)
 
 ## 最新小说
-- [死遁后，师弟他不哄不停](https://www.cq082.com/book/1sdfh4m/)
-- [宠妃岂敢压我！](https://www.cq082.com/book/1sdfh4l/)
-- [发家致富小夫郎](https://www.cq082.com/book/1sdfh4j/)
+- [边关小夫郎](https://www.cq082.com/book/1sdfh4j/)
 - [[希腊神话]诸神都是我学生](https://www.cq082.com/book/1sdfgbi/)
 - [师姐她怎么还不来追求我](https://www.cq082.com/book/1sdfgbf/)
 - [折禅（强取豪夺）](https://www.cq082.com/book/1sdfgbd/)
@@ -29,7 +27,6 @@
 - [痴情女配开始放手了（快穿）](https://www.cq082.com/book/1sdfgaf/)
 - [凤凰男就该窝里下蛋](https://www.cq082.com/book/1sdfga9/)
 - [猫猫也要被魅魔魅惑吗？](https://www.cq082.com/book/1sdfga6/)
-- [乖乖小宝被豪门长兄娇养了](https://www.cq082.com/book/1sdfga4/)
 - [[足球]顶级名帅](https://www.cq082.com/book/1sdfga1/)
 - [水管工[GB]](https://www.cq082.com/book/1sdfg9r/)
 - [太子哥哥不想当哥哥](https://www.cq082.com/book/1sdfg9q/)
@@ -65,16 +62,21 @@
 - [万人嫌女配深陷修罗场](https://www.cq082.com/book/1sdfg76/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.cq082.com/book/1sdfauo/)
 - [我真的只会Ctrl啊！！！](https://www.cq082.com/book/1sdf74d/)
+- [上个鬼班[无限]](https://www.cq082.com/book/1sdf10f/)
 - [星际团宠小人鱼](https://www.cq082.com/book/1sdf00k/)
+- [让暴君Alpha怀崽后](https://www.cq082.com/book/1sdeufd/)
+- [娇美人换嫁七零大佬后](https://www.cq082.com/book/1sdesrp/)
 - [灭世龙崽有什么错](https://www.cq082.com/book/1sderv0/)
-- [九零重组小家庭](https://www.cq082.com/book/1sderio/)
-- [假少爷有特殊的算命技巧](https://www.cq082.com/book/1sdephn/)
+- [[足球]足坛人生模拟器](https://www.cq082.com/book/1sdeopn/)
 - [神豪文男主是我爸](https://www.cq082.com/book/1sdem9u/)
 - [在虫族世界逃命升级](https://www.cq082.com/book/1sdekqo/)
 - [趁她之危](https://www.cq082.com/book/1sdeinv/)
+- [昭暮](https://www.cq082.com/book/1sdebsp/)
 - [从维多利亚时代开始](https://www.cq082.com/book/1sdeb42/)
 - [反派人生，易如反掌[快穿]](https://www.cq082.com/book/1sde51k/)
 - [假少爷不想活了](https://www.cq082.com/book/1sde4r1/)
+- [食明](https://www.cq082.com/book/1sddsa2/)
+- [诡话第一boss](https://www.cq082.com/book/1sddoup/)
 - [春归燕](https://www.cq082.com/book/1sddml3/)
 - [十九世纪贵族厨房（美食）](https://www.cq082.com/book/1sddljm/)
 - [高调装神，猥琐发育](https://www.cq082.com/book/1sddldh/)
@@ -83,7 +85,6 @@
 - [全球进化，而我保持不变](https://www.cq082.com/book/1sdd8o5/)
 - [第一游侠[全息]](https://www.cq082.com/book/1sdd7nr/)
 - [寄人篱下](https://www.cq082.com/book/1sdd58q/)
-- [始皇闺女躺平失败的日子](https://www.cq082.com/book/1sdd37r/)
 - [科学主义魔法学院](https://www.cq082.com/book/1sdd31l/)
 - [绿叶](https://www.cq082.com/book/1sdd0u9/)
 - [我写小说纯粹为了赚钱](https://www.cq082.com/book/1sdcve6/)
@@ -94,7 +95,7 @@
 - [十福晋吃瓜日常(清穿)](https://www.cq082.com/book/1sdcras/)
 - [当我穿为龙傲天的情敌](https://www.cq082.com/book/1sdcr95/)
 - [为诡异打工，但反封建迷信](https://www.cq082.com/book/1sdcr5a/)
-- [[全职高手]霸图老板是叶修](https://www.cq082.com/book/1sdcpft/)
+- [社恐直播鉴宝，但带球跑](https://www.cq082.com/book/1sdcoui/)
 - [假金丝雀深陷修罗场](https://www.cq082.com/book/1sdclpe/)
 - [养成游戏，但破解版](https://www.cq082.com/book/1sdcjet/)
 - [当菟丝花要分手后](https://www.cq082.com/book/1sdcj3h/)
@@ -126,6 +127,7 @@
 - [漫漫仙途](https://www.cq082.com/book/1sdbmkh/)
 - [[综港影]野生情人出没地](https://www.cq082.com/book/1sdbkr1/)
 - [你是我的根目录](https://www.cq082.com/book/1sdbjs3/)
+- [韩团绿卡不想忍了](https://www.cq082.com/book/1sdbjab/)
 - [直男误入攻略天龙人游戏](https://www.cq082.com/book/1sdbhu4/)
 - [[综英美]让我统治哥谭！！！](https://www.cq082.com/book/1sdbfm2/)
 - [悟咪观察笔记](https://www.cq082.com/book/1sdbevj/)
@@ -160,9 +162,7 @@
 - [猫猫也要养家糊口](https://www.cq082.com/book/1sd9v4a/)
 - [古代种田养娃日常](https://www.cq082.com/book/1sd9usb/)
 - [巨物致富：回乡开钓场](https://www.cq082.com/book/1sd9ul9/)
-- [穿成炮灰后我封神了［快穿］](https://www.cq082.com/book/1sd9ugd/)
 - [绝不会喜欢五条君的！](https://www.cq082.com/book/1sd9ud8/)
-- [御兽师，我打工养你啊](https://www.cq082.com/book/1sd9tv7/)
 - [高门小婢](https://www.cq082.com/book/1sd9tt3/)
 - [海岛求生：生活玩家种田囤货](https://www.cq082.com/book/1sd9tjj/)
 - [全民求生:从小木屋到魔法农场](https://www.cq082.com/book/1sd9tf9/)

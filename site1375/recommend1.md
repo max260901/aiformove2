@@ -1,18 +1,16 @@
 
 # 精英文学 - 书友最值得收藏的小说免费阅读网
 
-更新时间：2026-09-02 03:41:07
+更新时间：2026-09-03 03:41:12
 
 精英文学为您提供一个干净舒适的阅读环境，作为书友最值得收藏的小说免费阅读网之一，我们致力于打造无广告干扰的最佳在线阅读体验。
 
 - [精英文学](https://www.xcposji.com/)
 
 ## 最新小说
-- [死遁后，师弟他不哄不停](https://www.xcposji.com/book/jnmko0/)
-- [宠妃岂敢压我！](https://www.xcposji.com/book/jnmkn9/)
-- [发家致富小夫郎](https://www.xcposji.com/book/jnmckv/)
-- [假少爷有特殊的算命技巧](https://www.xcposji.com/book/jnm8lq/)
-- [九零重组小家庭](https://www.xcposji.com/book/jnm8cn/)
+- [上个鬼班[无限]](https://www.xcposji.com/book/jnmg7e/)
+- [边关小夫郎](https://www.xcposji.com/book/jnmckv/)
+- [[足球]足坛人生模拟器](https://www.xcposji.com/book/jnm8sb/)
 - [下潜一万米，海渊求生](https://www.xcposji.com/book/jnm809/)
 - [凤凰男就该窝里下蛋](https://www.xcposji.com/book/jnm807/)
 - [阿竹与野桃](https://www.xcposji.com/book/jnm803/)
@@ -42,7 +40,6 @@
 - [我夫君怎会是龙傲天？](https://www.xcposji.com/book/jnm7sb/)
 - [游戏角色想和玩家谈恋爱](https://www.xcposji.com/book/jnm7s4/)
 - [女先生](https://www.xcposji.com/book/jnm7rl/)
-- [乖乖小宝被豪门长兄娇养了](https://www.xcposji.com/book/jnm7rf/)
 - [游戏boss们抢着要当我的猫[全息]](https://www.xcposji.com/book/jnm7ra/)
 - [炮灰丫鬟靠签到躺赢了](https://www.xcposji.com/book/jnm7r4/)
 - [除病弱万人嫌外全员重生](https://www.xcposji.com/book/jnm7r1/)
@@ -66,11 +63,16 @@
 - [[原神+崩铁]在提瓦特隐居也未尝不可](https://www.xcposji.com/book/jnm7oj/)
 - [九十年代从军记](https://www.xcposji.com/book/jnm7oe/)
 - [万人嫌女配深陷修罗场](https://www.xcposji.com/book/jnm7od/)
+- [让暴君Alpha怀崽后](https://www.xcposji.com/book/jnm69m/)
 - [在虫族世界逃命升级](https://www.xcposji.com/book/jnm50q/)
 - [神豪文男主是我爸](https://www.xcposji.com/book/jnm3on/)
+- [娇美人换嫁七零大佬后](https://www.xcposji.com/book/jnm3h1/)
 - [我真的只会Ctrl啊！！！](https://www.xcposji.com/book/jnm208/)
 - [从维多利亚时代开始](https://www.xcposji.com/book/jnlror/)
+- [昭暮](https://www.xcposji.com/book/jnlo62/)
 - [反派人生，易如反掌[快穿]](https://www.xcposji.com/book/jnll9d/)
+- [食明](https://www.xcposji.com/book/jnlco3/)
+- [诡话第一boss](https://www.xcposji.com/book/jnl9hf/)
 - [摄政王家的咸鱼夫郎](https://www.xcposji.com/book/jnl15r/)
 - [绿叶](https://www.xcposji.com/book/jnktnj/)
 - [枕边热吻](https://www.xcposji.com/book/jnktmo/)
@@ -79,15 +81,15 @@
 - [我写小说纯粹为了赚钱](https://www.xcposji.com/book/jnkpf0/)
 - [第一游侠[全息]](https://www.xcposji.com/book/jnkosg/)
 - [科学主义魔法学院](https://www.xcposji.com/book/jnkoms/)
-- [始皇闺女躺平失败的日子](https://www.xcposji.com/book/jnkmnn/)
+- [韩团绿卡不想忍了](https://www.xcposji.com/book/jnkhr9/)
 - [误标记隔壁阿姨O之后](https://www.xcposji.com/book/jnkhgm/)
 - [当菟丝花要分手后](https://www.xcposji.com/book/jnkgl5/)
 - [不当救世主就要当人类恶了吗](https://www.xcposji.com/book/jnkgbk/)
 - [十福晋吃瓜日常(清穿)](https://www.xcposji.com/book/jnkg3b/)
 - [假金丝雀深陷修罗场](https://www.xcposji.com/book/jnkcum/)
-- [[全职高手]霸图老板是叶修](https://www.xcposji.com/book/jnkcqk/)
 - [当我穿为龙傲天的情敌](https://www.xcposji.com/book/jnkcpb/)
 - [高嫁之后](https://www.xcposji.com/book/jnkc7i/)
+- [社恐直播鉴宝，但带球跑](https://www.xcposji.com/book/jnkbst/)
 - [[综英美]让我统治哥谭！！！](https://www.xcposji.com/book/jnk7id/)
 - [养成游戏，但破解版](https://www.xcposji.com/book/jnk7ce/)
 - [霓虹夏日](https://www.xcposji.com/book/jnk4bl/)
@@ -146,10 +148,8 @@
 - [海岛求生：生活玩家种田囤货](https://www.xcposji.com/book/jnhgck/)
 - [星际团宠小人鱼](https://www.xcposji.com/book/jnhgbu/)
 - [为诡异打工，但反封建迷信](https://www.xcposji.com/book/jnhg7m/)
-- [御兽师，我打工养你啊](https://www.xcposji.com/book/jnhg19/)
 - [在民俗惊悚片被诸神庇护](https://www.xcposji.com/book/jnhfqf/)
 - [千禧年，拆迁分了十栋楼！](https://www.xcposji.com/book/jnhfms/)
-- [穿成炮灰后我封神了［快穿］](https://www.xcposji.com/book/jnhfl2/)
 - [全民求生:从小木屋到魔法农场](https://www.xcposji.com/book/jnhfkf/)
 - [清澈女大的六零年代](https://www.xcposji.com/book/jnhfib/)
 - [趁她之危](https://www.xcposji.com/book/jnhfhp/)
