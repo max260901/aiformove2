@@ -1,7 +1,7 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-09-02 03:21:33
+更新时间：2026-09-03 03:21:35
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。
 
@@ -9,30 +9,30 @@
 
 ## 最新小说
 - [井闼山经理每天都被挖墙脚](https://www.bianlishihao.com/book/2vr7ajv/)
+- [暴君偏头痛](https://www.bianlishihao.com/book/2vr7ajs/)
 - [阿竹与野桃](https://www.bianlishihao.com/book/2vr7aj7/)
 - [失而复得的白月光[快穿]](https://www.bianlishihao.com/book/2vr7aj6/)
+- [[综英美]让我统治哥谭！！！](https://www.bianlishihao.com/book/2vr7aim/)
 - [躲避原书剧情五年后](https://www.bianlishihao.com/book/2vr7ahr/)
 - [你，后室管理员](https://www.bianlishihao.com/book/2vr7agr/)
-- [原配夫人](https://www.bianlishihao.com/book/2vr7agk/)
 - [[封神]圣人生欲](https://www.bianlishihao.com/book/2vr7afq/)
 - [星际团宠小人鱼](https://www.bianlishihao.com/book/2vr7afa/)
 - [被四皇错看成小动物后](https://www.bianlishihao.com/book/2vr7aeh/)
-- [高调装神，猥琐发育](https://www.bianlishihao.com/book/2vr7adk/)
 - [从异世界穿回来后](https://www.bianlishihao.com/book/2vr7acn/)
 - [直男咒术师的限制级游戏](https://www.bianlishihao.com/book/2vr7a9e/)
+- [阴郁路人不想被喜欢](https://www.bianlishihao.com/book/2vr7a9d/)
 - [纯爱宇智波基本恋爱法](https://www.bianlishihao.com/book/2vr7a9a/)
-- [某柯学的正义伙伴](https://www.bianlishihao.com/book/2vr4i9j/)
-- [男朋友买一送一](https://www.bianlishihao.com/book/2vr46ub/)
-- [我有嘉宾](https://www.bianlishihao.com/book/2vr3uth/)
+- [昭暮](https://www.bianlishihao.com/book/2vr6vdd/)
+- [乱步他哥，但武力值max](https://www.bianlishihao.com/book/2vr48ov/)
 - [沈助理又在隐藏他的超能力](https://www.bianlishihao.com/book/9ip7lo/)
-- [系统不许我摆烂](https://www.bianlishihao.com/book/9ip6kl/)
-- [逝水](https://www.bianlishihao.com/book/9iosiu/)
-- [隔壁班的松田君](https://www.bianlishihao.com/book/9ioihf/)
-- [你也没死？](https://www.bianlishihao.com/book/9iofcj/)
-- [误入反派培养直播后](https://www.bianlishihao.com/book/9io3h5/)
-- [多梦你一会儿](https://www.bianlishihao.com/book/9io0i1/)
+- [奶奶蛋糕店[美食]](https://www.bianlishihao.com/book/9iotjt/)
+- [在立海大玩网球模拟器](https://www.bianlishihao.com/book/9ioro9/)
+- [[全职高手]问就是没钱](https://www.bianlishihao.com/book/9ionre/)
+- [虫族治愈师，但恐虫](https://www.bianlishihao.com/book/9ioicl/)
+- [老公是松散生命体](https://www.bianlishihao.com/book/9iobe3/)
+- [这谁的沙雕二次元心声！](https://www.bianlishihao.com/book/9iob3p/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.bianlishihao.com/book/9inu6l/)
 - [[足球]罗蜜第一志愿](https://www.bianlishihao.com/book/9int05/)
-- [哥你不能不要我](https://www.bianlishihao.com/book/9in9s8/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1281/index.md)

@@ -1,7 +1,7 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-09-02 03:30:40
+更新时间：2026-09-03 03:30:42
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。
 
@@ -9,30 +9,30 @@
 
 ## 最新小说
 - [阿竹与野桃](https://www.littlemissribbon.com/book/5asij06/)
+- [暴君偏头痛](https://www.littlemissribbon.com/book/5asiivt/)
 - [失而复得的白月光[快穿]](https://www.littlemissribbon.com/book/5asiius/)
+- [[综英美]让我统治哥谭！！！](https://www.littlemissribbon.com/book/5asiiud/)
 - [井闼山经理每天都被挖墙脚](https://www.littlemissribbon.com/book/5asiitm/)
 - [躲避原书剧情五年后](https://www.littlemissribbon.com/book/5asiite/)
-- [原配夫人](https://www.littlemissribbon.com/book/5asiisq/)
 - [[封神]圣人生欲](https://www.littlemissribbon.com/book/5asiisf/)
 - [被四皇错看成小动物后](https://www.littlemissribbon.com/book/5asiisa/)
 - [星际团宠小人鱼](https://www.littlemissribbon.com/book/5asiire/)
 - [你，后室管理员](https://www.littlemissribbon.com/book/5asiir2/)
-- [高调装神，猥琐发育](https://www.littlemissribbon.com/book/5asiiqh/)
 - [纯爱宇智波基本恋爱法](https://www.littlemissribbon.com/book/5asiiob/)
+- [阴郁路人不想被喜欢](https://www.littlemissribbon.com/book/5asiinm/)
 - [直男咒术师的限制级游戏](https://www.littlemissribbon.com/book/5asiilt/)
 - [从异世界穿回来后](https://www.littlemissribbon.com/book/5asiili/)
-- [某柯学的正义伙伴](https://www.littlemissribbon.com/book/5asfq7f/)
-- [男朋友买一送一](https://www.littlemissribbon.com/book/5asfebn/)
-- [我有嘉宾](https://www.littlemissribbon.com/book/5asf7s5/)
+- [昭暮](https://www.littlemissribbon.com/book/5asi7qf/)
+- [乱步他哥，但武力值max](https://www.littlemissribbon.com/book/5asfg6r/)
 - [沈助理又在隐藏他的超能力](https://www.littlemissribbon.com/book/h2ti9r/)
-- [系统不许我摆烂](https://www.littlemissribbon.com/book/h2tf6q/)
-- [逝水](https://www.littlemissribbon.com/book/h2t6g3/)
-- [隔壁班的松田君](https://www.littlemissribbon.com/book/h2sqps/)
-- [你也没死？](https://www.littlemissribbon.com/book/h2so2t/)
-- [误入反派培养直播后](https://www.littlemissribbon.com/book/h2sbo8/)
-- [多梦你一会儿](https://www.littlemissribbon.com/book/h2sa2t/)
+- [奶奶蛋糕店[美食]](https://www.littlemissribbon.com/book/h2t8to/)
+- [在立海大玩网球模拟器](https://www.littlemissribbon.com/book/h2t7h5/)
+- [[全职高手]问就是没钱](https://www.littlemissribbon.com/book/h2t36d/)
+- [虫族治愈师，但恐虫](https://www.littlemissribbon.com/book/h2sqsl/)
+- [老公是松散生命体](https://www.littlemissribbon.com/book/h2sm0t/)
+- [这谁的沙雕二次元心声！](https://www.littlemissribbon.com/book/h2skud/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.littlemissribbon.com/book/h2s9nn/)
 - [[足球]罗蜜第一志愿](https://www.littlemissribbon.com/book/h2s77r/)
-- [哥你不能不要我](https://www.littlemissribbon.com/book/h2rkj7/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1300/index.md)

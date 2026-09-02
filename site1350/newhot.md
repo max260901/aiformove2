@@ -1,7 +1,7 @@
 
 # 书城小说网 - 全站免费无弹窗小说阅读平台
 
-更新时间：2026-09-02 03:35:48
+更新时间：2026-09-03 03:35:52
 
 书城小说网为您提供全站免费的小说阅读服务，支持全本小说在线浏览，承诺全程无广告弹窗干扰，是您理想的网络文学阅读选择。
 
@@ -10,39 +10,38 @@
 ## 最新小说
 - [阿竹与野桃](https://www.shucheng518.com/book/39m3ble/)
 - [从异世界穿回来后](https://www.shucheng518.com/book/39m36up/)
-- [我有嘉宾](https://www.shucheng518.com/book/39m36nq/)
-- [原配夫人](https://www.shucheng518.com/book/39m2d1f/)
+- [昭暮](https://www.shucheng518.com/book/39m2g6t/)
 - [你，后室管理员](https://www.shucheng518.com/book/39m2d0s/)
 - [星际团宠小人鱼](https://www.shucheng518.com/book/39m2crj/)
-- [高调装神，猥琐发育](https://www.shucheng518.com/book/39m25r8/)
-- [男朋友买一送一](https://www.shucheng518.com/book/39m1rkv/)
+- [乱步他哥，但武力值max](https://www.shucheng518.com/book/39m1trm/)
 - [失而复得的白月光[快穿]](https://www.shucheng518.com/book/39m1jsr/)
 - [躲避原书剧情五年后](https://www.shucheng518.com/book/39m1ijd/)
-- [如何正确哄睡暴君](https://www.shucheng518.com/book/39m1hg3/)
-- [我不可能舔一个漂亮捞子](https://www.shucheng518.com/book/39m19pm/)
-- [你也没死？](https://www.shucheng518.com/book/39m18kq/)
-- [逝水](https://www.shucheng518.com/book/39m1841/)
 - [沈助理又在隐藏他的超能力](https://www.shucheng518.com/book/39m13n1/)
+- [老公是松散生命体](https://www.shucheng518.com/book/39m11ta/)
 - [被鬼怪宠爱的漂亮书生](https://www.shucheng518.com/book/39m11o9/)
 - [微臣怜惜公主](https://www.shucheng518.com/book/39m0vue/)
-- [系统不许我摆烂](https://www.shucheng518.com/book/39m0u9g/)
-- [误入反派培养直播后](https://www.shucheng518.com/book/39m0n4c/)
-- [哥你不能不要我](https://www.shucheng518.com/book/39m0ite/)
+- [亚当斯与韦恩的适配性](https://www.shucheng518.com/book/39m0oc4/)
+- [在立海大玩网球模拟器](https://www.shucheng518.com/book/39m0kmm/)
+- [奶奶蛋糕店[美食]](https://www.shucheng518.com/book/39m0isp/)
 - [被四皇错看成小动物后](https://www.shucheng518.com/book/39m0htf/)
 - [炮灰的我该如何上位？](https://www.shucheng518.com/book/39m0hc0/)
 - [[封神]圣人生欲](https://www.shucheng518.com/book/39m0h4d/)
-- [多梦你一会儿](https://www.shucheng518.com/book/39m0gdp/)
-- [隔壁班的松田君](https://www.shucheng518.com/book/39m0aqk/)
-- [某柯学的正义伙伴](https://www.shucheng518.com/book/39m09os/)
+- [[综英美]让我统治哥谭！！！](https://www.shucheng518.com/book/39m0gj3/)
+- [大美人怀了enigma上司的崽](https://www.shucheng518.com/book/39m0g2v/)
+- [[全职高手]问就是没钱](https://www.shucheng518.com/book/39m0emt/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.shucheng518.com/book/39m0ekg/)
+- [这谁的沙雕二次元心声！](https://www.shucheng518.com/book/39m0d3q/)
+- [虫族治愈师，但恐虫](https://www.shucheng518.com/book/39m09cv/)
 - [[足球]罗蜜第一志愿](https://www.shucheng518.com/book/39m081f/)
 - [井闼山经理每天都被挖墙脚](https://www.shucheng518.com/book/39m0637/)
 - [[足球]小小鸟堂堂来袭](https://www.shucheng518.com/book/39lvrhg/)
-- [侯府打工人](https://www.shucheng518.com/book/39lvogi/)
 - [好兄弟暴富后非要跟我结婚](https://www.shucheng518.com/book/39lvn56/)
+- [暴君偏头痛](https://www.shucheng518.com/book/39lvmga/)
 - [法外狂猫](https://www.shucheng518.com/book/39lvjb0/)
-- [我，剑圣，养生中，勿扰](https://www.shucheng518.com/book/39lvgi7/)
+- [关于我虚构了一个男友这件事](https://www.shucheng518.com/book/39lvh8a/)
 - [和室友他爸恋爱后](https://www.shucheng518.com/book/39lvb63/)
 - [纯爱宇智波基本恋爱法](https://www.shucheng518.com/book/39lu6ci/)
+- [阴郁路人不想被喜欢](https://www.shucheng518.com/book/39lu5c4/)
 - [直男咒术师的限制级游戏](https://www.shucheng518.com/book/39lu4tl/)
 ## 相关内容
 - [README](/README.md)

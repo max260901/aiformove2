@@ -1,18 +1,16 @@
 
 # 电子洗砂机小说网-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-09-02 03:24:31
+更新时间：2026-09-03 03:24:33
 
 电子洗砂机小说网提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
 
 - [电子洗砂机小说网](https://www.dzxishaji.com/)
 
 ## 最新小说
-- [宠妃岂敢压我！](https://www.dzxishaji.com/book/70umm4m/)
-- [死遁后，师弟他不哄不停](https://www.dzxishaji.com/book/70umm3k/)
-- [发家致富小夫郎](https://www.dzxishaji.com/book/70ume0n/)
-- [假少爷有特殊的算命技巧](https://www.dzxishaji.com/book/70uma1f/)
-- [九零重组小家庭](https://www.dzxishaji.com/book/70um9mu/)
+- [上个鬼班[无限]](https://www.dzxishaji.com/book/70umhj1/)
+- [边关小夫郎](https://www.dzxishaji.com/book/70ume0n/)
+- [[足球]足坛人生模拟器](https://www.dzxishaji.com/book/70uma8m/)
 - [败类游戏](https://www.dzxishaji.com/book/70um9c3/)
 - [我的NPC队友全是火影天花板](https://www.dzxishaji.com/book/70um9c1/)
 - [[希腊神话]诸神都是我学生](https://www.dzxishaji.com/book/70um9bs/)
@@ -41,7 +39,6 @@
 - [水管工[GB]](https://www.dzxishaji.com/book/70um995/)
 - [灭世龙崽有什么错](https://www.dzxishaji.com/book/70um990/)
 - [炮灰丫鬟靠签到躺赢了](https://www.dzxishaji.com/book/70um98m/)
-- [乖乖小宝被豪门长兄娇养了](https://www.dzxishaji.com/book/70um98c/)
 - [当织田作绑定魅魔系统](https://www.dzxishaji.com/book/70um985/)
 - [与亡夫春风一度后](https://www.dzxishaji.com/book/70um981/)
 - [我要当厨修啊[美食]](https://www.dzxishaji.com/book/70um97t/)
@@ -66,11 +63,16 @@
 - [我的烧烤摊超美味[美食]](https://www.dzxishaji.com/book/70um94m/)
 - [太子哥哥不想当哥哥](https://www.dzxishaji.com/book/70um94h/)
 - [撕碎[刑侦]](https://www.dzxishaji.com/book/70um94e/)
+- [让暴君Alpha怀崽后](https://www.dzxishaji.com/book/70um7iv/)
 - [在虫族世界逃命升级](https://www.dzxishaji.com/book/70um6gd/)
 - [神豪文男主是我爸](https://www.dzxishaji.com/book/70um56d/)
+- [娇美人换嫁七零大佬后](https://www.dzxishaji.com/book/70um53d/)
 - [我真的只会Ctrl啊！！！](https://www.dzxishaji.com/book/70um3cm/)
 - [从维多利亚时代开始](https://www.dzxishaji.com/book/70ult2l/)
+- [昭暮](https://www.dzxishaji.com/book/70ulplg/)
 - [反派人生，易如反掌[快穿]](https://www.dzxishaji.com/book/70ulmft/)
+- [食明](https://www.dzxishaji.com/book/70ule0a/)
+- [诡话第一boss](https://www.dzxishaji.com/book/70ulas5/)
 - [摄政王家的咸鱼夫郎](https://www.dzxishaji.com/book/70ul1i7/)
 - [绿叶](https://www.dzxishaji.com/book/70ul0r9/)
 - [枕边热吻](https://www.dzxishaji.com/book/70ukvq3/)
@@ -79,15 +81,15 @@
 - [科学主义魔法学院](https://www.dzxishaji.com/book/70ukr8s/)
 - [寄人篱下](https://www.dzxishaji.com/book/70ukp35/)
 - [我写小说纯粹为了赚钱](https://www.dzxishaji.com/book/70ukosp/)
-- [始皇闺女躺平失败的日子](https://www.dzxishaji.com/book/70uknnk/)
 - [误标记隔壁阿姨O之后](https://www.dzxishaji.com/book/70ukkmu/)
+- [韩团绿卡不想忍了](https://www.dzxishaji.com/book/70ukk7u/)
 - [十福晋吃瓜日常(清穿)](https://www.dzxishaji.com/book/70ukiif/)
 - [不当救世主就要当人类恶了吗](https://www.dzxishaji.com/book/70ukft4/)
 - [当菟丝花要分手后](https://www.dzxishaji.com/book/70ukfsm/)
 - [假金丝雀深陷修罗场](https://www.dzxishaji.com/book/70ukf6e/)
 - [当我穿为龙傲天的情敌](https://www.dzxishaji.com/book/70ukf1b/)
+- [社恐直播鉴宝，但带球跑](https://www.dzxishaji.com/book/70uke8u/)
 - [高嫁之后](https://www.dzxishaji.com/book/70uke1g/)
-- [[全职高手]霸图老板是叶修](https://www.dzxishaji.com/book/70ukdbr/)
 - [养成游戏，但破解版](https://www.dzxishaji.com/book/70uk7b1/)
 - [[综英美]让我统治哥谭！！！](https://www.dzxishaji.com/book/70uk71c/)
 - [霓虹夏日](https://www.dzxishaji.com/book/70uk5cf/)
@@ -145,7 +147,6 @@
 - [日化人生[科研]](https://www.dzxishaji.com/book/70uhhjh/)
 - [高门小婢](https://www.dzxishaji.com/book/70uhhja/)
 - [我有一座安全城](https://www.dzxishaji.com/book/70uhh81/)
-- [穿成炮灰后我封神了［快穿］](https://www.dzxishaji.com/book/70uhh4c/)
 - [千禧年，拆迁分了十栋楼！](https://www.dzxishaji.com/book/70uhh37/)
 - [九零首富的替嫁小媳妇](https://www.dzxishaji.com/book/70uhh1l/)
 - [[娱乐圈]过分美丽的她](https://www.dzxishaji.com/book/70uhgui/)
@@ -168,7 +169,6 @@
 - [十九世纪贵族厨房（美食）](https://www.dzxishaji.com/book/70uhf5q/)
 - [假少爷不想活了](https://www.dzxishaji.com/book/70uhf5i/)
 - [在民俗惊悚片被诸神庇护](https://www.dzxishaji.com/book/70uhesj/)
-- [御兽师，我打工养你啊](https://www.dzxishaji.com/book/70uheqr/)
 - [高调装神，猥琐发育](https://www.dzxishaji.com/book/70uheqj/)
 ## 相关内容
 - [README](/README.md)
