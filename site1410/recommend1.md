@@ -1,19 +1,24 @@
 
 # 新华 MBA雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-09-02 03:41:21
+更新时间：2026-09-03 03:41:26
 
 新华 MBA雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。
 
 - [新华MBA雷火小说网](https://www.xhmba.com/)
 
 ## 最新小说
-- [死遁后，师弟他不哄不停](https://www.xhmba.com/book/7mj1mrt/)
-- [假少爷有特殊的算命技巧](https://www.xhmba.com/book/7mj1mor/)
-- [宠妃岂敢压我！](https://www.xhmba.com/book/7mj1ml9/)
+- [[足球]足坛人生模拟器](https://www.xhmba.com/book/7mj1tq1/)
+- [上个鬼班[无限]](https://www.xhmba.com/book/7mj1tpl/)
+- [让暴君Alpha怀崽后](https://www.xhmba.com/book/7mj1st6/)
+- [娇美人换嫁七零大佬后](https://www.xhmba.com/book/7mj1q7u/)
+- [昭暮](https://www.xhmba.com/book/7mj1gd4/)
 - [从维多利亚时代开始](https://www.xhmba.com/book/7mj1fli/)
-- [九零重组小家庭](https://www.xhmba.com/book/7mj18id/)
-- [发家致富小夫郎](https://www.xhmba.com/book/7mj0qlj/)
+- [食明](https://www.xhmba.com/book/7mj16j3/)
+- [诡话第一boss](https://www.xhmba.com/book/7mj13gg/)
+- [边关小夫郎](https://www.xhmba.com/book/7mj0qlj/)
+- [韩团绿卡不想忍了](https://www.xhmba.com/book/7mj0f7o/)
+- [社恐直播鉴宝，但带球跑](https://www.xhmba.com/book/7mj085q/)
 - [萩原警官的咒术大冒险](https://www.xhmba.com/book/7miumgg/)
 - [春归燕](https://www.xhmba.com/book/7miume3/)
 - [重临巅峰[花滑]](https://www.xhmba.com/book/7miumcq/)
@@ -102,7 +107,6 @@
 - [井闼山经理每天都被挖墙脚](https://www.xhmba.com/book/7miuk40/)
 - [游戏角色想和玩家谈恋爱](https://www.xhmba.com/book/7miuk3i/)
 - [深渊if，从染血骑士迪卢克开始[原神]](https://www.xhmba.com/book/7miuk29/)
-- [[全职高手]霸图老板是叶修](https://www.xhmba.com/book/7miuk22/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xhmba.com/book/7miuk1q/)
 - [[娱乐圈]穿进同人文里哦多尅](https://www.xhmba.com/book/7miuk05/)
 - [悟咪观察笔记](https://www.xhmba.com/book/7miujup/)
@@ -117,7 +121,6 @@
 - [始乱终弃高岭之花以后](https://www.xhmba.com/book/7miujo3/)
 - [当恶女捡回高岭之花](https://www.xhmba.com/book/7miujml/)
 - [[原神+崩铁]在提瓦特隐居也未尝不可](https://www.xhmba.com/book/7miujm6/)
-- [乖乖小宝被豪门长兄娇养了](https://www.xhmba.com/book/7miujm4/)
 - [[希腊神话]诸神都是我学生](https://www.xhmba.com/book/7miujlm/)
 - [啊？我是万人迷？［虫族］](https://www.xhmba.com/book/7miujk6/)
 - [[综港影]野生情人出没地](https://www.xhmba.com/book/7miujin/)
@@ -140,19 +143,16 @@
 - [欢迎来到纳萨力克丧葬公司](https://www.xhmba.com/book/7miu70o/)
 - [[群穿]我在御兽番抢人气](https://www.xhmba.com/book/7miu631/)
 - [大瑛弟国](https://www.xhmba.com/book/7mitaec/)
-- [御兽师，我打工养你啊](https://www.xhmba.com/book/7mitadu/)
 - [反派人生，易如反掌[快穿]](https://www.xhmba.com/book/7mita54/)
 - [八零恶毒后妈杀疯了](https://www.xhmba.com/book/7mita3d/)
 - [高门小婢](https://www.xhmba.com/book/7mit9nk/)
 - [[娱乐圈]过分美丽的她](https://www.xhmba.com/book/7mit9ld/)
-- [始皇闺女躺平失败的日子](https://www.xhmba.com/book/7mit9ga/)
 - [日化人生[科研]](https://www.xhmba.com/book/7mit9d4/)
 - [95美国贵族高中模拟](https://www.xhmba.com/book/7mit9be/)
 - [我有一座安全城](https://www.xhmba.com/book/7mit97t/)
 - [我真的只会Ctrl啊！！！](https://www.xhmba.com/book/7mit97b/)
 - [十九世纪贵族厨房（美食）](https://www.xhmba.com/book/7mit95e/)
 - [九零首富的替嫁小媳妇](https://www.xhmba.com/book/7mit94a/)
-- [穿成炮灰后我封神了［快穿］](https://www.xhmba.com/book/7mit91c/)
 - [海岛求生：生活玩家种田囤货](https://www.xhmba.com/book/7mit913/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.xhmba.com/book/7mit90p/)
 - [星际团宠小人鱼](https://www.xhmba.com/book/7mit8o9/)

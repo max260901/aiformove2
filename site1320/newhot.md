@@ -1,7 +1,7 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-09-02 03:25:46
+更新时间：2026-09-03 03:25:47
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
@@ -10,29 +10,29 @@
 ## 最新小说
 - [失而复得的白月光[快穿]](https://www.gushi1314.com/book/8m9ju92/)
 - [阿竹与野桃](https://www.gushi1314.com/book/8m9ju8u/)
+- [[综英美]让我统治哥谭！！！](https://www.gushi1314.com/book/8m9ju8l/)
+- [暴君偏头痛](https://www.gushi1314.com/book/8m9ju7f/)
 - [躲避原书剧情五年后](https://www.gushi1314.com/book/8m9ju76/)
 - [井闼山经理每天都被挖墙脚](https://www.gushi1314.com/book/8m9ju6i/)
 - [[封神]圣人生欲](https://www.gushi1314.com/book/8m9ju4p/)
 - [你，后室管理员](https://www.gushi1314.com/book/8m9ju36/)
-- [原配夫人](https://www.gushi1314.com/book/8m9ju2n/)
 - [星际团宠小人鱼](https://www.gushi1314.com/book/8m9ju2l/)
 - [被四皇错看成小动物后](https://www.gushi1314.com/book/8m9ju2j/)
-- [高调装神，猥琐发育](https://www.gushi1314.com/book/8m9ju2f/)
 - [直男咒术师的限制级游戏](https://www.gushi1314.com/book/8m9ju1p/)
+- [阴郁路人不想被喜欢](https://www.gushi1314.com/book/8m9jtv0/)
 - [从异世界穿回来后](https://www.gushi1314.com/book/8m9jtuv/)
 - [纯爱宇智波基本恋爱法](https://www.gushi1314.com/book/8m9jtta/)
-- [某柯学的正义伙伴](https://www.gushi1314.com/book/8m9h4g7/)
-- [男朋友买一送一](https://www.gushi1314.com/book/8m9gq8p/)
-- [我有嘉宾](https://www.gushi1314.com/book/8m9gl73/)
-- [系统不许我摆烂](https://www.gushi1314.com/book/rqk3ut/)
+- [昭暮](https://www.gushi1314.com/book/8m9jj3h/)
+- [乱步他哥，但武力值max](https://www.gushi1314.com/book/8m9gu6n/)
 - [沈助理又在隐藏他的超能力](https://www.gushi1314.com/book/rqk36j/)
-- [逝水](https://www.gushi1314.com/book/rqjpgj/)
-- [隔壁班的松田君](https://www.gushi1314.com/book/rqjeq5/)
-- [你也没死？](https://www.gushi1314.com/book/rqj8nn/)
-- [误入反派培养直播后](https://www.gushi1314.com/book/rqitan/)
+- [奶奶蛋糕店[美食]](https://www.gushi1314.com/book/rqjq98/)
+- [在立海大玩网球模拟器](https://www.gushi1314.com/book/rqjolg/)
+- [[全职高手]问就是没钱](https://www.gushi1314.com/book/rqjjca/)
+- [虫族治愈师，但恐虫](https://www.gushi1314.com/book/rqjflp/)
+- [这谁的沙雕二次元心声！](https://www.gushi1314.com/book/rqj9pb/)
+- [老公是松散生命体](https://www.gushi1314.com/book/rqj719/)
 - [[足球]罗蜜第一志愿](https://www.gushi1314.com/book/rqirav/)
-- [多梦你一会儿](https://www.gushi1314.com/book/rqiqt9/)
-- [哥你不能不要我](https://www.gushi1314.com/book/rqi56o/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.gushi1314.com/book/rqiors/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1320/index.md)

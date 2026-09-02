@@ -1,7 +1,7 @@
 
 # 灌南华侨小说网笔趣阁_书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-02 03:25:15
+更新时间：2026-09-03 03:25:17
 
 灌南华侨小说网笔趣阁海量免费小说在线阅读平台，汇聚玄幻、都市、言情、科幻、悬疑等全品类热门小说，实时更新全网爆款佳作。无广告干扰，支持缓存离线看，让你随时随地沉浸阅读世界，找书看书就来笔趣阁，满足你的所有阅读渴望。
 
@@ -9,44 +9,41 @@
 
 ## 最新小说
 - [阿竹与野桃](https://www.gnhqbs.com/book/1cqms0v/)
-- [被豪门封建长兄娇养了](https://www.gnhqbs.com/book/1cqmplb/)
-- [我有嘉宾](https://www.gnhqbs.com/book/1cqme6v/)
+- [阴郁路人不想被喜欢](https://www.gnhqbs.com/book/1cqmegl/)
 - [从异世界穿回来后](https://www.gnhqbs.com/book/1cqm1np/)
+- [昭暮](https://www.gnhqbs.com/book/1cqlhsc/)
+- [乱步他哥，但武力值max](https://www.gnhqbs.com/book/1cql12q/)
 - [失而复得的白月光[快穿]](https://www.gnhqbs.com/book/1cqktgk/)
-- [男朋友买一送一](https://www.gnhqbs.com/book/1cqktea/)
 - [躲避原书剧情五年后](https://www.gnhqbs.com/book/1cqktdm/)
 - [被鬼怪宠爱的漂亮书生](https://www.gnhqbs.com/book/1cqkm91/)
-- [如何正确哄睡暴君](https://www.gnhqbs.com/book/1cqkl0l/)
-- [逝水](https://www.gnhqbs.com/book/1cqkg73/)
-- [我不可能舔一个漂亮捞子](https://www.gnhqbs.com/book/1cqkf3j/)
-- [你也没死？](https://www.gnhqbs.com/book/1cqke74/)
+- [亚当斯与韦恩的适配性](https://www.gnhqbs.com/book/1cqki3i/)
+- [老公是松散生命体](https://www.gnhqbs.com/book/1cqkcnb/)
 - [微臣怜惜公主](https://www.gnhqbs.com/book/1cqkadr/)
 - [沈助理又在隐藏他的超能力](https://www.gnhqbs.com/book/1cqk7e2/)
-- [哥你不能不要我](https://www.gnhqbs.com/book/1cqk364/)
-- [系统不许我摆烂](https://www.gnhqbs.com/book/1cqk0ik/)
+- [[综英美]让我统治哥谭！！！](https://www.gnhqbs.com/book/1cqk00b/)
 - [直男咒术师的限制级游戏](https://www.gnhqbs.com/book/1cqjukk/)
-- [多梦你一会儿](https://www.gnhqbs.com/book/1cqjo6n/)
+- [大美人怀了enigma上司的崽](https://www.gnhqbs.com/book/1cqjtuh/)
+- [这谁的沙雕二次元心声！](https://www.gnhqbs.com/book/1cqjo03/)
 - [炮灰的我该如何上位？](https://www.gnhqbs.com/book/1cqjnml/)
 - [穿为清冷影后的污点A](https://www.gnhqbs.com/book/1cqjnlc/)
+- [在立海大玩网球模拟器](https://www.gnhqbs.com/book/1cqjmkl/)
+- [奶奶蛋糕店[美食]](https://www.gnhqbs.com/book/1cqjl3m/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.gnhqbs.com/book/1cqjie9/)
 - [井闼山经理每天都被挖墙脚](https://www.gnhqbs.com/book/1cqji9h/)
-- [隔壁班的松田君](https://www.gnhqbs.com/book/1cqjg1u/)
+- [[全职高手]问就是没钱](https://www.gnhqbs.com/book/1cqjgo9/)
 - [[足球]罗蜜第一志愿](https://www.gnhqbs.com/book/1cqje80/)
-- [侯府打工人](https://www.gnhqbs.com/book/1cqjcqm/)
-- [某柯学的正义伙伴](https://www.gnhqbs.com/book/1cqjbdr/)
+- [虫族治愈师，但恐虫](https://www.gnhqbs.com/book/1cqjc1l/)
 - [[足球]小小鸟堂堂来袭](https://www.gnhqbs.com/book/1cqj6qd/)
-- [撕毁女配剧本的我被神之子读心了](https://www.gnhqbs.com/book/1cqj698/)
 - [法外狂猫](https://www.gnhqbs.com/book/1cqj2qm/)
 - [好兄弟暴富后非要跟我结婚](https://www.gnhqbs.com/book/1cqj1km/)
-- [我，剑圣，养生中，勿扰](https://www.gnhqbs.com/book/1cqiu33/)
+- [关于我虚构了一个男友这件事](https://www.gnhqbs.com/book/1cqite4/)
 - [和室友他爸恋爱后](https://www.gnhqbs.com/book/1cqisn2/)
+- [暴君偏头痛](https://www.gnhqbs.com/book/1cqicg3/)
 - [被四皇错看成小动物后](https://www.gnhqbs.com/book/1cqha72/)
 - [[封神]圣人生欲](https://www.gnhqbs.com/book/1cqha6t/)
 - [星际团宠小人鱼](https://www.gnhqbs.com/book/1cqh9or/)
-- [高调装神，猥琐发育](https://www.gnhqbs.com/book/1cqh9jg/)
 - [纯爱宇智波基本恋爱法](https://www.gnhqbs.com/book/1cqh83r/)
-- [误入反派培养直播后](https://www.gnhqbs.com/book/1cqh7uj/)
 - [你，后室管理员](https://www.gnhqbs.com/book/1cqh7ij/)
-- [原配夫人](https://www.gnhqbs.com/book/1cqh7gn/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1378/index.md)
