@@ -1,24 +1,21 @@
 
 # 湾里早市时间小说网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-02 03:40:05
+更新时间：2026-09-03 03:40:10
 
 湾里早市时间小说网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
 - [湾里早市时间小说网](https://www.wlzssj.com/)
 
 ## 最新小说
-- [死遁后，师弟他不哄不停](https://www.wlzssj.com/book/4pmf55l/)
-- [宠妃岂敢压我！](https://www.wlzssj.com/book/4pmf558/)
-- [发家致富小夫郎](https://www.wlzssj.com/book/4pmet1c/)
-- [假少爷有特殊的算命技巧](https://www.wlzssj.com/book/4pmep12/)
-- [九零重组小家庭](https://www.wlzssj.com/book/4pmeomf/)
+- [上个鬼班[无限]](https://www.wlzssj.com/book/4pmf0lp/)
+- [边关小夫郎](https://www.wlzssj.com/book/4pmet1c/)
+- [[足球]足坛人生模拟器](https://www.wlzssj.com/book/4pmepd3/)
 - [卡尔蜜拉也能成为特利迦白月光？](https://www.wlzssj.com/book/4pmeoe2/)
 - [影帝今天分手了吗[娱乐圈]](https://www.wlzssj.com/book/4pmeodn/)
 - [灭世龙崽有什么错](https://www.wlzssj.com/book/4pmeodk/)
 - [退婚流龙傲天，但未婚夫是我](https://www.wlzssj.com/book/4pmeodj/)
 - [游戏boss们抢着要当我的猫[全息]](https://www.wlzssj.com/book/4pmeodh/)
-- [乖乖小宝被豪门长兄娇养了](https://www.wlzssj.com/book/4pmeod6/)
 - [下潜一万米，海渊求生](https://www.wlzssj.com/book/4pmeod1/)
 - [氪金游戏，从养成林太郎开始](https://www.wlzssj.com/book/4pmeocp/)
 - [水管工[GB]](https://www.wlzssj.com/book/4pmeocl/)
@@ -66,11 +63,16 @@
 - [我夫君怎会是龙傲天？](https://www.wlzssj.com/book/4pmeo6b/)
 - [身为人造人的我梦想是成为救世主](https://www.wlzssj.com/book/4pmeo67/)
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.wlzssj.com/book/4pmeo64/)
+- [让暴君Alpha怀崽后](https://www.wlzssj.com/book/4pmemkr/)
 - [在虫族世界逃命升级](https://www.wlzssj.com/book/4pmelgu/)
 - [神豪文男主是我爸](https://www.wlzssj.com/book/4pmekdv/)
+- [娇美人换嫁七零大佬后](https://www.wlzssj.com/book/4pmek0s/)
 - [我真的只会Ctrl啊！！！](https://www.wlzssj.com/book/4pmeidq/)
 - [从维多利亚时代开始](https://www.wlzssj.com/book/4pmec7c/)
+- [昭暮](https://www.wlzssj.com/book/4pme8ns/)
 - [反派人生，易如反掌[快穿]](https://www.wlzssj.com/book/4pme5l3/)
+- [食明](https://www.wlzssj.com/book/4pmdt4m/)
+- [诡话第一boss](https://www.wlzssj.com/book/4pmdpso/)
 - [摄政王家的咸鱼夫郎](https://www.wlzssj.com/book/4pmdi75/)
 - [绿叶](https://www.wlzssj.com/book/4pmdg7n/)
 - [枕边热吻](https://www.wlzssj.com/book/4pmdeea/)
@@ -79,14 +81,14 @@
 - [我写小说纯粹为了赚钱](https://www.wlzssj.com/book/4pmda72/)
 - [科学主义魔法学院](https://www.wlzssj.com/book/4pmd9ao/)
 - [寄人篱下](https://www.wlzssj.com/book/4pmd7sb/)
-- [始皇闺女躺平失败的日子](https://www.wlzssj.com/book/4pmd4n6/)
 - [误标记隔壁阿姨O之后](https://www.wlzssj.com/book/4pmd430/)
+- [韩团绿卡不想忍了](https://www.wlzssj.com/book/4pmd3go/)
 - [当菟丝花要分手后](https://www.wlzssj.com/book/4pmd122/)
 - [不当救世主就要当人类恶了吗](https://www.wlzssj.com/book/4pmd044/)
 - [十福晋吃瓜日常(清穿)](https://www.wlzssj.com/book/4pmcvmv/)
+- [社恐直播鉴宝，但带球跑](https://www.wlzssj.com/book/4pmcupl/)
 - [高嫁之后](https://www.wlzssj.com/book/4pmcuh2/)
 - [当我穿为龙傲天的情敌](https://www.wlzssj.com/book/4pmcudl/)
-- [[全职高手]霸图老板是叶修](https://www.wlzssj.com/book/4pmctm8/)
 - [假金丝雀深陷修罗场](https://www.wlzssj.com/book/4pmct2k/)
 - [[综英美]让我统治哥谭！！！](https://www.wlzssj.com/book/4pmcnqk/)
 - [养成游戏，但破解版](https://www.wlzssj.com/book/4pmcn9p/)
@@ -142,7 +144,6 @@
 - [[群穿]我在御兽番抢人气](https://www.wlzssj.com/book/4pmasa6/)
 - [我，恶女，在线搞事](https://www.wlzssj.com/book/4pmarcn/)
 - [为诡异打工，但反封建迷信](https://www.wlzssj.com/book/4pma0uf/)
-- [御兽师，我打工养你啊](https://www.wlzssj.com/book/4pma0sm/)
 - [大瑛弟国](https://www.wlzssj.com/book/4pma0qd/)
 - [海岛求生：生活玩家种田囤货](https://www.wlzssj.com/book/4pma0ol/)
 - [巨物致富：回乡开钓场](https://www.wlzssj.com/book/4pma0l2/)
@@ -158,7 +159,6 @@
 - [我是唯一地上神国](https://www.wlzssj.com/book/4pm9vkf/)
 - [趁她之危](https://www.wlzssj.com/book/4pm9utn/)
 - [五十年代港城日常](https://www.wlzssj.com/book/4pm9ul4/)
-- [穿成炮灰后我封神了［快穿］](https://www.wlzssj.com/book/4pm9uhn/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.wlzssj.com/book/4pm9uf9/)
 - [古代种田养娃日常](https://www.wlzssj.com/book/4pm9uf6/)
 - [千禧年，拆迁分了十栋楼！](https://www.wlzssj.com/book/4pm9ueh/)

@@ -1,18 +1,18 @@
 
 # 积家健康小说 - 无弹窗无广告小说在线阅读
 
-更新时间：2026-09-02 03:27:09
+更新时间：2026-09-03 03:27:12
 
 积家健康小说提供一个干净简洁的平台让您享受无弹窗无广告的小说在线阅读体验。无论是在线阅读还是下载小说，都是完全免费的。
 
 - [积家健康小说](https://www.jijiajk.com/)
 
 ## 最新小说
-- [死遁后，师弟他不哄不停](https://www.jijiajk.com/book/3ab2io5/)
-- [宠妃岂敢压我！](https://www.jijiajk.com/book/3ab2ilp/)
-- [假少爷有特殊的算命技巧](https://www.jijiajk.com/book/3ab2b2h/)
-- [九零重组小家庭](https://www.jijiajk.com/book/3ab29lp/)
-- [发家致富小夫郎](https://www.jijiajk.com/book/3ab24rp/)
+- [上个鬼班[无限]](https://www.jijiajk.com/book/3ab2ip4/)
+- [[足球]足坛人生模拟器](https://www.jijiajk.com/book/3ab2bhm/)
+- [让暴君Alpha怀崽后](https://www.jijiajk.com/book/3ab26vd/)
+- [娇美人换嫁七零大佬后](https://www.jijiajk.com/book/3ab257n/)
+- [边关小夫郎](https://www.jijiajk.com/book/3ab24rp/)
 - [从维多利亚时代开始](https://www.jijiajk.com/book/3ab1tvv/)
 - [游戏角色想和玩家谈恋爱](https://www.jijiajk.com/book/3ab1tum/)
 - [婚后矜持](https://www.jijiajk.com/book/3ab1tuj/)
@@ -62,15 +62,17 @@
 - [被怪物女友始乱终弃后[gb]](https://www.jijiajk.com/book/3ab1tkq/)
 - [[三国]清澈，但千古一帝](https://www.jijiajk.com/book/3ab1tkm/)
 - [我们生活玩家是这样的](https://www.jijiajk.com/book/3ab1tkh/)
-- [乖乖小宝被豪门长兄娇养了](https://www.jijiajk.com/book/3ab1tkc/)
 - [万人嫌女配深陷修罗场](https://www.jijiajk.com/book/3ab1tk7/)
 - [游戏boss们抢着要当我的猫[全息]](https://www.jijiajk.com/book/3ab1tk3/)
 - [异种新婚报告](https://www.jijiajk.com/book/3ab1tjs/)
 - [我夫君怎会是龙傲天？](https://www.jijiajk.com/book/3ab1tjo/)
 - [太子哥哥不想当哥哥](https://www.jijiajk.com/book/3ab1tjn/)
 - [渡鬼](https://www.jijiajk.com/book/3ab1tjk/)
+- [昭暮](https://www.jijiajk.com/book/3ab1q96/)
 - [反派人生，易如反掌[快穿]](https://www.jijiajk.com/book/3ab1mlv/)
 - [我真的只会Ctrl啊！！！](https://www.jijiajk.com/book/3ab1ml1/)
+- [食明](https://www.jijiajk.com/book/3ab1fhf/)
+- [诡话第一boss](https://www.jijiajk.com/book/3ab1c5a/)
 - [摄政王家的咸鱼夫郎](https://www.jijiajk.com/book/3ab15dt/)
 - [枕边热吻](https://www.jijiajk.com/book/3ab14e4/)
 - [绿叶](https://www.jijiajk.com/book/3ab13l6/)
@@ -79,14 +81,14 @@
 - [寄人篱下](https://www.jijiajk.com/book/3ab0se9/)
 - [我写小说纯粹为了赚钱](https://www.jijiajk.com/book/3ab0s99/)
 - [第一游侠[全息]](https://www.jijiajk.com/book/3ab0rnr/)
-- [始皇闺女躺平失败的日子](https://www.jijiajk.com/book/3ab0pjq/)
+- [韩团绿卡不想忍了](https://www.jijiajk.com/book/3ab0meo/)
 - [误标记隔壁阿姨O之后](https://www.jijiajk.com/book/3ab0l6t/)
 - [假金丝雀深陷修罗场](https://www.jijiajk.com/book/3ab0jbs/)
 - [高嫁之后](https://www.jijiajk.com/book/3ab0j5j/)
 - [十福晋吃瓜日常(清穿)](https://www.jijiajk.com/book/3ab0j2n/)
 - [不当救世主就要当人类恶了吗](https://www.jijiajk.com/book/3ab0hho/)
-- [[全职高手]霸图老板是叶修](https://www.jijiajk.com/book/3ab0haj/)
 - [当菟丝花要分手后](https://www.jijiajk.com/book/3ab0h76/)
+- [社恐直播鉴宝，但带球跑](https://www.jijiajk.com/book/3ab0fgu/)
 - [当我穿为龙傲天的情敌](https://www.jijiajk.com/book/3ab0f0f/)
 - [[综英美]让我统治哥谭！！！](https://www.jijiajk.com/book/3ab0cqu/)
 - [养成游戏，但破解版](https://www.jijiajk.com/book/3ab096u/)
@@ -146,7 +148,6 @@
 - [假少爷不想活了](https://www.jijiajk.com/book/3aatisa/)
 - [九零首富的替嫁小媳妇](https://www.jijiajk.com/book/3aatirm/)
 - [八零恶毒后妈杀疯了](https://www.jijiajk.com/book/3aatirf/)
-- [穿成炮灰后我封神了［快穿］](https://www.jijiajk.com/book/3aatir2/)
 - [古代种田养娃日常](https://www.jijiajk.com/book/3aatin1/)
 - [十九世纪贵族厨房（美食）](https://www.jijiajk.com/book/3aatik0/)
 - [海岛求生：生活玩家种田囤货](https://www.jijiajk.com/book/3aatij1/)
@@ -159,7 +160,6 @@
 - [五十年代港城日常](https://www.jijiajk.com/book/3aathn2/)
 - [我是唯一地上神国](https://www.jijiajk.com/book/3aathhu/)
 - [全民求生:从小木屋到魔法农场](https://www.jijiajk.com/book/3aathhe/)
-- [御兽师，我打工养你啊](https://www.jijiajk.com/book/3aath8u/)
 - [高门小婢](https://www.jijiajk.com/book/3aath31/)
 - [千禧年，拆迁分了十栋楼！](https://www.jijiajk.com/book/3aatgvb/)
 - [六零之成了卷王的妹妹](https://www.jijiajk.com/book/3aatgto/)

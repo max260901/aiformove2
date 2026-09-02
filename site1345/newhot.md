@@ -1,7 +1,7 @@
 
 # 探秘笔神阁小说-好看小说快速更新,页面清新流畅的免费小说网
 
-更新时间：2026-09-02 03:37:33
+更新时间：2026-09-03 03:37:38
 
 探秘笔神阁小说收录了大量受欢迎的小说作品，以极快的速度进行更新，并且保证用户在阅读时能够享受到清新流畅的页面体验。作为一个完全免费的小说网站，它深受广大网友的喜爱。
 
@@ -10,39 +10,38 @@
 ## 最新小说
 - [阿竹与野桃](https://www.tanmi818.com/book/977f54s/)
 - [从异世界穿回来后](https://www.tanmi818.com/book/977f0f4/)
-- [我有嘉宾](https://www.tanmi818.com/book/977f06f/)
+- [昭暮](https://www.tanmi818.com/book/977e9hu/)
 - [你，后室管理员](https://www.tanmi818.com/book/977e6e7/)
-- [原配夫人](https://www.tanmi818.com/book/977e6bh/)
 - [星际团宠小人鱼](https://www.tanmi818.com/book/977e669/)
-- [高调装神，猥琐发育](https://www.tanmi818.com/book/977dv7j/)
-- [男朋友买一送一](https://www.tanmi818.com/book/977djan/)
+- [乱步他哥，但武力值max](https://www.tanmi818.com/book/977dlrc/)
 - [失而复得的白月光[快穿]](https://www.tanmi818.com/book/977ddq5/)
 - [躲避原书剧情五年后](https://www.tanmi818.com/book/977db2t/)
-- [如何正确哄睡暴君](https://www.tanmi818.com/book/977d9vg/)
-- [我不可能舔一个漂亮捞子](https://www.tanmi818.com/book/977d2u8/)
-- [逝水](https://www.tanmi818.com/book/977d24k/)
-- [你也没死？](https://www.tanmi818.com/book/977d19p/)
 - [被鬼怪宠爱的漂亮书生](https://www.tanmi818.com/book/977ctoe/)
 - [沈助理又在隐藏他的超能力](https://www.tanmi818.com/book/977ct1c/)
+- [老公是松散生命体](https://www.tanmi818.com/book/977crkg/)
 - [微臣怜惜公主](https://www.tanmi818.com/book/977coa6/)
-- [系统不许我摆烂](https://www.tanmi818.com/book/977clji/)
-- [误入反派培养直播后](https://www.tanmi818.com/book/977cg2d/)
-- [哥你不能不要我](https://www.tanmi818.com/book/977cc31/)
+- [亚当斯与韦恩的适配性](https://www.tanmi818.com/book/977ci03/)
+- [在立海大玩网球模拟器](https://www.tanmi818.com/book/977ce8j/)
+- [[综英美]让我统治哥谭！！！](https://www.tanmi818.com/book/977cce1/)
 - [炮灰的我该如何上位？](https://www.tanmi818.com/book/977cbpd/)
+- [大美人怀了enigma上司的崽](https://www.tanmi818.com/book/977cbie/)
 - [[封神]圣人生欲](https://www.tanmi818.com/book/977ca89/)
-- [多梦你一会儿](https://www.tanmi818.com/book/977c9u1/)
 - [被四皇错看成小动物后](https://www.tanmi818.com/book/977c9na/)
-- [隔壁班的松田君](https://www.tanmi818.com/book/977c54g/)
-- [某柯学的正义伙伴](https://www.tanmi818.com/book/977c3lc/)
+- [奶奶蛋糕店[美食]](https://www.tanmi818.com/book/977c9hs/)
+- [[全职高手]问就是没钱](https://www.tanmi818.com/book/977c8oq/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.tanmi818.com/book/977c8ar/)
+- [这谁的沙雕二次元心声！](https://www.tanmi818.com/book/977c73o/)
 - [[足球]罗蜜第一志愿](https://www.tanmi818.com/book/977c3he/)
+- [虫族治愈师，但恐虫](https://www.tanmi818.com/book/977c392/)
 - [井闼山经理每天都被挖墙脚](https://www.tanmi818.com/book/977bvmt/)
 - [[足球]小小鸟堂堂来袭](https://www.tanmi818.com/book/977bndt/)
-- [侯府打工人](https://www.tanmi818.com/book/977bh7t/)
 - [好兄弟暴富后非要跟我结婚](https://www.tanmi818.com/book/977bh0u/)
+- [暴君偏头痛](https://www.tanmi818.com/book/977bfu0/)
 - [法外狂猫](https://www.tanmi818.com/book/977bdm1/)
-- [我，剑圣，养生中，勿扰](https://www.tanmi818.com/book/977b9qj/)
+- [关于我虚构了一个男友这件事](https://www.tanmi818.com/book/977bbr8/)
 - [和室友他爸恋爱后](https://www.tanmi818.com/book/977b64k/)
 - [纯爱宇智波基本恋爱法](https://www.tanmi818.com/book/9779vct/)
+- [阴郁路人不想被喜欢](https://www.tanmi818.com/book/9779v88/)
 - [直男咒术师的限制级游戏](https://www.tanmi818.com/book/9779u7v/)
 ## 相关内容
 - [README](/README.md)

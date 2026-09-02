@@ -1,7 +1,7 @@
 
 # 读者电子书-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-09-02 03:23:58
+更新时间：2026-09-03 03:23:59
 
 读者电子书提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
 
@@ -10,39 +10,38 @@
 ## 最新小说
 - [阿竹与野桃](https://www.duzhe368.com/book/3hfuv02/)
 - [从异世界穿回来后](https://www.duzhe368.com/book/3hfuqcp/)
-- [我有嘉宾](https://www.duzhe368.com/book/3hfuq0m/)
-- [原配夫人](https://www.duzhe368.com/book/3hfu075/)
+- [昭暮](https://www.duzhe368.com/book/3hfu3i1/)
 - [你，后室管理员](https://www.duzhe368.com/book/3hfu04u/)
 - [星际团宠小人鱼](https://www.duzhe368.com/book/3hfu02v/)
-- [高调装神，猥琐发育](https://www.duzhe368.com/book/3hftp55/)
-- [男朋友买一送一](https://www.duzhe368.com/book/3hftddk/)
+- [乱步他哥，但武力值max](https://www.duzhe368.com/book/3hfth51/)
 - [失而复得的白月光[快穿]](https://www.duzhe368.com/book/3hft7bf/)
 - [躲避原书剧情五年后](https://www.duzhe368.com/book/3hft680/)
-- [如何正确哄睡暴君](https://www.duzhe368.com/book/3hft43q/)
-- [逝水](https://www.duzhe368.com/book/3hfstj3/)
-- [你也没死？](https://www.duzhe368.com/book/3hfsrkn/)
-- [我不可能舔一个漂亮捞子](https://www.duzhe368.com/book/3hfsr4g/)
 - [被鬼怪宠爱的漂亮书生](https://www.duzhe368.com/book/3hfsmj5/)
+- [老公是松散生命体](https://www.duzhe368.com/book/3hfsm47/)
 - [沈助理又在隐藏他的超能力](https://www.duzhe368.com/book/3hfslur/)
 - [微臣怜惜公主](https://www.duzhe368.com/book/3hfsi6a/)
-- [系统不许我摆烂](https://www.duzhe368.com/book/3hfsgnp/)
-- [误入反派培养直播后](https://www.duzhe368.com/book/3hfsasl/)
+- [亚当斯与韦恩的适配性](https://www.duzhe368.com/book/3hfsbp1/)
+- [在立海大玩网球模拟器](https://www.duzhe368.com/book/3hfs8lr/)
 - [被四皇错看成小动物后](https://www.duzhe368.com/book/3hfs5rs/)
-- [哥你不能不要我](https://www.duzhe368.com/book/3hfs5ar/)
+- [大美人怀了enigma上司的崽](https://www.duzhe368.com/book/3hfs5hj/)
 - [炮灰的我该如何上位？](https://www.duzhe368.com/book/3hfs4e4/)
-- [多梦你一会儿](https://www.duzhe368.com/book/3hfs4ds/)
 - [[封神]圣人生欲](https://www.duzhe368.com/book/3hfs47l/)
-- [隔壁班的松田君](https://www.duzhe368.com/book/3hfrtqo/)
+- [奶奶蛋糕店[美食]](https://www.duzhe368.com/book/3hfs3ru/)
+- [[综英美]让我统治哥谭！！！](https://www.duzhe368.com/book/3hfs3p5/)
+- [这谁的沙雕二次元心声！](https://www.duzhe368.com/book/3hfs36c/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.duzhe368.com/book/3hfs225/)
+- [[全职高手]问就是没钱](https://www.duzhe368.com/book/3hfs0qc/)
 - [[足球]罗蜜第一志愿](https://www.duzhe368.com/book/3hfrsmk/)
-- [某柯学的正义伙伴](https://www.duzhe368.com/book/3hfrrvq/)
+- [虫族治愈师，但恐虫](https://www.duzhe368.com/book/3hfrrds/)
 - [井闼山经理每天都被挖墙脚](https://www.duzhe368.com/book/3hfro51/)
 - [[足球]小小鸟堂堂来袭](https://www.duzhe368.com/book/3hfrfn9/)
 - [好兄弟暴富后非要跟我结婚](https://www.duzhe368.com/book/3hfrbc3/)
-- [侯府打工人](https://www.duzhe368.com/book/3hfr9cn/)
+- [暴君偏头痛](https://www.duzhe368.com/book/3hfraua/)
 - [法外狂猫](https://www.duzhe368.com/book/3hfr6oc/)
-- [我，剑圣，养生中，勿扰](https://www.duzhe368.com/book/3hfr556/)
+- [关于我虚构了一个男友这件事](https://www.duzhe368.com/book/3hfr53r/)
 - [和室友他爸恋爱后](https://www.duzhe368.com/book/3hfqv5s/)
 - [纯爱宇智波基本恋爱法](https://www.duzhe368.com/book/3hfppfi/)
+- [阴郁路人不想被喜欢](https://www.duzhe368.com/book/3hfpooo/)
 - [直男咒术师的限制级游戏](https://www.duzhe368.com/book/3hfpmre/)
 ## 相关内容
 - [README](/README.md)

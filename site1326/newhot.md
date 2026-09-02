@@ -1,7 +1,7 @@
 
 # 欣怡书屋 - 免费最新章节小说阅读,全本无弹窗
 
-更新时间：2026-09-02 03:45:17
+更新时间：2026-09-03 03:45:27
 
 欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。
 
@@ -9,30 +9,30 @@
 
 ## 最新小说
 - [躲避原书剧情五年后](https://www.znenghs.com/book/5n2k93v/)
+- [[综英美]让我统治哥谭！！！](https://www.znenghs.com/book/5n2k93q/)
 - [失而复得的白月光[快穿]](https://www.znenghs.com/book/5n2k93l/)
 - [阿竹与野桃](https://www.znenghs.com/book/5n2k933/)
+- [暴君偏头痛](https://www.znenghs.com/book/5n2k930/)
 - [井闼山经理每天都被挖墙脚](https://www.znenghs.com/book/5n2k90n/)
 - [[封神]圣人生欲](https://www.znenghs.com/book/5n2k8uq/)
 - [被四皇错看成小动物后](https://www.znenghs.com/book/5n2k8uh/)
 - [你，后室管理员](https://www.znenghs.com/book/5n2k8th/)
 - [星际团宠小人鱼](https://www.znenghs.com/book/5n2k8ss/)
-- [原配夫人](https://www.znenghs.com/book/5n2k8sp/)
-- [高调装神，猥琐发育](https://www.znenghs.com/book/5n2k8sf/)
+- [阴郁路人不想被喜欢](https://www.znenghs.com/book/5n2k8r0/)
 - [从异世界穿回来后](https://www.znenghs.com/book/5n2k8ql/)
 - [直男咒术师的限制级游戏](https://www.znenghs.com/book/5n2k8nt/)
 - [纯爱宇智波基本恋爱法](https://www.znenghs.com/book/5n2k8nf/)
-- [某柯学的正义伙伴](https://www.znenghs.com/book/5n2hedk/)
-- [男朋友买一送一](https://www.znenghs.com/book/5n2h5os/)
-- [我有嘉宾](https://www.znenghs.com/book/5n2gvde/)
+- [昭暮](https://www.znenghs.com/book/5n2jtr8/)
+- [乱步他哥，但武力值max](https://www.znenghs.com/book/5n2h71a/)
 - [沈助理又在隐藏他的超能力](https://www.znenghs.com/book/i9tpf4/)
-- [系统不许我摆烂](https://www.znenghs.com/book/i9tm5q/)
-- [逝水](https://www.znenghs.com/book/i9temj/)
-- [隔壁班的松田君](https://www.znenghs.com/book/i9t3h2/)
-- [你也没死？](https://www.znenghs.com/book/i9suva/)
-- [误入反派培养直播后](https://www.znenghs.com/book/i9sh6m/)
-- [多梦你一会儿](https://www.znenghs.com/book/i9sfpj/)
+- [奶奶蛋糕店[美食]](https://www.znenghs.com/book/i9tdhv/)
+- [在立海大玩网球模拟器](https://www.znenghs.com/book/i9t9r1/)
+- [[全职高手]问就是没钱](https://www.znenghs.com/book/i9t8o0/)
+- [虫族治愈师，但恐虫](https://www.znenghs.com/book/i9t33m/)
+- [这谁的沙雕二次元心声！](https://www.znenghs.com/book/i9sthj/)
+- [老公是松散生命体](https://www.znenghs.com/book/i9sptm/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.znenghs.com/book/i9sf47/)
 - [[足球]罗蜜第一志愿](https://www.znenghs.com/book/i9sdb6/)
-- [哥你不能不要我](https://www.znenghs.com/book/i9rs4f/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1326/index.md)
