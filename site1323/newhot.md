@@ -1,7 +1,7 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-09-02 03:43:39
+更新时间：2026-09-03 03:43:46
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
@@ -9,30 +9,30 @@
 
 ## 最新小说
 - [失而复得的白月光[快穿]](https://www.yuedu687.com/book/2bu5itf/)
+- [[综英美]让我统治哥谭！！！](https://www.yuedu687.com/book/2bu5it6/)
 - [井闼山经理每天都被挖墙脚](https://www.yuedu687.com/book/2bu5ise/)
 - [躲避原书剧情五年后](https://www.yuedu687.com/book/2bu5irs/)
+- [暴君偏头痛](https://www.yuedu687.com/book/2bu5irp/)
 - [阿竹与野桃](https://www.yuedu687.com/book/2bu5ipe/)
 - [从异世界穿回来后](https://www.yuedu687.com/book/2bu5ipb/)
 - [被四皇错看成小动物后](https://www.yuedu687.com/book/2bu5ip0/)
 - [你，后室管理员](https://www.yuedu687.com/book/2bu5ioo/)
-- [原配夫人](https://www.yuedu687.com/book/2bu5io3/)
 - [星际团宠小人鱼](https://www.yuedu687.com/book/2bu5ink/)
 - [[封神]圣人生欲](https://www.yuedu687.com/book/2bu5ine/)
-- [高调装神，猥琐发育](https://www.yuedu687.com/book/2bu5imi/)
+- [阴郁路人不想被喜欢](https://www.yuedu687.com/book/2bu5iko/)
 - [直男咒术师的限制级游戏](https://www.yuedu687.com/book/2bu5iis/)
 - [纯爱宇智波基本恋爱法](https://www.yuedu687.com/book/2bu5iim/)
-- [某柯学的正义伙伴](https://www.yuedu687.com/book/2bu2q4r/)
-- [男朋友买一送一](https://www.yuedu687.com/book/2bu2fg1/)
-- [我有嘉宾](https://www.yuedu687.com/book/2bu27br/)
+- [昭暮](https://www.yuedu687.com/book/2bu57l3/)
+- [乱步他哥，但武力值max](https://www.yuedu687.com/book/2bu2imd/)
 - [沈助理又在隐藏他的超能力](https://www.yuedu687.com/book/7j2na0/)
-- [系统不许我摆烂](https://www.yuedu687.com/book/7j2j50/)
-- [逝水](https://www.yuedu687.com/book/7j2cd1/)
-- [隔壁班的松田君](https://www.yuedu687.com/book/7j1v5v/)
-- [你也没死？](https://www.yuedu687.com/book/7j1t26/)
-- [误入反派培养直播后](https://www.yuedu687.com/book/7j1fuf/)
-- [多梦你一会儿](https://www.yuedu687.com/book/7j1ck7/)
+- [奶奶蛋糕店[美食]](https://www.yuedu687.com/book/7j2cf8/)
+- [在立海大玩网球模拟器](https://www.yuedu687.com/book/7j2arq/)
+- [[全职高手]问就是没钱](https://www.yuedu687.com/book/7j270l/)
+- [虫族治愈师，但恐虫](https://www.yuedu687.com/book/7j20co/)
+- [老公是松散生命体](https://www.yuedu687.com/book/7j1qih/)
+- [这谁的沙雕二次元心声！](https://www.yuedu687.com/book/7j1pb9/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.yuedu687.com/book/7j1d8a/)
 - [[足球]罗蜜第一志愿](https://www.yuedu687.com/book/7j1bi8/)
-- [哥你不能不要我](https://www.yuedu687.com/book/7j0o16/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1323/index.md)

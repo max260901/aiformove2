@@ -1,43 +1,44 @@
 
 # 春日书屋-免费热门小说在线阅读平台|晋江文学|全本免费畅读
 
-更新时间：2026-09-02 03:35:05
+更新时间：2026-09-03 03:35:08
 
 春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！
 
 - [春日书屋小说](https://www.shenyuanhg.com/)
 
 ## 最新小说
+- [暴君偏头痛](https://www.shenyuanhg.com/book/7gie8jd/)
 - [阿竹与野桃](https://www.shenyuanhg.com/book/7gie8hp/)
 - [躲避原书剧情五年后](https://www.shenyuanhg.com/book/7gie6d8/)
-- [我有嘉宾](https://www.shenyuanhg.com/book/7gidtdv/)
 - [从异世界穿回来后](https://www.shenyuanhg.com/book/7gidsmg/)
 - [星际团宠小人鱼](https://www.shenyuanhg.com/book/7gido92/)
 - [你，后室管理员](https://www.shenyuanhg.com/book/7gido8t/)
-- [原配夫人](https://www.shenyuanhg.com/book/7gido6v/)
-- [男朋友买一送一](https://www.shenyuanhg.com/book/7gicd2j/)
-- [高调装神，猥琐发育](https://www.shenyuanhg.com/book/7giccbi/)
+- [昭暮](https://www.shenyuanhg.com/book/7gid43p/)
+- [乱步他哥，但武力值max](https://www.shenyuanhg.com/book/7gicgfd/)
 - [直男咒术师的限制级游戏](https://www.shenyuanhg.com/book/7gic5ii/)
-- [如何正确哄睡暴君](https://www.shenyuanhg.com/book/7gibt0n/)
+- [阴郁路人不想被喜欢](https://www.shenyuanhg.com/book/7gic2td/)
 - [失而复得的白月光[快穿]](https://www.shenyuanhg.com/book/7gibsv6/)
-- [逝水](https://www.shenyuanhg.com/book/7gibp5d/)
-- [你也没死？](https://www.shenyuanhg.com/book/7gibkq3/)
 - [沈助理又在隐藏他的超能力](https://www.shenyuanhg.com/book/7gibj48/)
-- [我不可能舔一个漂亮捞子](https://www.shenyuanhg.com/book/7gibirk/)
-- [系统不许我摆烂](https://www.shenyuanhg.com/book/7gibeil/)
-- [误入反派培养直播后](https://www.shenyuanhg.com/book/7gib6j5/)
+- [在立海大玩网球模拟器](https://www.shenyuanhg.com/book/7gib5c4/)
+- [奶奶蛋糕店[美食]](https://www.shenyuanhg.com/book/7gib3nv/)
 - [微臣怜惜公主](https://www.shenyuanhg.com/book/7gib1i6/)
-- [哥你不能不要我](https://www.shenyuanhg.com/book/7gib0ot/)
-- [多梦你一会儿](https://www.shenyuanhg.com/book/7gib09f/)
+- [大美人怀了enigma上司的崽](https://www.shenyuanhg.com/book/7gib11o/)
+- [[全职高手]问就是没钱](https://www.shenyuanhg.com/book/7giavod/)
 - [被鬼怪宠爱的漂亮书生](https://www.shenyuanhg.com/book/7giavc5/)
 - [炮灰的我该如何上位？](https://www.shenyuanhg.com/book/7giau3n/)
-- [隔壁班的松田君](https://www.shenyuanhg.com/book/7giaqps/)
-- [某柯学的正义伙伴](https://www.shenyuanhg.com/book/7giamg6/)
+- [虫族治愈师，但恐虫](https://www.shenyuanhg.com/book/7giar6d/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.shenyuanhg.com/book/7giar1l/)
+- [这谁的沙雕二次元心声！](https://www.shenyuanhg.com/book/7giaqau/)
+- [亚当斯与韦恩的适配性](https://www.shenyuanhg.com/book/7giapit/)
 - [[封神]圣人生欲](https://www.shenyuanhg.com/book/7giambt/)
+- [老公是松散生命体](https://www.shenyuanhg.com/book/7gials6/)
 - [纯爱宇智波基本恋爱法](https://www.shenyuanhg.com/book/7giakjt/)
 - [[足球]罗蜜第一志愿](https://www.shenyuanhg.com/book/7giai26/)
 - [被四皇错看成小动物后](https://www.shenyuanhg.com/book/7giagru/)
 - [井闼山经理每天都被挖墙脚](https://www.shenyuanhg.com/book/7giaego/)
+- [[综英美]让我统治哥谭！！！](https://www.shenyuanhg.com/book/7gia9oi/)
+- [关于我虚构了一个男友这件事](https://www.shenyuanhg.com/book/7gia3oe/)
 - [好兄弟暴富后非要跟我结婚](https://www.shenyuanhg.com/book/7gia1jf/)
 ## 相关内容
 - [README](/README.md)

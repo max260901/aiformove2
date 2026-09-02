@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-09-02 03:22:38
+更新时间：2026-09-03 03:22:39
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -11,28 +11,28 @@
 - [阿竹与野桃](https://www.chuangyi1687.com/book/1hvgov0/)
 - [井闼山经理每天都被挖墙脚](https://www.chuangyi1687.com/book/1hvgouu/)
 - [躲避原书剧情五年后](https://www.chuangyi1687.com/book/1hvgotm/)
+- [[综英美]让我统治哥谭！！！](https://www.chuangyi1687.com/book/1hvgota/)
 - [失而复得的白月光[快穿]](https://www.chuangyi1687.com/book/1hvgosl/)
+- [暴君偏头痛](https://www.chuangyi1687.com/book/1hvgorj/)
 - [被四皇错看成小动物后](https://www.chuangyi1687.com/book/1hvgoqo/)
 - [[封神]圣人生欲](https://www.chuangyi1687.com/book/1hvgoq7/)
-- [原配夫人](https://www.chuangyi1687.com/book/1hvgoq2/)
 - [星际团宠小人鱼](https://www.chuangyi1687.com/book/1hvgopt/)
 - [你，后室管理员](https://www.chuangyi1687.com/book/1hvgop8/)
-- [高调装神，猥琐发育](https://www.chuangyi1687.com/book/1hvgooe/)
 - [从异世界穿回来后](https://www.chuangyi1687.com/book/1hvgoo4/)
 - [纯爱宇智波基本恋爱法](https://www.chuangyi1687.com/book/1hvgojv/)
+- [阴郁路人不想被喜欢](https://www.chuangyi1687.com/book/1hvgoju/)
 - [直男咒术师的限制级游戏](https://www.chuangyi1687.com/book/1hvgojn/)
-- [某柯学的正义伙伴](https://www.chuangyi1687.com/book/1hve06a/)
-- [男朋友买一送一](https://www.chuangyi1687.com/book/1hvdjlf/)
-- [我有嘉宾](https://www.chuangyi1687.com/book/1hvdfa8/)
+- [昭暮](https://www.chuangyi1687.com/book/1hvgdml/)
+- [乱步他哥，但武力值max](https://www.chuangyi1687.com/book/1hvdn0p/)
 - [沈助理又在隐藏他的超能力](https://www.chuangyi1687.com/book/500j2q/)
-- [系统不许我摆烂](https://www.chuangyi1687.com/book/500fl8/)
-- [逝水](https://www.chuangyi1687.com/book/5008in/)
-- [隔壁班的松田君](https://www.chuangyi1687.com/book/4vvsmo/)
-- [你也没死？](https://www.chuangyi1687.com/book/4vvpnn/)
-- [误入反派培养直播后](https://www.chuangyi1687.com/book/4vvef4/)
-- [多梦你一会儿](https://www.chuangyi1687.com/book/4vvakb/)
+- [奶奶蛋糕店[美食]](https://www.chuangyi1687.com/book/5007ib/)
+- [在立海大玩网球模拟器](https://www.chuangyi1687.com/book/5006mq/)
+- [[全职高手]问就是没钱](https://www.chuangyi1687.com/book/5001su/)
+- [虫族治愈师，但恐虫](https://www.chuangyi1687.com/book/4vvrfb/)
+- [这谁的沙雕二次元心声！](https://www.chuangyi1687.com/book/4vvm7l/)
+- [老公是松散生命体](https://www.chuangyi1687.com/book/4vvljq/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.chuangyi1687.com/book/4vvavq/)
 - [[足球]罗蜜第一志愿](https://www.chuangyi1687.com/book/4vv7ka/)
-- [哥你不能不要我](https://www.chuangyi1687.com/book/4vumbd/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1316/index.md)

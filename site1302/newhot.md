@@ -1,38 +1,38 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-02 03:34:14
+更新时间：2026-09-03 03:34:18
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
 - [七步阁](https://www.revwarny.com/)
 
 ## 最新小说
+- [[综英美]让我统治哥谭！！！](https://www.revwarny.com/book/3sgl7q2/)
+- [暴君偏头痛](https://www.revwarny.com/book/3sgl7nk/)
 - [躲避原书剧情五年后](https://www.revwarny.com/book/3sgl7ni/)
 - [失而复得的白月光[快穿]](https://www.revwarny.com/book/3sgl7ne/)
 - [井闼山经理每天都被挖墙脚](https://www.revwarny.com/book/3sgl7m2/)
 - [阿竹与野桃](https://www.revwarny.com/book/3sgl7ls/)
 - [星际团宠小人鱼](https://www.revwarny.com/book/3sgl7kn/)
 - [[封神]圣人生欲](https://www.revwarny.com/book/3sgl7k8/)
-- [原配夫人](https://www.revwarny.com/book/3sgl7k6/)
 - [你，后室管理员](https://www.revwarny.com/book/3sgl7j5/)
 - [被四皇错看成小动物后](https://www.revwarny.com/book/3sgl7ij/)
-- [高调装神，猥琐发育](https://www.revwarny.com/book/3sgl7ih/)
 - [直男咒术师的限制级游戏](https://www.revwarny.com/book/3sgl7hr/)
+- [阴郁路人不想被喜欢](https://www.revwarny.com/book/3sgl7hg/)
 - [纯爱宇智波基本恋爱法](https://www.revwarny.com/book/3sgl7go/)
 - [从异世界穿回来后](https://www.revwarny.com/book/3sgl7dp/)
-- [某柯学的正义伙伴](https://www.revwarny.com/book/3sgiemk/)
-- [男朋友买一送一](https://www.revwarny.com/book/3sgi3a9/)
-- [我有嘉宾](https://www.revwarny.com/book/3sghtti/)
-- [系统不许我摆烂](https://www.revwarny.com/book/ceh253/)
+- [昭暮](https://www.revwarny.com/book/3sgksji/)
+- [乱步他哥，但武力值max](https://www.revwarny.com/book/3sgi9lo/)
 - [沈助理又在隐藏他的超能力](https://www.revwarny.com/book/ceh0li/)
-- [逝水](https://www.revwarny.com/book/cegnhs/)
-- [隔壁班的松田君](https://www.revwarny.com/book/cega3e/)
-- [你也没死？](https://www.revwarny.com/book/ceg8fr/)
-- [误入反派培养直播后](https://www.revwarny.com/book/cefqg3/)
-- [多梦你一会儿](https://www.revwarny.com/book/cefnl1/)
+- [奶奶蛋糕店[美食]](https://www.revwarny.com/book/cegnht/)
+- [在立海大玩网球模拟器](https://www.revwarny.com/book/ceglqj/)
+- [[全职高手]问就是没钱](https://www.revwarny.com/book/cegg42/)
+- [虫族治愈师，但恐虫](https://www.revwarny.com/book/cegbov/)
+- [老公是松散生命体](https://www.revwarny.com/book/ceg48f/)
+- [这谁的沙雕二次元心声！](https://www.revwarny.com/book/ceg3rf/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.revwarny.com/book/cefq58/)
 - [[足球]罗蜜第一志愿](https://www.revwarny.com/book/cefn53/)
-- [哥你不能不要我](https://www.revwarny.com/book/cef4gk/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1302/index.md)

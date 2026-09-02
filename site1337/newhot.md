@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-02 03:23:28
+更新时间：2026-09-03 03:23:29
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -9,36 +9,37 @@
 
 ## 最新小说
 - [阿竹与野桃](https://www.cq082.com/book/1sdfg8h/)
+- [暴君偏头痛](https://www.cq082.com/book/1sdfg7t/)
 - [躲避原书剧情五年后](https://www.cq082.com/book/1sdfe4t/)
-- [我有嘉宾](https://www.cq082.com/book/1sdf52s/)
 - [从异世界穿回来后](https://www.cq082.com/book/1sdf4es/)
 - [你，后室管理员](https://www.cq082.com/book/1sdf02p/)
 - [星际团宠小人鱼](https://www.cq082.com/book/1sdf00k/)
-- [原配夫人](https://www.cq082.com/book/1sdevv8/)
-- [高调装神，猥琐发育](https://www.cq082.com/book/1sddldh/)
-- [男朋友买一送一](https://www.cq082.com/book/1sddkbr/)
+- [昭暮](https://www.cq082.com/book/1sdebsp/)
+- [乱步他哥，但武力值max](https://www.cq082.com/book/1sddlju/)
 - [直男咒术师的限制级游戏](https://www.cq082.com/book/1sddd6r/)
-- [如何正确哄睡暴君](https://www.cq082.com/book/1sdd5hl/)
+- [阴郁路人不想被喜欢](https://www.cq082.com/book/1sddbu5/)
 - [失而复得的白月光[快穿]](https://www.cq082.com/book/1sdd42b/)
-- [逝水](https://www.cq082.com/book/1sdcumg/)
-- [你也没死？](https://www.cq082.com/book/1sdcsh6/)
-- [我不可能舔一个漂亮捞子](https://www.cq082.com/book/1sdcr05/)
 - [沈助理又在隐藏他的超能力](https://www.cq082.com/book/1sdcooh/)
-- [系统不许我摆烂](https://www.cq082.com/book/1sdcntj/)
-- [误入反派培养直播后](https://www.cq082.com/book/1sdccrf/)
-- [多梦你一会儿](https://www.cq082.com/book/1sdc92f/)
-- [哥你不能不要我](https://www.cq082.com/book/1sdc8a5/)
+- [在立海大玩网球模拟器](https://www.cq082.com/book/1sdcdrr/)
+- [奶奶蛋糕店[美食]](https://www.cq082.com/book/1sdcaaa/)
+- [大美人怀了enigma上司的崽](https://www.cq082.com/book/1sdc8pn/)
 - [被鬼怪宠爱的漂亮书生](https://www.cq082.com/book/1sdc7bg/)
 - [微臣怜惜公主](https://www.cq082.com/book/1sdc6r4/)
+- [[全职高手]问就是没钱](https://www.cq082.com/book/1sdc6lo/)
 - [炮灰的我该如何上位？](https://www.cq082.com/book/1sdc4el/)
-- [隔壁班的松田君](https://www.cq082.com/book/1sdc1uu/)
-- [某柯学的正义伙伴](https://www.cq082.com/book/1sdbu07/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.cq082.com/book/1sdc3ii/)
+- [这谁的沙雕二次元心声！](https://www.cq082.com/book/1sdc174/)
+- [虫族治愈师，但恐虫](https://www.cq082.com/book/1sdc14t/)
+- [亚当斯与韦恩的适配性](https://www.cq082.com/book/1sdc0vu/)
 - [[封神]圣人生欲](https://www.cq082.com/book/1sdbtuo/)
+- [老公是松散生命体](https://www.cq082.com/book/1sdbtcc/)
 - [纯爱宇智波基本恋爱法](https://www.cq082.com/book/1sdbrua/)
 - [[足球]罗蜜第一志愿](https://www.cq082.com/book/1sdbpej/)
 - [被四皇错看成小动物后](https://www.cq082.com/book/1sdbodm/)
 - [井闼山经理每天都被挖墙脚](https://www.cq082.com/book/1sdbnoh/)
+- [[综英美]让我统治哥谭！！！](https://www.cq082.com/book/1sdbfm2/)
 - [好兄弟暴富后非要跟我结婚](https://www.cq082.com/book/1sdbbna/)
+- [关于我虚构了一个男友这件事](https://www.cq082.com/book/1sdbbif/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1337/index.md)

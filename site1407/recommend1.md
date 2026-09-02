@@ -1,19 +1,22 @@
 
 # 苏秦家小说网 - 免费在线阅读无弹窗小说
 
-更新时间：2026-09-02 03:37:06
+更新时间：2026-09-03 03:37:10
 
 苏秦家小说网为您提供一个干净、舒适的阅读环境，专注于提供免费且无任何弹窗干扰的小说在线阅读服务。
 
 - [苏秦家小说网](https://www.suqinjia.com/)
 
 ## 最新小说
-- [宠妃岂敢压我！](https://www.suqinjia.com/book/3av32ov/)
-- [假少爷有特殊的算命技巧](https://www.suqinjia.com/book/3av32o4/)
-- [死遁后，师弟他不哄不停](https://www.suqinjia.com/book/3av32k9/)
+- [上个鬼班[无限]](https://www.suqinjia.com/book/3av37or/)
+- [[足球]足坛人生模拟器](https://www.suqinjia.com/book/3av375o/)
+- [让暴君Alpha怀崽后](https://www.suqinjia.com/book/3av31te/)
+- [娇美人换嫁七零大佬后](https://www.suqinjia.com/book/3av2vqq/)
 - [从维多利亚时代开始](https://www.suqinjia.com/book/3av2q13/)
-- [九零重组小家庭](https://www.suqinjia.com/book/3av2kmc/)
-- [发家致富小夫郎](https://www.suqinjia.com/book/3av2duv/)
+- [昭暮](https://www.suqinjia.com/book/3av2ljr/)
+- [边关小夫郎](https://www.suqinjia.com/book/3av2duv/)
+- [食明](https://www.suqinjia.com/book/3av2b2v/)
+- [诡话第一boss](https://www.suqinjia.com/book/3av27te/)
 - [[三国]清澈，但千古一帝](https://www.suqinjia.com/book/3av23up/)
 - [重回养父年少时](https://www.suqinjia.com/book/3av23qe/)
 - [灭世龙崽有什么错](https://www.suqinjia.com/book/3av23q0/)
@@ -63,7 +66,6 @@
 - [女先生](https://www.suqinjia.com/book/3av21jj/)
 - [无限回档，我把自己刷成了女帝](https://www.suqinjia.com/book/3av21jg/)
 - [神豪文男主是我爸](https://www.suqinjia.com/book/3av21j7/)
-- [乖乖小宝被豪门长兄娇养了](https://www.suqinjia.com/book/3av21j6/)
 - [凤凰男就该窝里下蛋](https://www.suqinjia.com/book/3av21is/)
 - [退婚流龙傲天，但未婚夫是我](https://www.suqinjia.com/book/3av21i0/)
 - [[原神+崩铁]在提瓦特隐居也未尝不可](https://www.suqinjia.com/book/3av21h9/)
@@ -77,14 +79,15 @@
 - [我写小说纯粹为了赚钱](https://www.suqinjia.com/book/3av1pin/)
 - [第一游侠[全息]](https://www.suqinjia.com/book/3av1nuj/)
 - [寄人篱下](https://www.suqinjia.com/book/3av1mi2/)
+- [韩团绿卡不想忍了](https://www.suqinjia.com/book/3av1jjt/)
 - [误标记隔壁阿姨O之后](https://www.suqinjia.com/book/3av1h7p/)
 - [高嫁之后](https://www.suqinjia.com/book/3av1h6g/)
-- [[全职高手]霸图老板是叶修](https://www.suqinjia.com/book/3av1fs4/)
 - [假金丝雀深陷修罗场](https://www.suqinjia.com/book/3av1fi0/)
 - [不当救世主就要当人类恶了吗](https://www.suqinjia.com/book/3av1eh8/)
 - [当菟丝花要分手后](https://www.suqinjia.com/book/3av1e9a/)
 - [十福晋吃瓜日常(清穿)](https://www.suqinjia.com/book/3av1dqs/)
 - [[综英美]让我统治哥谭！！！](https://www.suqinjia.com/book/3av1bs7/)
+- [社恐直播鉴宝，但带球跑](https://www.suqinjia.com/book/3av1bms/)
 - [当我穿为龙傲天的情敌](https://www.suqinjia.com/book/3av1ari/)
 - [霓虹夏日](https://www.suqinjia.com/book/3av197t/)
 - [我司艺人永不塌房](https://www.suqinjia.com/book/3av16d6/)
@@ -122,7 +125,6 @@
 - [如果时光不记得](https://www.suqinjia.com/book/3auvtpt/)
 - [穿越废星，我靠种田求生](https://www.suqinjia.com/book/3auvtca/)
 - [萩原警官的咒术大冒险](https://www.suqinjia.com/book/3auvt40/)
-- [始皇闺女躺平失败的日子](https://www.suqinjia.com/book/3auvsfl/)
 - [满级大佬制霸热血运动番](https://www.suqinjia.com/book/3auvsfi/)
 - [我真的只会Ctrl啊！！！](https://www.suqinjia.com/book/3auvs2u/)
 - [我不是御兽大师](https://www.suqinjia.com/book/3auvs1c/)
@@ -150,7 +152,6 @@
 - [千禧年，拆迁分了十栋楼！](https://www.suqinjia.com/book/3auue3i/)
 - [假少爷不想活了](https://www.suqinjia.com/book/3auue1c/)
 - [全民求生:从小木屋到魔法农场](https://www.suqinjia.com/book/3auudv3/)
-- [御兽师，我打工养你啊](https://www.suqinjia.com/book/3auudub/)
 - [在民俗惊悚片被诸神庇护](https://www.suqinjia.com/book/3auudqb/)
 - [[娱乐圈]过分美丽的她](https://www.suqinjia.com/book/3auudpm/)
 - [巨物致富：回乡开钓场](https://www.suqinjia.com/book/3auudo8/)
@@ -162,7 +163,6 @@
 - [为诡异打工，但反封建迷信](https://www.suqinjia.com/book/3auud77/)
 - [八零恶毒后妈杀疯了](https://www.suqinjia.com/book/3auud6r/)
 - [五十年代港城日常](https://www.suqinjia.com/book/3auud2s/)
-- [穿成炮灰后我封神了［快穿］](https://www.suqinjia.com/book/3auud0g/)
 - [95美国贵族高中模拟](https://www.suqinjia.com/book/3auucp1/)
 - [九零首富的替嫁小媳妇](https://www.suqinjia.com/book/3auucju/)
 - [六零之成了卷王的妹妹](https://www.suqinjia.com/book/3auucev/)

@@ -1,7 +1,7 @@
 
 # 紫玉海小说 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-09-02 03:44:59
+更新时间：2026-09-03 03:45:09
 
 紫玉海小说网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
@@ -9,6 +9,8 @@
 
 ## 最新小说
 - [从异世界穿回来后](https://www.ziyuhai.com/book/84rn57r/)
+- [暴君偏头痛](https://www.ziyuhai.com/book/84rn57e/)
+- [[综英美]让我统治哥谭！！！](https://www.ziyuhai.com/book/84rn579/)
 - [阿竹与野桃](https://www.ziyuhai.com/book/84rn572/)
 - [失而复得的白月光[快穿]](https://www.ziyuhai.com/book/84rn571/)
 - [井闼山经理每天都被挖墙脚](https://www.ziyuhai.com/book/84rn56n/)
@@ -16,23 +18,21 @@
 - [星际团宠小人鱼](https://www.ziyuhai.com/book/84rn52t/)
 - [[封神]圣人生欲](https://www.ziyuhai.com/book/84rn52m/)
 - [你，后室管理员](https://www.ziyuhai.com/book/84rn52k/)
-- [原配夫人](https://www.ziyuhai.com/book/84rn529/)
 - [被四皇错看成小动物后](https://www.ziyuhai.com/book/84rn521/)
-- [高调装神，猥琐发育](https://www.ziyuhai.com/book/84rn50f/)
+- [阴郁路人不想被喜欢](https://www.ziyuhai.com/book/84rn4vq/)
 - [纯爱宇智波基本恋爱法](https://www.ziyuhai.com/book/84rn4so/)
 - [直男咒术师的限制级游戏](https://www.ziyuhai.com/book/84rn4s3/)
-- [某柯学的正义伙伴](https://www.ziyuhai.com/book/84rkc7d/)
-- [男朋友买一送一](https://www.ziyuhai.com/book/84rk0l8/)
-- [我有嘉宾](https://www.ziyuhai.com/book/84rjs3m/)
+- [昭暮](https://www.ziyuhai.com/book/84rmq1q/)
+- [乱步他哥，但武力值max](https://www.ziyuhai.com/book/84rk2jt/)
 - [沈助理又在隐藏他的超能力](https://www.ziyuhai.com/book/q2qrpa/)
-- [系统不许我摆烂](https://www.ziyuhai.com/book/q2qnpb/)
-- [逝水](https://www.ziyuhai.com/book/q2qh1n/)
-- [隔壁班的松田君](https://www.ziyuhai.com/book/q2q3rs/)
-- [你也没死？](https://www.ziyuhai.com/book/q2pvnh/)
-- [误入反派培养直播后](https://www.ziyuhai.com/book/q2pm7h/)
-- [多梦你一会儿](https://www.ziyuhai.com/book/q2pi25/)
+- [奶奶蛋糕店[美食]](https://www.ziyuhai.com/book/q2qh7b/)
+- [在立海大玩网球模拟器](https://www.ziyuhai.com/book/q2qg1b/)
+- [[全职高手]问就是没钱](https://www.ziyuhai.com/book/q2q93o/)
+- [虫族治愈师，但恐虫](https://www.ziyuhai.com/book/q2q5a4/)
+- [这谁的沙雕二次元心声！](https://www.ziyuhai.com/book/q2ptab/)
+- [老公是松散生命体](https://www.ziyuhai.com/book/q2pt2v/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.ziyuhai.com/book/q2pj08/)
 - [[足球]罗蜜第一志愿](https://www.ziyuhai.com/book/q2pfeg/)
-- [哥你不能不要我](https://www.ziyuhai.com/book/q2os1a/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1278/index.md)

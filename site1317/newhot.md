@@ -1,38 +1,38 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-02 03:45:34
+更新时间：2026-09-03 03:45:45
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。
 
 - [作品思路客](https://www.zuopin666.com/)
 
 ## 最新小说
+- [[综英美]让我统治哥谭！！！](https://www.zuopin666.com/book/8befhhi/)
 - [井闼山经理每天都被挖墙脚](https://www.zuopin666.com/book/8befhhh/)
 - [从异世界穿回来后](https://www.zuopin666.com/book/8befhg1/)
 - [失而复得的白月光[快穿]](https://www.zuopin666.com/book/8befhfr/)
 - [躲避原书剧情五年后](https://www.zuopin666.com/book/8befhfk/)
 - [阿竹与野桃](https://www.zuopin666.com/book/8befhe0/)
+- [暴君偏头痛](https://www.zuopin666.com/book/8befhdh/)
 - [你，后室管理员](https://www.zuopin666.com/book/8befhcs/)
 - [星际团宠小人鱼](https://www.zuopin666.com/book/8befhcl/)
 - [[封神]圣人生欲](https://www.zuopin666.com/book/8befhcb/)
-- [原配夫人](https://www.zuopin666.com/book/8befhc2/)
 - [被四皇错看成小动物后](https://www.zuopin666.com/book/8befhao/)
-- [高调装神，猥琐发育](https://www.zuopin666.com/book/8befhaf/)
 - [纯爱宇智波基本恋爱法](https://www.zuopin666.com/book/8befh9v/)
+- [阴郁路人不想被喜欢](https://www.zuopin666.com/book/8befh8e/)
 - [直男咒术师的限制级游戏](https://www.zuopin666.com/book/8befh71/)
-- [某柯学的正义伙伴](https://www.zuopin666.com/book/8becook/)
-- [男朋友买一送一](https://www.zuopin666.com/book/8beccng/)
-- [我有嘉宾](https://www.zuopin666.com/book/8bec8g7/)
+- [昭暮](https://www.zuopin666.com/book/8bef68s/)
+- [乱步他哥，但武力值max](https://www.zuopin666.com/book/8becfvt/)
 - [沈助理又在隐藏他的超能力](https://www.zuopin666.com/book/qntaf1/)
-- [系统不许我摆烂](https://www.zuopin666.com/book/qnt82i/)
-- [逝水](https://www.zuopin666.com/book/qnstdk/)
-- [隔壁班的松田君](https://www.zuopin666.com/book/qnsjps/)
-- [你也没死？](https://www.zuopin666.com/book/qnsfkg/)
-- [误入反派培养直播后](https://www.zuopin666.com/book/qns0iu/)
-- [多梦你一会儿](https://www.zuopin666.com/book/qns012/)
+- [奶奶蛋糕店[美食]](https://www.zuopin666.com/book/qnsv8r/)
+- [在立海大玩网球模拟器](https://www.zuopin666.com/book/qnsukg/)
+- [[全职高手]问就是没钱](https://www.zuopin666.com/book/qnsnk1/)
+- [虫族治愈师，但恐虫](https://www.zuopin666.com/book/qnshav/)
+- [这谁的沙雕二次元心声！](https://www.zuopin666.com/book/qnsd0o/)
+- [老公是松散生命体](https://www.zuopin666.com/book/qnsd0c/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.zuopin666.com/book/qns1hg/)
 - [[足球]罗蜜第一志愿](https://www.zuopin666.com/book/qnrtla/)
-- [哥你不能不要我](https://www.zuopin666.com/book/qnrd1o/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1317/index.md)

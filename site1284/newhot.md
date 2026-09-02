@@ -1,38 +1,38 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-09-02 03:30:58
+更新时间：2026-09-03 03:31:00
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
 - [爱你中文网](https://www.longjiangstone.com/)
 
 ## 最新小说
+- [[综英美]让我统治哥谭！！！](https://www.longjiangstone.com/book/34b4np/)
 - [躲避原书剧情五年后](https://www.longjiangstone.com/book/34b4m9/)
+- [暴君偏头痛](https://www.longjiangstone.com/book/34b4m4/)
 - [从异世界穿回来后](https://www.longjiangstone.com/book/34b4l5/)
 - [井闼山经理每天都被挖墙脚](https://www.longjiangstone.com/book/34b4k0/)
 - [失而复得的白月光[快穿]](https://www.longjiangstone.com/book/34b4jc/)
 - [阿竹与野桃](https://www.longjiangstone.com/book/34b4j4/)
-- [原配夫人](https://www.longjiangstone.com/book/34b4it/)
 - [星际团宠小人鱼](https://www.longjiangstone.com/book/34b4hq/)
 - [你，后室管理员](https://www.longjiangstone.com/book/34b4hl/)
 - [[封神]圣人生欲](https://www.longjiangstone.com/book/34b4ha/)
 - [被四皇错看成小动物后](https://www.longjiangstone.com/book/34b4h7/)
-- [高调装神，猥琐发育](https://www.longjiangstone.com/book/34b4gf/)
 - [纯爱宇智波基本恋爱法](https://www.longjiangstone.com/book/34b4f0/)
 - [直男咒术师的限制级游戏](https://www.longjiangstone.com/book/34b4cq/)
-- [某柯学的正义伙伴](https://www.longjiangstone.com/book/348c4v/)
-- [男朋友买一送一](https://www.longjiangstone.com/book/3480qj/)
-- [我有嘉宾](https://www.longjiangstone.com/book/347r4j/)
+- [阴郁路人不想被喜欢](https://www.longjiangstone.com/book/34b4ck/)
+- [昭暮](https://www.longjiangstone.com/book/34apg1/)
+- [乱步他哥，但武力值max](https://www.longjiangstone.com/book/3481vn/)
 - [沈助理又在隐藏他的超能力](https://www.longjiangstone.com/book/a3a1f/)
-- [系统不许我摆烂](https://www.longjiangstone.com/book/a35t6/)
-- [逝水](https://www.longjiangstone.com/book/a2tc1/)
-- [隔壁班的松田君](https://www.longjiangstone.com/book/a2h9n/)
-- [你也没死？](https://www.longjiangstone.com/book/a2e9u/)
-- [误入反派培养直播后](https://www.longjiangstone.com/book/a22i7/)
-- [多梦你一会儿](https://www.longjiangstone.com/book/a1vpn/)
+- [奶奶蛋糕店[美食]](https://www.longjiangstone.com/book/a2th6/)
+- [在立海大玩网球模拟器](https://www.longjiangstone.com/book/a2t7q/)
+- [[全职高手]问就是没钱](https://www.longjiangstone.com/book/a2mi1/)
+- [虫族治愈师，但恐虫](https://www.longjiangstone.com/book/a2i54/)
+- [这谁的沙雕二次元心声！](https://www.longjiangstone.com/book/a2c9m/)
+- [老公是松散生命体](https://www.longjiangstone.com/book/a2a1j/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.longjiangstone.com/book/a201l/)
 - [[足球]罗蜜第一志愿](https://www.longjiangstone.com/book/a1rb2/)
-- [哥你不能不要我](https://www.longjiangstone.com/book/a1apr/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1284/index.md)

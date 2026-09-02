@@ -1,18 +1,16 @@
 
 # 零点看书吧-书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-02 03:25:01
+更新时间：2026-09-03 03:25:02
 
 零点看书吧是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节。作为无弹窗的小说阅读平台，零点看书吧成为网络小说爱好者必备的选择。
 
 - [零点看书吧](https://www.gjnbgb.com/)
 
 ## 最新小说
-- [宠妃岂敢压我！](https://www.gjnbgb.com/book/2s9sufp/)
-- [死遁后，师弟他不哄不停](https://www.gjnbgb.com/book/2s9sufe/)
-- [发家致富小夫郎](https://www.gjnbgb.com/book/2s9smbo/)
-- [假少爷有特殊的算命技巧](https://www.gjnbgb.com/book/2s9sien/)
-- [九零重组小家庭](https://www.gjnbgb.com/book/2s9si0r/)
+- [上个鬼班[无限]](https://www.gjnbgb.com/book/2s9spvi/)
+- [边关小夫郎](https://www.gjnbgb.com/book/2s9smbo/)
+- [[足球]足坛人生模拟器](https://www.gjnbgb.com/book/2s9sijm/)
 - [除病弱万人嫌外全员重生](https://www.gjnbgb.com/book/2s9shma/)
 - [当织田作绑定魅魔系统](https://www.gjnbgb.com/book/2s9shm8/)
 - [婚后矜持](https://www.gjnbgb.com/book/2s9shm6/)
@@ -26,7 +24,6 @@
 - [痴情女配开始放手了（快穿）](https://www.gjnbgb.com/book/2s9shkm/)
 - [[娱乐圈]穿进同人文里哦多尅](https://www.gjnbgb.com/book/2s9shkj/)
 - [败类游戏](https://www.gjnbgb.com/book/2s9shkg/)
-- [乖乖小宝被豪门长兄娇养了](https://www.gjnbgb.com/book/2s9shke/)
 - [始乱终弃高岭之花以后](https://www.gjnbgb.com/book/2s9shka/)
 - [太子哥哥不想当哥哥](https://www.gjnbgb.com/book/2s9shk5/)
 - [昼色清明](https://www.gjnbgb.com/book/2s9shk4/)
@@ -66,11 +63,16 @@
 - [和光太郎谈恋爱](https://www.gjnbgb.com/book/2s9shek/)
 - [无限回档，我把自己刷成了女帝](https://www.gjnbgb.com/book/2s9sheg/)
 - [万人嫌女配深陷修罗场](https://www.gjnbgb.com/book/2s9shee/)
+- [让暴君Alpha怀崽后](https://www.gjnbgb.com/book/2s9sg0q/)
 - [在虫族世界逃命升级](https://www.gjnbgb.com/book/2s9sepf/)
 - [神豪文男主是我爸](https://www.gjnbgb.com/book/2s9sdl2/)
+- [娇美人换嫁七零大佬后](https://www.gjnbgb.com/book/2s9sda4/)
 - [我真的只会Ctrl啊！！！](https://www.gjnbgb.com/book/2s9sbm4/)
 - [从维多利亚时代开始](https://www.gjnbgb.com/book/2s9s5cg/)
+- [昭暮](https://www.gjnbgb.com/book/2s9s1nf/)
 - [反派人生，易如反掌[快穿]](https://www.gjnbgb.com/book/2s9ruvt/)
+- [食明](https://www.gjnbgb.com/book/2s9rmhk/)
+- [诡话第一boss](https://www.gjnbgb.com/book/2s9rjbh/)
 - [摄政王家的咸鱼夫郎](https://www.gjnbgb.com/book/2s9rafb/)
 - [绿叶](https://www.gjnbgb.com/book/2s9r80c/)
 - [枕边热吻](https://www.gjnbgb.com/book/2s9r7gl/)
@@ -79,13 +81,13 @@
 - [寄人篱下](https://www.gjnbgb.com/book/2s9r23c/)
 - [我写小说纯粹为了赚钱](https://www.gjnbgb.com/book/2s9r1kj/)
 - [第一游侠[全息]](https://www.gjnbgb.com/book/2s9r10j/)
-- [始皇闺女躺平失败的日子](https://www.gjnbgb.com/book/2s9r0k1/)
+- [韩团绿卡不想忍了](https://www.gjnbgb.com/book/2s9qtut/)
 - [误标记隔壁阿姨O之后](https://www.gjnbgb.com/book/2s9qtiv/)
 - [十福晋吃瓜日常(清穿)](https://www.gjnbgb.com/book/2s9qolv/)
 - [不当救世主就要当人类恶了吗](https://www.gjnbgb.com/book/2s9qokf/)
 - [当菟丝花要分手后](https://www.gjnbgb.com/book/2s9qo6e/)
-- [[全职高手]霸图老板是叶修](https://www.gjnbgb.com/book/2s9qnee/)
 - [高嫁之后](https://www.gjnbgb.com/book/2s9qn2n/)
+- [社恐直播鉴宝，但带球跑](https://www.gjnbgb.com/book/2s9qmkn/)
 - [当我穿为龙傲天的情敌](https://www.gjnbgb.com/book/2s9qm6f/)
 - [假金丝雀深陷修罗场](https://www.gjnbgb.com/book/2s9qm1a/)
 - [养成游戏，但破解版](https://www.gjnbgb.com/book/2s9qhgv/)
@@ -157,7 +159,6 @@
 - [假少爷不想活了](https://www.gjnbgb.com/book/2s9nop8/)
 - [五十年代港城日常](https://www.gjnbgb.com/book/2s9nooq/)
 - [十九世纪贵族厨房（美食）](https://www.gjnbgb.com/book/2s9nonj/)
-- [御兽师，我打工养你啊](https://www.gjnbgb.com/book/2s9nomf/)
 - [我是唯一地上神国](https://www.gjnbgb.com/book/2s9noil/)
 - [趁她之危](https://www.gjnbgb.com/book/2s9noho/)
 - [千禧年，拆迁分了十栋楼！](https://www.gjnbgb.com/book/2s9nofc/)
@@ -167,7 +168,6 @@
 - [巨物致富：回乡开钓场](https://www.gjnbgb.com/book/2s9nnfo/)
 - [八零恶毒后妈杀疯了](https://www.gjnbgb.com/book/2s9nnee/)
 - [日化人生[科研]](https://www.gjnbgb.com/book/2s9nndn/)
-- [穿成炮灰后我封神了［快穿］](https://www.gjnbgb.com/book/2s9nnai/)
 - [星际团宠小人鱼](https://www.gjnbgb.com/book/2s9nn9s/)
 - [猫猫也要养家糊口](https://www.gjnbgb.com/book/2s9nn7j/)
 ## 相关内容
