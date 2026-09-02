@@ -1,38 +1,38 @@
 
 # 三三言情小说 - 全本网文免费阅读, 最新最热言情故事
 
-更新时间：2026-09-02 03:44:28
+更新时间：2026-09-03 03:44:36
 
 三三言情小说为您提供海量全本完结的言情小说资源，在这里您可以免费在线阅读最新、最受欢迎的爱情故事。无论您是喜欢经典还是追求潮流的新作，我们都有丰富的选择等待着您来探索。
 
 - [三三言情小说](https://www.zhaoxingangjiegou.com/)
 
 ## 最新小说
+- [暴君偏头痛](https://www.zhaoxingangjiegou.com/book/1duot11/)
 - [躲避原书剧情五年后](https://www.zhaoxingangjiegou.com/book/1duot0f/)
 - [井闼山经理每天都被挖墙脚](https://www.zhaoxingangjiegou.com/book/1duosvj/)
 - [阿竹与野桃](https://www.zhaoxingangjiegou.com/book/1duosun/)
 - [失而复得的白月光[快穿]](https://www.zhaoxingangjiegou.com/book/1duosuf/)
+- [[综英美]让我统治哥谭！！！](https://www.zhaoxingangjiegou.com/book/1duosu6/)
 - [被四皇错看成小动物后](https://www.zhaoxingangjiegou.com/book/1duossn/)
 - [星际团宠小人鱼](https://www.zhaoxingangjiegou.com/book/1duoss5/)
-- [原配夫人](https://www.zhaoxingangjiegou.com/book/1duosrl/)
 - [你，后室管理员](https://www.zhaoxingangjiegou.com/book/1duosrb/)
 - [[封神]圣人生欲](https://www.zhaoxingangjiegou.com/book/1duosql/)
-- [高调装神，猥琐发育](https://www.zhaoxingangjiegou.com/book/1duosqh/)
 - [从异世界穿回来后](https://www.zhaoxingangjiegou.com/book/1duosol/)
 - [直男咒术师的限制级游戏](https://www.zhaoxingangjiegou.com/book/1duoso6/)
+- [阴郁路人不想被喜欢](https://www.zhaoxingangjiegou.com/book/1duosnv/)
 - [纯爱宇智波基本恋爱法](https://www.zhaoxingangjiegou.com/book/1duosm1/)
-- [某柯学的正义伙伴](https://www.zhaoxingangjiegou.com/book/1dum22a/)
-- [男朋友买一送一](https://www.zhaoxingangjiegou.com/book/1dulp2n/)
-- [我有嘉宾](https://www.zhaoxingangjiegou.com/book/1duljhl/)
+- [昭暮](https://www.zhaoxingangjiegou.com/book/1duohpd/)
+- [乱步他哥，但武力值max](https://www.zhaoxingangjiegou.com/book/1dulrbu/)
 - [沈助理又在隐藏他的超能力](https://www.zhaoxingangjiegou.com/book/4j4m3p/)
-- [系统不许我摆烂](https://www.zhaoxingangjiegou.com/book/4j4ieb/)
-- [逝水](https://www.zhaoxingangjiegou.com/book/4j49im/)
-- [隔壁班的松田君](https://www.zhaoxingangjiegou.com/book/4j3tt4/)
-- [你也没死？](https://www.zhaoxingangjiegou.com/book/4j3p4s/)
-- [误入反派培养直播后](https://www.zhaoxingangjiegou.com/book/4j3cj1/)
-- [多梦你一会儿](https://www.zhaoxingangjiegou.com/book/4j3aif/)
+- [奶奶蛋糕店[美食]](https://www.zhaoxingangjiegou.com/book/4j4arj/)
+- [在立海大玩网球模拟器](https://www.zhaoxingangjiegou.com/book/4j4al1/)
+- [[全职高手]问就是没钱](https://www.zhaoxingangjiegou.com/book/4j42hu/)
+- [虫族治愈师，但恐虫](https://www.zhaoxingangjiegou.com/book/4j3unp/)
+- [老公是松散生命体](https://www.zhaoxingangjiegou.com/book/4j3no9/)
+- [这谁的沙雕二次元心声！](https://www.zhaoxingangjiegou.com/book/4j3nbb/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.zhaoxingangjiegou.com/book/4j3a9b/)
 - [[足球]罗蜜第一志愿](https://www.zhaoxingangjiegou.com/book/4j3a1m/)
-- [哥你不能不要我](https://www.zhaoxingangjiegou.com/book/4j2m6k/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1289/index.md)

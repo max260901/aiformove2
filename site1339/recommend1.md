@@ -1,16 +1,14 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-09-02 03:39:50
+更新时间：2026-09-03 03:39:55
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。
 
 - [三哥小说网](https://www.wkntmcb.com/)
 
 ## 最新小说
-- [宠妃岂敢压我！](https://www.wkntmcb.com/book/48j2es8/)
-- [死遁后，师弟他不哄不停](https://www.wkntmcb.com/book/48j2es7/)
-- [发家致富小夫郎](https://www.wkntmcb.com/book/48j2es5/)
+- [边关小夫郎](https://www.wkntmcb.com/book/48j2es5/)
 - [我夫君怎会是龙傲天？](https://www.wkntmcb.com/book/48j2e32/)
 - [我要当厨修啊[美食]](https://www.wkntmcb.com/book/48j2e30/)
 - [[原神+崩铁]在提瓦特隐居也未尝不可](https://www.wkntmcb.com/book/48j2e2u/)
@@ -19,7 +17,6 @@
 - [[希腊神话]诸神都是我学生](https://www.wkntmcb.com/book/48j2e2q/)
 - [女先生](https://www.wkntmcb.com/book/48j2e2h/)
 - [昼色清明](https://www.wkntmcb.com/book/48j2e2g/)
-- [乖乖小宝被豪门长兄娇养了](https://www.wkntmcb.com/book/48j2e2c/)
 - [与亡夫春风一度后](https://www.wkntmcb.com/book/48j2e24/)
 - [婚后矜持](https://www.wkntmcb.com/book/48j2e21/)
 - [始乱终弃高岭之花以后](https://www.wkntmcb.com/book/48j2e1v/)
@@ -65,16 +62,21 @@
 - [当织田作绑定魅魔系统](https://www.wkntmcb.com/book/48j2dub/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.wkntmcb.com/book/48j28na/)
 - [我真的只会Ctrl啊！！！](https://www.wkntmcb.com/book/48j24t2/)
+- [上个鬼班[无限]](https://www.wkntmcb.com/book/48j1up0/)
 - [星际团宠小人鱼](https://www.wkntmcb.com/book/48j1tq7/)
+- [让暴君Alpha怀崽后](https://www.wkntmcb.com/book/48j1s7d/)
+- [娇美人换嫁七零大佬后](https://www.wkntmcb.com/book/48j1qmd/)
 - [灭世龙崽有什么错](https://www.wkntmcb.com/book/48j1pja/)
-- [九零重组小家庭](https://www.wkntmcb.com/book/48j1p78/)
-- [假少爷有特殊的算命技巧](https://www.wkntmcb.com/book/48j1n7f/)
+- [[足球]足坛人生模拟器](https://www.wkntmcb.com/book/48j1mfe/)
 - [神豪文男主是我爸](https://www.wkntmcb.com/book/48j1jtl/)
 - [在虫族世界逃命升级](https://www.wkntmcb.com/book/48j1il6/)
 - [趁她之危](https://www.wkntmcb.com/book/48j1gn6/)
+- [昭暮](https://www.wkntmcb.com/book/48j19j2/)
 - [从维多利亚时代开始](https://www.wkntmcb.com/book/48j1915/)
 - [反派人生，易如反掌[快穿]](https://www.wkntmcb.com/book/48j12up/)
 - [假少爷不想活了](https://www.wkntmcb.com/book/48j12li/)
+- [食明](https://www.wkntmcb.com/book/48j0pu6/)
+- [诡话第一boss](https://www.wkntmcb.com/book/48j0mse/)
 - [十九世纪贵族厨房（美食）](https://www.wkntmcb.com/book/48j0lsv/)
 - [春归燕](https://www.wkntmcb.com/book/48j0j81/)
 - [高调装神，猥琐发育](https://www.wkntmcb.com/book/48j0ini/)
@@ -84,7 +86,6 @@
 - [全球进化，而我保持不变](https://www.wkntmcb.com/book/48j04gm/)
 - [寄人篱下](https://www.wkntmcb.com/book/48j039t/)
 - [科学主义魔法学院](https://www.wkntmcb.com/book/48j010f/)
-- [始皇闺女躺平失败的日子](https://www.wkntmcb.com/book/48j00b7/)
 - [绿叶](https://www.wkntmcb.com/book/48ivv12/)
 - [枕边热吻](https://www.wkntmcb.com/book/48ivu4e/)
 - [九零首富的替嫁小媳妇](https://www.wkntmcb.com/book/48ivth2/)
@@ -94,7 +95,7 @@
 - [当我穿为龙傲天的情敌](https://www.wkntmcb.com/book/48ivpgq/)
 - [误标记隔壁阿姨O之后](https://www.wkntmcb.com/book/48ivp48/)
 - [不当救世主就要当人类恶了吗](https://www.wkntmcb.com/book/48ivp0u/)
-- [[全职高手]霸图老板是叶修](https://www.wkntmcb.com/book/48ivob1/)
+- [社恐直播鉴宝，但带球跑](https://www.wkntmcb.com/book/48ivn4e/)
 - [假金丝雀深陷修罗场](https://www.wkntmcb.com/book/48ivivp/)
 - [在民俗惊悚片被诸神庇护](https://www.wkntmcb.com/book/48ivipt/)
 - [养成游戏，但破解版](https://www.wkntmcb.com/book/48ivhsc/)
@@ -125,6 +126,7 @@
 - [重临巅峰[花滑]](https://www.wkntmcb.com/book/48iujqv/)
 - [漫漫仙途](https://www.wkntmcb.com/book/48iujop/)
 - [你是我的根目录](https://www.wkntmcb.com/book/48iui7g/)
+- [韩团绿卡不想忍了](https://www.wkntmcb.com/book/48iui3d/)
 - [[综港影]野生情人出没地](https://www.wkntmcb.com/book/48iuhij/)
 - [[综英美]让我统治哥谭！！！](https://www.wkntmcb.com/book/48iuer6/)
 - [直男误入攻略天龙人游戏](https://www.wkntmcb.com/book/48iueph/)
@@ -156,7 +158,6 @@
 - [95美国贵族高中模拟](https://www.wkntmcb.com/book/48istaj/)
 - [我不是御兽大师](https://www.wkntmcb.com/book/48ist9s/)
 - [六零之成了卷王的妹妹](https://www.wkntmcb.com/book/48ist96/)
-- [御兽师，我打工养你啊](https://www.wkntmcb.com/book/48ist8h/)
 - [高门小婢](https://www.wkntmcb.com/book/48issub/)
 - [巨物致富：回乡开钓场](https://www.wkntmcb.com/book/48issh3/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.wkntmcb.com/book/48issdk/)
@@ -168,7 +169,6 @@
 - [全民求生:从小木屋到魔法农场](https://www.wkntmcb.com/book/48isrp5/)
 - [古代种田养娃日常](https://www.wkntmcb.com/book/48isr85/)
 - [五十年代港城日常](https://www.wkntmcb.com/book/48isqtt/)
-- [穿成炮灰后我封神了［快穿］](https://www.wkntmcb.com/book/48isqoi/)
 - [绝不会喜欢五条君的！](https://www.wkntmcb.com/book/48isqmt/)
 ## 相关内容
 - [README](/README.md)

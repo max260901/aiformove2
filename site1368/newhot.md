@@ -1,7 +1,7 @@
 
 # 探秘书院-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-02 03:37:48
+更新时间：2026-09-03 03:37:53
 
 探秘书院提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
@@ -10,38 +10,37 @@
 ## 最新小说
 - [阿竹与野桃](https://www.tanmi918.com/book/80r4gc5/)
 - [从异世界穿回来后](https://www.tanmi918.com/book/80r4c0l/)
-- [我有嘉宾](https://www.tanmi918.com/book/80r4bo0/)
+- [昭暮](https://www.tanmi918.com/book/80r3knt/)
 - [星际团宠小人鱼](https://www.tanmi918.com/book/80r3h49/)
 - [你，后室管理员](https://www.tanmi918.com/book/80r3gsm/)
-- [原配夫人](https://www.tanmi918.com/book/80r3gqk/)
-- [高调装神，猥琐发育](https://www.tanmi918.com/book/80r3a1i/)
-- [男朋友买一送一](https://www.tanmi918.com/book/80r2viq/)
+- [乱步他哥，但武力值max](https://www.tanmi918.com/book/80r31c6/)
 - [失而复得的白月光[快穿]](https://www.tanmi918.com/book/80r2q39/)
 - [躲避原书剧情五年后](https://www.tanmi918.com/book/80r2nsi/)
-- [如何正确哄睡暴君](https://www.tanmi918.com/book/80r2n9v/)
-- [逝水](https://www.tanmi918.com/book/80r2fac/)
-- [你也没死？](https://www.tanmi918.com/book/80r2f2j/)
-- [我不可能舔一个漂亮捞子](https://www.tanmi918.com/book/80r2e47/)
 - [沈助理又在隐藏他的超能力](https://www.tanmi918.com/book/80r28co/)
 - [被鬼怪宠爱的漂亮书生](https://www.tanmi918.com/book/80r28be/)
+- [老公是松散生命体](https://www.tanmi918.com/book/80r27r9/)
 - [微臣怜惜公主](https://www.tanmi918.com/book/80r26hk/)
-- [系统不许我摆烂](https://www.tanmi918.com/book/80r21f3/)
-- [误入反派培养直播后](https://www.tanmi918.com/book/80r1sso/)
-- [哥你不能不要我](https://www.tanmi918.com/book/80r1n3e/)
-- [多梦你一会儿](https://www.tanmi918.com/book/80r1lm6/)
+- [亚当斯与韦恩的适配性](https://www.tanmi918.com/book/80r1tam/)
+- [大美人怀了enigma上司的崽](https://www.tanmi918.com/book/80r1qpq/)
+- [在立海大玩网球模拟器](https://www.tanmi918.com/book/80r1pi9/)
+- [奶奶蛋糕店[美食]](https://www.tanmi918.com/book/80r1n85/)
+- [[综英美]让我统治哥谭！！！](https://www.tanmi918.com/book/80r1mak/)
 - [被四皇错看成小动物后](https://www.tanmi918.com/book/80r1l9m/)
 - [炮灰的我该如何上位？](https://www.tanmi918.com/book/80r1l78/)
 - [[封神]圣人生欲](https://www.tanmi918.com/book/80r1l4q/)
-- [隔壁班的松田君](https://www.tanmi918.com/book/80r1ff7/)
+- [[全职高手]问就是没钱](https://www.tanmi918.com/book/80r1kif/)
+- [这谁的沙雕二次元心声！](https://www.tanmi918.com/book/80r1jhn/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.tanmi918.com/book/80r1ijf/)
 - [[足球]罗蜜第一志愿](https://www.tanmi918.com/book/80r1f5n/)
-- [某柯学的正义伙伴](https://www.tanmi918.com/book/80r1ccn/)
+- [虫族治愈师，但恐虫](https://www.tanmi918.com/book/80r1etc/)
 - [井闼山经理每天都被挖墙脚](https://www.tanmi918.com/book/80r1ao6/)
 - [[足球]小小鸟堂堂来袭](https://www.tanmi918.com/book/80r114k/)
 - [法外狂猫](https://www.tanmi918.com/book/80r0sdq/)
 - [好兄弟暴富后非要跟我结婚](https://www.tanmi918.com/book/80r0rdj/)
-- [侯府打工人](https://www.tanmi918.com/book/80r0quu/)
-- [我，剑圣，养生中，勿扰](https://www.tanmi918.com/book/80r0qka/)
+- [关于我虚构了一个男友这件事](https://www.tanmi918.com/book/80r0pll/)
+- [暴君偏头痛](https://www.tanmi918.com/book/80r0ht4/)
 - [和室友他爸恋爱后](https://www.tanmi918.com/book/80r0g7g/)
+- [阴郁路人不想被喜欢](https://www.tanmi918.com/book/80qv9pr/)
 - [纯爱宇智波基本恋爱法](https://www.tanmi918.com/book/80qv954/)
 - [直男咒术师的限制级游戏](https://www.tanmi918.com/book/80qv8ut/)
 ## 相关内容
