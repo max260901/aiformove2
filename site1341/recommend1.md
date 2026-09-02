@@ -1,16 +1,14 @@
 
 # 春日书屋-免费热门小说在线阅读平台|晋江文学|全本免费畅读
 
-更新时间：2026-09-02 03:35:05
+更新时间：2026-09-03 03:35:08
 
 春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！
 
 - [春日书屋小说](https://www.shenyuanhg.com/)
 
 ## 最新小说
-- [死遁后，师弟他不哄不停](https://www.shenyuanhg.com/book/7gie9du/)
-- [宠妃岂敢压我！](https://www.shenyuanhg.com/book/7gie9dt/)
-- [发家致富小夫郎](https://www.shenyuanhg.com/book/7gie9dr/)
+- [边关小夫郎](https://www.shenyuanhg.com/book/7gie9dr/)
 - [身为人造人的我梦想是成为救世主](https://www.shenyuanhg.com/book/7gie8kn/)
 - [欢迎来到纳萨力克丧葬公司](https://www.shenyuanhg.com/book/7gie8kl/)
 - [我夫君怎会是龙傲天？](https://www.shenyuanhg.com/book/7gie8kj/)
@@ -25,7 +23,6 @@
 - [暴君偏头痛](https://www.shenyuanhg.com/book/7gie8jd/)
 - [水管工[GB]](https://www.shenyuanhg.com/book/7gie8jc/)
 - [炮灰丫鬟靠签到躺赢了](https://www.shenyuanhg.com/book/7gie8jb/)
-- [乖乖小宝被豪门长兄娇养了](https://www.shenyuanhg.com/book/7gie8j8/)
 - [九十年代从军记](https://www.shenyuanhg.com/book/7gie8j4/)
 - [[足球]顶级名帅](https://www.shenyuanhg.com/book/7gie8j2/)
 - [氪金游戏，从养成林太郎开始](https://www.shenyuanhg.com/book/7gie8j0/)
@@ -65,16 +62,21 @@
 - [我的烧烤摊超美味[美食]](https://www.shenyuanhg.com/book/7gie8g0/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.shenyuanhg.com/book/7gie38u/)
 - [我真的只会Ctrl啊！！！](https://www.shenyuanhg.com/book/7gidvfm/)
+- [上个鬼班[无限]](https://www.shenyuanhg.com/book/7gidpa7/)
 - [星际团宠小人鱼](https://www.shenyuanhg.com/book/7gido92/)
+- [让暴君Alpha怀崽后](https://www.shenyuanhg.com/book/7gidmqc/)
+- [娇美人换嫁七零大佬后](https://www.shenyuanhg.com/book/7gidl6b/)
 - [灭世龙崽有什么错](https://www.shenyuanhg.com/book/7gidk7h/)
-- [九零重组小家庭](https://www.shenyuanhg.com/book/7gidjpq/)
-- [假少爷有特殊的算命技巧](https://www.shenyuanhg.com/book/7gidhsk/)
+- [[足球]足坛人生模拟器](https://www.shenyuanhg.com/book/7gidh1c/)
 - [神豪文男主是我爸](https://www.shenyuanhg.com/book/7gideh3/)
 - [在虫族世界逃命升级](https://www.shenyuanhg.com/book/7gidd5e/)
 - [趁她之危](https://www.shenyuanhg.com/book/7gidb53/)
+- [昭暮](https://www.shenyuanhg.com/book/7gid43p/)
 - [从维多利亚时代开始](https://www.shenyuanhg.com/book/7gid3gl/)
 - [反派人生，易如反掌[快穿]](https://www.shenyuanhg.com/book/7gictgf/)
 - [假少爷不想活了](https://www.shenyuanhg.com/book/7gict1j/)
+- [食明](https://www.shenyuanhg.com/book/7gickgh/)
+- [诡话第一boss](https://www.shenyuanhg.com/book/7gichfp/)
 - [十九世纪贵族厨房（美食）](https://www.shenyuanhg.com/book/7gicen4/)
 - [春归燕](https://www.shenyuanhg.com/book/7gicebi/)
 - [高调装神，猥琐发育](https://www.shenyuanhg.com/book/7giccbi/)
@@ -85,7 +87,6 @@
 - [寄人篱下](https://www.shenyuanhg.com/book/7gibt1i/)
 - [绿叶](https://www.shenyuanhg.com/book/7gibq8i/)
 - [科学主义魔法学院](https://www.shenyuanhg.com/book/7gibpu0/)
-- [始皇闺女躺平失败的日子](https://www.shenyuanhg.com/book/7gibphs/)
 - [我写小说纯粹为了赚钱](https://www.shenyuanhg.com/book/7gibom5/)
 - [九零首富的替嫁小媳妇](https://www.shenyuanhg.com/book/7gibn9p/)
 - [枕边热吻](https://www.shenyuanhg.com/book/7gibmap/)
@@ -94,7 +95,7 @@
 - [误标记隔壁阿姨O之后](https://www.shenyuanhg.com/book/7gibku6/)
 - [十福晋吃瓜日常(清穿)](https://www.shenyuanhg.com/book/7gibkkq/)
 - [当我穿为龙傲天的情敌](https://www.shenyuanhg.com/book/7gibkjj/)
-- [[全职高手]霸图老板是叶修](https://www.shenyuanhg.com/book/7gibgrt/)
+- [社恐直播鉴宝，但带球跑](https://www.shenyuanhg.com/book/7gibi4g/)
 - [假金丝雀深陷修罗场](https://www.shenyuanhg.com/book/7gibdtr/)
 - [当菟丝花要分手后](https://www.shenyuanhg.com/book/7gibcs6/)
 - [养成游戏，但破解版](https://www.shenyuanhg.com/book/7gibchi/)
@@ -125,6 +126,7 @@
 - [漫漫仙途](https://www.shenyuanhg.com/book/7giadn3/)
 - [魔尊和仙帝共坠爱河之后](https://www.shenyuanhg.com/book/7giadb7/)
 - [你是我的根目录](https://www.shenyuanhg.com/book/7giad7m/)
+- [韩团绿卡不想忍了](https://www.shenyuanhg.com/book/7giabok/)
 - [[综港影]野生情人出没地](https://www.shenyuanhg.com/book/7giaarc/)
 - [[综英美]让我统治哥谭！！！](https://www.shenyuanhg.com/book/7gia9oi/)
 - [直男误入攻略天龙人游戏](https://www.shenyuanhg.com/book/7gia7u6/)
@@ -149,7 +151,6 @@
 - [把清冷权臣调成荡夫后](https://www.shenyuanhg.com/book/7gi9jh5/)
 - [[群穿]我在御兽番抢人气](https://www.shenyuanhg.com/book/7gi9g85/)
 - [日化人生[科研]](https://www.shenyuanhg.com/book/7gi8oc6/)
-- [穿成炮灰后我封神了［快穿］](https://www.shenyuanhg.com/book/7gi8o7v/)
 - [五十年代港城日常](https://www.shenyuanhg.com/book/7gi8o7t/)
 - [95美国贵族高中模拟](https://www.shenyuanhg.com/book/7gi8o3e/)
 - [[娱乐圈]过分美丽的她](https://www.shenyuanhg.com/book/7gi8nuu/)
@@ -169,7 +170,6 @@
 - [我是唯一地上神国](https://www.shenyuanhg.com/book/7gi8mac/)
 - [成为养成系练习生后](https://www.shenyuanhg.com/book/7gi8m6o/)
 - [大瑛弟国](https://www.shenyuanhg.com/book/7gi8lpk/)
-- [御兽师，我打工养你啊](https://www.shenyuanhg.com/book/7gi8lp4/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1341/index.md)

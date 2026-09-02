@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-09-02 03:44:11
+更新时间：2026-09-03 03:44:19
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
@@ -9,29 +9,29 @@
 
 ## 最新小说
 - [从异世界穿回来后](https://www.yumin66.com/book/5q5nbe/)
+- [[综英美]让我统治哥谭！！！](https://www.yumin66.com/book/5q5nav/)
 - [井闼山经理每天都被挖墙脚](https://www.yumin66.com/book/5q5nak/)
+- [暴君偏头痛](https://www.yumin66.com/book/5q5n9i/)
 - [阿竹与野桃](https://www.yumin66.com/book/5q5n90/)
 - [躲避原书剧情五年后](https://www.yumin66.com/book/5q5n8r/)
 - [[封神]圣人生欲](https://www.yumin66.com/book/5q5n5t/)
 - [你，后室管理员](https://www.yumin66.com/book/5q5n5l/)
-- [原配夫人](https://www.yumin66.com/book/5q5n5b/)
 - [星际团宠小人鱼](https://www.yumin66.com/book/5q5n58/)
 - [被四皇错看成小动物后](https://www.yumin66.com/book/5q5n53/)
-- [高调装神，猥琐发育](https://www.yumin66.com/book/5q5n4h/)
 - [直男咒术师的限制级游戏](https://www.yumin66.com/book/5q5n44/)
+- [阴郁路人不想被喜欢](https://www.yumin66.com/book/5q5n20/)
 - [纯爱宇智波基本恋爱法](https://www.yumin66.com/book/5q5n0g/)
-- [某柯学的正义伙伴](https://www.yumin66.com/book/5q2uti/)
-- [男朋友买一送一](https://www.yumin66.com/book/5q2k43/)
-- [我有嘉宾](https://www.yumin66.com/book/5q2ejg/)
+- [昭暮](https://www.yumin66.com/book/5q5c2s/)
+- [乱步他哥，但武力值max](https://www.yumin66.com/book/5q2na6/)
 - [沈助理又在隐藏他的超能力](https://www.yumin66.com/book/ilsr7/)
-- [系统不许我摆烂](https://www.yumin66.com/book/ilq87/)
-- [逝水](https://www.yumin66.com/book/ilifj/)
-- [隔壁班的松田君](https://www.yumin66.com/book/il66k/)
-- [你也没死？](https://www.yumin66.com/book/il4h3/)
-- [误入反派培养直播后](https://www.yumin66.com/book/ikkeb/)
-- [多梦你一会儿](https://www.yumin66.com/book/ikk5b/)
+- [在立海大玩网球模拟器](https://www.yumin66.com/book/iliak/)
+- [奶奶蛋糕店[美食]](https://www.yumin66.com/book/ilh01/)
+- [[全职高手]问就是没钱](https://www.yumin66.com/book/ilbut/)
+- [虫族治愈师，但恐虫](https://www.yumin66.com/book/il56p/)
+- [这谁的沙雕二次元心声！](https://www.yumin66.com/book/il1eo/)
+- [老公是松散生命体](https://www.yumin66.com/book/ikvsh/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.yumin66.com/book/ikll5/)
 - [[足球]罗蜜第一志愿](https://www.yumin66.com/book/ikgn3/)
-- [哥你不能不要我](https://www.yumin66.com/book/ijvg6/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1292/index.md)

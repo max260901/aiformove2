@@ -1,21 +1,18 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-09-02 03:27:41
+更新时间：2026-09-03 03:27:43
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。
 
 - [奇书网](https://www.jxbfsz.com/)
 
 ## 最新小说
-- [死遁后，师弟他不哄不停](https://www.jxbfsz.com/book/29i1p5q/)
-- [宠妃岂敢压我！](https://www.jxbfsz.com/book/29i1p5p/)
-- [发家致富小夫郎](https://www.jxbfsz.com/book/29i1p5n/)
+- [边关小夫郎](https://www.jxbfsz.com/book/29i1p5n/)
 - [渡鬼](https://www.jxbfsz.com/book/29i1oci/)
 - [我们生活玩家是这样的](https://www.jxbfsz.com/book/29i1oce/)
 - [九十年代从军记](https://www.jxbfsz.com/book/29i1occ/)
 - [女先生](https://www.jxbfsz.com/book/29i1oca/)
-- [乖乖小宝被豪门长兄娇养了](https://www.jxbfsz.com/book/29i1oc9/)
 - [卡尔蜜拉也能成为特利迦白月光？](https://www.jxbfsz.com/book/29i1oc7/)
 - [败类游戏](https://www.jxbfsz.com/book/29i1oc3/)
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.jxbfsz.com/book/29i1oc0/)
@@ -65,16 +62,21 @@
 - [我的NPC队友全是火影天花板](https://www.jxbfsz.com/book/29i1o80/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.jxbfsz.com/book/29i1j11/)
 - [我真的只会Ctrl啊！！！](https://www.jxbfsz.com/book/29i1f58/)
+- [上个鬼班[无限]](https://www.jxbfsz.com/book/29i190q/)
 - [星际团宠小人鱼](https://www.jxbfsz.com/book/29i17vc/)
+- [让暴君Alpha怀崽后](https://www.jxbfsz.com/book/29i16it/)
+- [娇美人换嫁七零大佬后](https://www.jxbfsz.com/book/29i150m/)
 - [灭世龙崽有什么错](https://www.jxbfsz.com/book/29i140s/)
-- [九零重组小家庭](https://www.jxbfsz.com/book/29i13j5/)
-- [假少爷有特殊的算命技巧](https://www.jxbfsz.com/book/29i11h0/)
+- [[足球]足坛人生模拟器](https://www.jxbfsz.com/book/29i10pe/)
 - [神豪文男主是我爸](https://www.jxbfsz.com/book/29i0ubo/)
 - [在虫族世界逃命升级](https://www.jxbfsz.com/book/29i0t0f/)
 - [趁她之危](https://www.jxbfsz.com/book/29i0qqn/)
+- [昭暮](https://www.jxbfsz.com/book/29i0k0f/)
 - [从维多利亚时代开始](https://www.jxbfsz.com/book/29i0j9d/)
 - [反派人生，易如反掌[快穿]](https://www.jxbfsz.com/book/29i0d03/)
 - [假少爷不想活了](https://www.jxbfsz.com/book/29i0cq6/)
+- [食明](https://www.jxbfsz.com/book/29i04ef/)
+- [诡话第一boss](https://www.jxbfsz.com/book/29i016g/)
 - [十九世纪贵族厨房（美食）](https://www.jxbfsz.com/book/29hvu8o/)
 - [春归燕](https://www.jxbfsz.com/book/29hvtpp/)
 - [高调装神，猥琐发育](https://www.jxbfsz.com/book/29hvs6r/)
@@ -85,7 +87,6 @@
 - [寄人篱下](https://www.jxbfsz.com/book/29hvedm/)
 - [绿叶](https://www.jxbfsz.com/book/29hvag7/)
 - [科学主义魔法学院](https://www.jxbfsz.com/book/29hv9ng/)
-- [始皇闺女躺平失败的日子](https://www.jxbfsz.com/book/29hv9gm/)
 - [枕边热吻](https://www.jxbfsz.com/book/29hv8q1/)
 - [九零首富的替嫁小媳妇](https://www.jxbfsz.com/book/29hv7co/)
 - [我写小说纯粹为了赚钱](https://www.jxbfsz.com/book/29hv78j/)
@@ -94,7 +95,7 @@
 - [当我穿为龙傲天的情敌](https://www.jxbfsz.com/book/29hv4t3/)
 - [误标记隔壁阿姨O之后](https://www.jxbfsz.com/book/29hv3rn/)
 - [不当救世主就要当人类恶了吗](https://www.jxbfsz.com/book/29hv3l4/)
-- [[全职高手]霸图老板是叶修](https://www.jxbfsz.com/book/29hv0de/)
+- [社恐直播鉴宝，但带球跑](https://www.jxbfsz.com/book/29hv2mb/)
 - [假金丝雀深陷修罗场](https://www.jxbfsz.com/book/29huvqo/)
 - [在民俗惊悚片被诸神庇护](https://www.jxbfsz.com/book/29hussh/)
 - [养成游戏，但破解版](https://www.jxbfsz.com/book/29hur70/)
@@ -126,6 +127,7 @@
 - [漫漫仙途](https://www.jxbfsz.com/book/29htt04/)
 - [你是我的根目录](https://www.jxbfsz.com/book/29htqpf/)
 - [[综港影]野生情人出没地](https://www.jxbfsz.com/book/29htqk0/)
+- [韩团绿卡不想忍了](https://www.jxbfsz.com/book/29htq3g/)
 - [[综英美]让我统治哥谭！！！](https://www.jxbfsz.com/book/29htq00/)
 - [直男误入攻略天龙人游戏](https://www.jxbfsz.com/book/29hto1i/)
 - [迟晚](https://www.jxbfsz.com/book/29htmff/)
@@ -153,7 +155,6 @@
 - [猫猫也要养家糊口](https://www.jxbfsz.com/book/29hs7lm/)
 - [海岛求生：生活玩家种田囤货](https://www.jxbfsz.com/book/29hs7bn/)
 - [我是唯一地上神国](https://www.jxbfsz.com/book/29hs78i/)
-- [穿成炮灰后我封神了［快穿］](https://www.jxbfsz.com/book/29hs784/)
 - [我有一座安全城](https://www.jxbfsz.com/book/29hs76u/)
 - [大瑛弟国](https://www.jxbfsz.com/book/29hs702/)
 - [[娱乐圈]过分美丽的她](https://www.jxbfsz.com/book/29hs6vo/)
@@ -169,7 +170,6 @@
 - [五十年代港城日常](https://www.jxbfsz.com/book/29hs5bk/)
 - [95美国贵族高中模拟](https://www.jxbfsz.com/book/29hs578/)
 - [全民求生:从小木屋到魔法农场](https://www.jxbfsz.com/book/29hs53d/)
-- [御兽师，我打工养你啊](https://www.jxbfsz.com/book/29hs531/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1335/index.md)

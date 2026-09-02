@@ -1,7 +1,7 @@
 
 # 泡泡中文书社-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-02 03:36:36
+更新时间：2026-09-03 03:36:40
 
 泡泡中文书社是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -10,39 +10,38 @@
 ## 最新小说
 - [阿竹与野桃](https://www.shushe818.com/book/29bboud/)
 - [从异世界穿回来后](https://www.shushe818.com/book/29bbkk4/)
-- [我有嘉宾](https://www.shushe818.com/book/29bbkde/)
+- [昭暮](https://www.shushe818.com/book/29batkp/)
 - [你，后室管理员](https://www.shushe818.com/book/29baprb/)
-- [原配夫人](https://www.shushe818.com/book/29bapj9/)
 - [星际团宠小人鱼](https://www.shushe818.com/book/29baph2/)
-- [高调装神，猥琐发育](https://www.shushe818.com/book/29baim3/)
-- [男朋友买一送一](https://www.shushe818.com/book/29ba6rq/)
+- [乱步他哥，但武力值max](https://www.shushe818.com/book/29baa0t/)
 - [失而复得的白月光[快穿]](https://www.shushe818.com/book/29ba3dv/)
 - [躲避原书剧情五年后](https://www.shushe818.com/book/29b9vbj/)
-- [如何正确哄睡暴君](https://www.shushe818.com/book/29b9uo9/)
-- [逝水](https://www.shushe818.com/book/29b9nak/)
-- [你也没死？](https://www.shushe818.com/book/29b9mb9/)
-- [我不可能舔一个漂亮捞子](https://www.shushe818.com/book/29b9lvm/)
 - [被鬼怪宠爱的漂亮书生](https://www.shushe818.com/book/29b9huc/)
+- [老公是松散生命体](https://www.shushe818.com/book/29b9htf/)
 - [沈助理又在隐藏他的超能力](https://www.shushe818.com/book/29b9fq5/)
 - [微臣怜惜公主](https://www.shushe818.com/book/29b9ese/)
-- [系统不许我摆烂](https://www.shushe818.com/book/29b9an5/)
-- [误入反派培养直播后](https://www.shushe818.com/book/29b961s/)
-- [多梦你一会儿](https://www.shushe818.com/book/29b90fl/)
-- [哥你不能不要我](https://www.shushe818.com/book/29b905u/)
+- [亚当斯与韦恩的适配性](https://www.shushe818.com/book/29b9534/)
+- [在立海大玩网球模拟器](https://www.shushe818.com/book/29b9313/)
+- [大美人怀了enigma上司的崽](https://www.shushe818.com/book/29b90mb/)
 - [炮灰的我该如何上位？](https://www.shushe818.com/book/29b8vua/)
+- [奶奶蛋糕店[美食]](https://www.shushe818.com/book/29b8vr0/)
 - [[封神]圣人生欲](https://www.shushe818.com/book/29b8vao/)
+- [[综英美]让我统治哥谭！！！](https://www.shushe818.com/book/29b8uhh/)
 - [被四皇错看成小动物后](https://www.shushe818.com/book/29b8tu9/)
-- [隔壁班的松田君](https://www.shushe818.com/book/29b8qjo/)
-- [某柯学的正义伙伴](https://www.shushe818.com/book/29b8lv6/)
+- [这谁的沙雕二次元心声！](https://www.shushe818.com/book/29b8t9j/)
+- [[全职高手]问就是没钱](https://www.shushe818.com/book/29b8s2o/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.shushe818.com/book/29b8r3h/)
 - [[足球]罗蜜第一志愿](https://www.shushe818.com/book/29b8lkj/)
+- [虫族治愈师，但恐虫](https://www.shushe818.com/book/29b8lfa/)
 - [井闼山经理每天都被挖墙脚](https://www.shushe818.com/book/29b8k87/)
 - [[足球]小小鸟堂堂来袭](https://www.shushe818.com/book/29b8b49/)
-- [侯府打工人](https://www.shushe818.com/book/29b852b/)
 - [法外狂猫](https://www.shushe818.com/book/29b84u0/)
 - [好兄弟暴富后非要跟我结婚](https://www.shushe818.com/book/29b84n7/)
-- [我，剑圣，养生中，勿扰](https://www.shushe818.com/book/29b82bo/)
+- [关于我虚构了一个男友这件事](https://www.shushe818.com/book/29b81ek/)
+- [暴君偏头痛](https://www.shushe818.com/book/29b7t36/)
 - [和室友他爸恋爱后](https://www.shushe818.com/book/29b7pmk/)
 - [直男咒术师的限制级游戏](https://www.shushe818.com/book/29b6jqj/)
+- [阴郁路人不想被喜欢](https://www.shushe818.com/book/29b6j7m/)
 - [纯爱宇智波基本恋爱法](https://www.shushe818.com/book/29b6hqn/)
 ## 相关内容
 - [README](/README.md)

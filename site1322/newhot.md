@@ -1,7 +1,7 @@
 
 # 文学小说网手机版_好看的文学小说TXT下载,无弹窗手机小说网
 
-更新时间：2026-09-02 03:39:02
+更新时间：2026-09-03 03:39:07
 
 文学小说网收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者最值得收藏的网络小说阅读网,精彩小说尽在文学小说网(无弹窗小说网)。
 
@@ -11,28 +11,28 @@
 - [从异世界穿回来后](https://www.wenxue521.com/book/93olshq/)
 - [躲避原书剧情五年后](https://www.wenxue521.com/book/93olshp/)
 - [阿竹与野桃](https://www.wenxue521.com/book/93olsha/)
+- [[综英美]让我统治哥谭！！！](https://www.wenxue521.com/book/93olsg3/)
 - [失而复得的白月光[快穿]](https://www.wenxue521.com/book/93olsfu/)
 - [井闼山经理每天都被挖墙脚](https://www.wenxue521.com/book/93olsf8/)
+- [暴君偏头痛](https://www.wenxue521.com/book/93olsev/)
 - [你，后室管理员](https://www.wenxue521.com/book/93olscq/)
 - [被四皇错看成小动物后](https://www.wenxue521.com/book/93olsci/)
 - [星际团宠小人鱼](https://www.wenxue521.com/book/93olsc5/)
 - [[封神]圣人生欲](https://www.wenxue521.com/book/93olsba/)
-- [原配夫人](https://www.wenxue521.com/book/93olsb6/)
-- [高调装神，猥琐发育](https://www.wenxue521.com/book/93olsaf/)
 - [直男咒术师的限制级游戏](https://www.wenxue521.com/book/93ols9s/)
 - [纯爱宇智波基本恋爱法](https://www.wenxue521.com/book/93ols72/)
-- [某柯学的正义伙伴](https://www.wenxue521.com/book/93oj3l9/)
-- [男朋友买一送一](https://www.wenxue521.com/book/93oiphh/)
-- [我有嘉宾](https://www.wenxue521.com/book/93oihaa/)
+- [阴郁路人不想被喜欢](https://www.wenxue521.com/book/93ols6h/)
+- [昭暮](https://www.wenxue521.com/book/93olh8o/)
+- [乱步他哥，但武力值max](https://www.wenxue521.com/book/93oirti/)
 - [沈助理又在隐藏他的超能力](https://www.wenxue521.com/book/t5nj0r/)
-- [系统不许我摆烂](https://www.wenxue521.com/book/t5nf14/)
-- [逝水](https://www.wenxue521.com/book/t5n5e3/)
-- [隔壁班的松田君](https://www.wenxue521.com/book/t5mqkc/)
-- [你也没死？](https://www.wenxue521.com/book/t5mmtf/)
-- [多梦你一会儿](https://www.wenxue521.com/book/t5m9h9/)
-- [误入反派培养直播后](https://www.wenxue521.com/book/t5m6s8/)
+- [在立海大玩网球模拟器](https://www.wenxue521.com/book/t5n72a/)
+- [奶奶蛋糕店[美食]](https://www.wenxue521.com/book/t5n671/)
+- [[全职高手]问就是没钱](https://www.wenxue521.com/book/t5n17d/)
+- [虫族治愈师，但恐虫](https://www.wenxue521.com/book/t5mrbi/)
+- [这谁的沙雕二次元心声！](https://www.wenxue521.com/book/t5mjaj/)
+- [老公是松散生命体](https://www.wenxue521.com/book/t5mit0/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.wenxue521.com/book/t5m8s5/)
 - [[足球]罗蜜第一志愿](https://www.wenxue521.com/book/t5m68n/)
-- [哥你不能不要我](https://www.wenxue521.com/book/t5lihi/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1322/index.md)

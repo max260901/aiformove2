@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-09-02 03:24:13
+更新时间：2026-09-03 03:24:14
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -9,30 +9,30 @@
 
 ## 最新小说
 - [阿竹与野桃](https://www.duzhe888.com/book/2koepdi/)
+- [暴君偏头痛](https://www.duzhe888.com/book/2koepcf/)
 - [井闼山经理每天都被挖墙脚](https://www.duzhe888.com/book/2koepbg/)
 - [躲避原书剧情五年后](https://www.duzhe888.com/book/2koepb4/)
+- [[综英美]让我统治哥谭！！！](https://www.duzhe888.com/book/2koepb2/)
 - [失而复得的白月光[快穿]](https://www.duzhe888.com/book/2koep9b/)
 - [星际团宠小人鱼](https://www.duzhe888.com/book/2koep8p/)
 - [被四皇错看成小动物后](https://www.duzhe888.com/book/2koep7t/)
-- [原配夫人](https://www.duzhe888.com/book/2koep7k/)
 - [你，后室管理员](https://www.duzhe888.com/book/2koep6v/)
 - [[封神]圣人生欲](https://www.duzhe888.com/book/2koep6l/)
-- [高调装神，猥琐发育](https://www.duzhe888.com/book/2koep6g/)
+- [阴郁路人不想被喜欢](https://www.duzhe888.com/book/2koep5s/)
 - [从异世界穿回来后](https://www.duzhe888.com/book/2koep4m/)
 - [直男咒术师的限制级游戏](https://www.duzhe888.com/book/2koep4k/)
 - [纯爱宇智波基本恋爱法](https://www.duzhe888.com/book/2koep3s/)
-- [某柯学的正义伙伴](https://www.duzhe888.com/book/2kobv8u/)
-- [男朋友买一送一](https://www.duzhe888.com/book/2kobkku/)
-- [我有嘉宾](https://www.duzhe888.com/book/2kobft7/)
+- [昭暮](https://www.duzhe888.com/book/2koee6e/)
+- [乱步他哥，但武力值max](https://www.duzhe888.com/book/2kobpam/)
 - [沈助理又在隐藏他的超能力](https://www.duzhe888.com/book/8f9v0q/)
-- [系统不许我摆烂](https://www.duzhe888.com/book/8f9uas/)
-- [逝水](https://www.duzhe888.com/book/8f9nln/)
-- [隔壁班的松田君](https://www.duzhe888.com/book/8f9c9g/)
-- [你也没死？](https://www.duzhe888.com/book/8f94g7/)
-- [误入反派培养直播后](https://www.duzhe888.com/book/8f8ogo/)
+- [奶奶蛋糕店[美食]](https://www.duzhe888.com/book/8f9m7e/)
+- [在立海大玩网球模拟器](https://www.duzhe888.com/book/8f9k1m/)
+- [[全职高手]问就是没钱](https://www.duzhe888.com/book/8f9h23/)
+- [虫族治愈师，但恐虫](https://www.duzhe888.com/book/8f9bp3/)
+- [这谁的沙雕二次元心声！](https://www.duzhe888.com/book/8f94rd/)
+- [老公是松散生命体](https://www.duzhe888.com/book/8f92ac/)
 - [[足球]罗蜜第一志愿](https://www.duzhe888.com/book/8f8nmm/)
-- [多梦你一会儿](https://www.duzhe888.com/book/8f8mep/)
-- [哥你不能不要我](https://www.duzhe888.com/book/8f81ui/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.duzhe888.com/book/8f8lrl/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1321/index.md)
