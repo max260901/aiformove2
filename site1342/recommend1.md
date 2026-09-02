@@ -1,16 +1,14 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-09-02 03:21:06
+更新时间：2026-09-03 03:21:06
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。
 
 - [阿舍岛小说](https://www.ashedao.com/)
 
 ## 最新小说
-- [宠妃岂敢压我！](https://www.ashedao.com/book/99d3a4m/)
-- [死遁后，师弟他不哄不停](https://www.ashedao.com/book/99d3a4l/)
-- [发家致富小夫郎](https://www.ashedao.com/book/99d3a4j/)
+- [边关小夫郎](https://www.ashedao.com/book/99d3a4j/)
 - [和光太郎谈恋爱](https://www.ashedao.com/book/99d39bf/)
 - [与亡夫春风一度后](https://www.ashedao.com/book/99d39b5/)
 - [欢迎来到纳萨力克丧葬公司](https://www.ashedao.com/book/99d39b2/)
@@ -21,7 +19,6 @@
 - [昼色清明](https://www.ashedao.com/book/99d39ao/)
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.ashedao.com/book/99d39am/)
 - [我要当厨修啊[美食]](https://www.ashedao.com/book/99d39al/)
-- [乖乖小宝被豪门长兄娇养了](https://www.ashedao.com/book/99d39ae/)
 - [凤凰男就该窝里下蛋](https://www.ashedao.com/book/99d39ab/)
 - [[原神+崩铁]在提瓦特隐居也未尝不可](https://www.ashedao.com/book/99d39a6/)
 - [除病弱万人嫌外全员重生](https://www.ashedao.com/book/99d39a4/)
@@ -65,16 +62,21 @@
 - [重回养父年少时](https://www.ashedao.com/book/99d396n/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.ashedao.com/book/99d33u2/)
 - [我真的只会Ctrl啊！！！](https://www.ashedao.com/book/99d305n/)
+- [上个鬼班[无限]](https://www.ashedao.com/book/99d2pve/)
 - [星际团宠小人鱼](https://www.ashedao.com/book/99d2p2b/)
+- [让暴君Alpha怀崽后](https://www.ashedao.com/book/99d2nhe/)
+- [娇美人换嫁七零大佬后](https://www.ashedao.com/book/99d2lun/)
 - [灭世龙崽有什么错](https://www.ashedao.com/book/99d2kt7/)
-- [九零重组小家庭](https://www.ashedao.com/book/99d2kgq/)
-- [假少爷有特殊的算命技巧](https://www.ashedao.com/book/99d2ile/)
+- [[足球]足坛人生模拟器](https://www.ashedao.com/book/99d2hs8/)
 - [神豪文男主是我爸](https://www.ashedao.com/book/99d2f6k/)
 - [在虫族世界逃命升级](https://www.ashedao.com/book/99d2dvh/)
 - [趁她之危](https://www.ashedao.com/book/99d2bu8/)
+- [昭暮](https://www.ashedao.com/book/99d24rt/)
 - [从维多利亚时代开始](https://www.ashedao.com/book/99d245p/)
 - [反派人生，易如反掌[快穿]](https://www.ashedao.com/book/99d1u39/)
 - [假少爷不想活了](https://www.ashedao.com/book/99d1tn0/)
+- [食明](https://www.ashedao.com/book/99d1le9/)
+- [诡话第一boss](https://www.ashedao.com/book/99d1hvg/)
 - [十九世纪贵族厨房（美食）](https://www.ashedao.com/book/99d1go2/)
 - [春归燕](https://www.ashedao.com/book/99d1ev2/)
 - [高调装神，猥琐发育](https://www.ashedao.com/book/99d1e8j/)
@@ -84,7 +86,6 @@
 - [第一游侠[全息]](https://www.ashedao.com/book/99d104b/)
 - [寄人篱下](https://www.ashedao.com/book/99d0u6d/)
 - [科学主义魔法学院](https://www.ashedao.com/book/99d0s8f/)
-- [始皇闺女躺平失败的日子](https://www.ashedao.com/book/99d0qbg/)
 - [绿叶](https://www.ashedao.com/book/99d0qaj/)
 - [我写小说纯粹为了赚钱](https://www.ashedao.com/book/99d0ou4/)
 - [枕边热吻](https://www.ashedao.com/book/99d0oh7/)
@@ -94,7 +95,7 @@
 - [不当救世主就要当人类恶了吗](https://www.ashedao.com/book/99d0khj/)
 - [误标记隔壁阿姨O之后](https://www.ashedao.com/book/99d0kck/)
 - [为诡异打工，但反封建迷信](https://www.ashedao.com/book/99d0k3h/)
-- [[全职高手]霸图老板是叶修](https://www.ashedao.com/book/99d0hl0/)
+- [社恐直播鉴宝，但带球跑](https://www.ashedao.com/book/99d0jnt/)
 - [假金丝雀深陷修罗场](https://www.ashedao.com/book/99d0enr/)
 - [养成游戏，但破解版](https://www.ashedao.com/book/99d0dth/)
 - [在民俗惊悚片被诸神庇护](https://www.ashedao.com/book/99d0dcf/)
@@ -124,6 +125,7 @@
 - [当我cos了漫画if线主角](https://www.ashedao.com/book/99cvf6p/)
 - [漫漫仙途](https://www.ashedao.com/book/99cvf1d/)
 - [重临巅峰[花滑]](https://www.ashedao.com/book/99cve7p/)
+- [韩团绿卡不想忍了](https://www.ashedao.com/book/99cvdn8/)
 - [你是我的根目录](https://www.ashedao.com/book/99cvc3l/)
 - [[综港影]野生情人出没地](https://www.ashedao.com/book/99cvboe/)
 - [[综英美]让我统治哥谭！！！](https://www.ashedao.com/book/99cv8ni/)
@@ -149,12 +151,10 @@
 - [把清冷权臣调成荡夫后](https://www.ashedao.com/book/99culb6/)
 - [[群穿]我在御兽番抢人气](https://www.ashedao.com/book/99cuglj/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ashedao.com/book/99ctp5o/)
-- [穿成炮灰后我封神了［快穿］](https://www.ashedao.com/book/99ctoqe/)
 - [满级大佬制霸热血运动番](https://www.ashedao.com/book/99ctokv/)
 - [海岛求生：生活玩家种田囤货](https://www.ashedao.com/book/99ctokm/)
 - [猫猫也要养家糊口](https://www.ashedao.com/book/99ctobt/)
 - [日化人生[科研]](https://www.ashedao.com/book/99cto61/)
-- [御兽师，我打工养你啊](https://www.ashedao.com/book/99cto2h/)
 - [六零之成了卷王的妹妹](https://www.ashedao.com/book/99ctnve/)
 - [巨物致富：回乡开钓场](https://www.ashedao.com/book/99ctntj/)
 - [我有一座安全城](https://www.ashedao.com/book/99ctnrl/)

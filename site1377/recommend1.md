@@ -1,18 +1,16 @@
 
 # 牛魔王JJ电子书 - 小说阅读网, 全本免费完结小说在线阅读及下载
 
-更新时间：2026-09-02 03:31:59
+更新时间：2026-09-03 03:32:02
 
 牛魔王JJ电子书提供精彩小说阅读服务，包括各种类型的小说排行榜、免费好看的小说等。涵盖穿越小说、都市小说、言情小说、玄幻小说等多种类别，支持全本全集完结小说在线阅读以及TXT下载。
 
 - [牛魔王JJ电子书](https://www.nmwjj.com/)
 
 ## 最新小说
-- [宠妃岂敢压我！](https://www.nmwjj.com/book/18cjail/)
-- [死遁后，师弟他不哄不停](https://www.nmwjj.com/book/18cjagv/)
-- [发家致富小夫郎](https://www.nmwjj.com/book/18cj2f7/)
-- [假少爷有特殊的算命技巧](https://www.nmwjj.com/book/18ciuhc/)
-- [九零重组小家庭](https://www.nmwjj.com/book/18ciu2b/)
+- [上个鬼班[无限]](https://www.nmwjj.com/book/18cj61f/)
+- [边关小夫郎](https://www.nmwjj.com/book/18cj2f7/)
+- [[足球]足坛人生模拟器](https://www.nmwjj.com/book/18ciukk/)
 - [游戏角色想和玩家谈恋爱](https://www.nmwjj.com/book/18citq8/)
 - [重回养父年少时](https://www.nmwjj.com/book/18citq7/)
 - [我们生活玩家是这样的](https://www.nmwjj.com/book/18citq5/)
@@ -33,7 +31,6 @@
 - [影帝今天分手了吗[娱乐圈]](https://www.nmwjj.com/book/18citnt/)
 - [始乱终弃高岭之花以后](https://www.nmwjj.com/book/18citno/)
 - [无限回档，我把自己刷成了女帝](https://www.nmwjj.com/book/18citnm/)
-- [乖乖小宝被豪门长兄娇养了](https://www.nmwjj.com/book/18citnl/)
 - [太子哥哥不想当哥哥](https://www.nmwjj.com/book/18citnh/)
 - [婚后矜持](https://www.nmwjj.com/book/18citne/)
 - [猫猫也要被魅魔魅惑吗？](https://www.nmwjj.com/book/18citnd/)
@@ -66,11 +63,16 @@
 - [私恋旧星](https://www.nmwjj.com/book/18citiq/)
 - [灭世龙崽有什么错](https://www.nmwjj.com/book/18citin/)
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.nmwjj.com/book/18citie/)
+- [让暴君Alpha怀崽后](https://www.nmwjj.com/book/18cis23/)
 - [在虫族世界逃命升级](https://www.nmwjj.com/book/18ciqp6/)
 - [神豪文男主是我爸](https://www.nmwjj.com/book/18cipl0/)
+- [娇美人换嫁七零大佬后](https://www.nmwjj.com/book/18cipg8/)
 - [我真的只会Ctrl啊！！！](https://www.nmwjj.com/book/18cinuf/)
 - [从维多利亚时代开始](https://www.nmwjj.com/book/18cihc3/)
+- [昭暮](https://www.nmwjj.com/book/18cidtm/)
 - [反派人生，易如反掌[快穿]](https://www.nmwjj.com/book/18cib4g/)
+- [食明](https://www.nmwjj.com/book/18ci2lq/)
+- [诡话第一boss](https://www.nmwjj.com/book/18chv6b/)
 - [摄政王家的咸鱼夫郎](https://www.nmwjj.com/book/18chm7q/)
 - [绿叶](https://www.nmwjj.com/book/18chllh/)
 - [枕边热吻](https://www.nmwjj.com/book/18chjlt/)
@@ -79,13 +81,13 @@
 - [我写小说纯粹为了赚钱](https://www.nmwjj.com/book/18che10/)
 - [科学主义魔法学院](https://www.nmwjj.com/book/18che0n/)
 - [寄人篱下](https://www.nmwjj.com/book/18chdtp/)
-- [始皇闺女躺平失败的日子](https://www.nmwjj.com/book/18chb3p/)
 - [误标记隔壁阿姨O之后](https://www.nmwjj.com/book/18ch96i/)
+- [韩团绿卡不想忍了](https://www.nmwjj.com/book/18ch874/)
 - [不当救世主就要当人类恶了吗](https://www.nmwjj.com/book/18ch6s7/)
 - [十福晋吃瓜日常(清穿)](https://www.nmwjj.com/book/18ch6bn/)
 - [当菟丝花要分手后](https://www.nmwjj.com/book/18ch517/)
 - [高嫁之后](https://www.nmwjj.com/book/18ch2e9/)
-- [[全职高手]霸图老板是叶修](https://www.nmwjj.com/book/18ch2bp/)
+- [社恐直播鉴宝，但带球跑](https://www.nmwjj.com/book/18ch1sh/)
 - [当我穿为龙傲天的情敌](https://www.nmwjj.com/book/18ch1ku/)
 - [假金丝雀深陷修罗场](https://www.nmwjj.com/book/18ch1ct/)
 - [养成游戏，但破解版](https://www.nmwjj.com/book/18cgsgg/)
@@ -146,9 +148,7 @@
 - [假少爷不想活了](https://www.nmwjj.com/book/18ce64e/)
 - [在民俗惊悚片被诸神庇护](https://www.nmwjj.com/book/18ce5v2/)
 - [九零首富的替嫁小媳妇](https://www.nmwjj.com/book/18ce5ut/)
-- [穿成炮灰后我封神了［快穿］](https://www.nmwjj.com/book/18ce5ra/)
 - [千禧年，拆迁分了十栋楼！](https://www.nmwjj.com/book/18ce5p0/)
-- [御兽师，我打工养你啊](https://www.nmwjj.com/book/18ce5k2/)
 - [趁她之危](https://www.nmwjj.com/book/18ce5ie/)
 - [巨物致富：回乡开钓场](https://www.nmwjj.com/book/18ce5el/)
 - [全民求生:从小木屋到魔法农场](https://www.nmwjj.com/book/18ce5b4/)

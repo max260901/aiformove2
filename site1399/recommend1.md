@@ -1,20 +1,19 @@
 
 # 佚名奇书小说 - 免费更新的小说阅读网站
 
-更新时间：2026-09-02 03:42:55
+更新时间：2026-09-03 03:43:02
 
 佚名奇书小说提供全网各类热门小说在线阅读服务，支持免费观看。这里汇集了丰富的小说资源，包括但不限于都市、玄幻、武侠等多种类型，并且保证章节更新及时，页面设计清爽无广告干扰，是广大书友不可多得的好去处。
 
 - [佚名奇书小说](https://www.yimingeduai.com/)
 
 ## 最新小说
-- [宠妃岂敢压我！](https://www.yimingeduai.com/book/6adn93c/)
-- [假少爷有特殊的算命技巧](https://www.yimingeduai.com/book/6adn92n/)
-- [死遁后，师弟他不哄不停](https://www.yimingeduai.com/book/6adn920/)
-- [九零重组小家庭](https://www.yimingeduai.com/book/6adn1kr/)
+- [[足球]足坛人生模拟器](https://www.yimingeduai.com/book/6adnbcs/)
+- [让暴君Alpha怀崽后](https://www.yimingeduai.com/book/6adn89k/)
+- [娇美人换嫁七零大佬后](https://www.yimingeduai.com/book/6adn6cj/)
 - [从维多利亚时代开始](https://www.yimingeduai.com/book/6adn07r/)
-- [发家致富小夫郎](https://www.yimingeduai.com/book/6admt0b/)
-- [乖乖小宝被豪门长兄娇养了](https://www.yimingeduai.com/book/6admm5m/)
+- [边关小夫郎](https://www.yimingeduai.com/book/6admt0b/)
+- [昭暮](https://www.yimingeduai.com/book/6admrqp/)
 - [凤凰男就该窝里下蛋](https://www.yimingeduai.com/book/6admm56/)
 - [与亡夫春风一度后](https://www.yimingeduai.com/book/6admm4s/)
 - [无限回档，我把自己刷成了女帝](https://www.yimingeduai.com/book/6admm4m/)
@@ -67,9 +66,9 @@
 - [痴情女配开始放手了（快穿）](https://www.yimingeduai.com/book/6admlr4/)
 - [万人嫌女配深陷修罗场](https://www.yimingeduai.com/book/6admlqt/)
 - [撕碎[刑侦]](https://www.yimingeduai.com/book/6admlql/)
-- [反派人生，易如反掌[快穿]](https://www.yimingeduai.com/book/6admev3/)
+- [食明](https://www.yimingeduai.com/book/6admhhb/)
+- [诡话第一boss](https://www.yimingeduai.com/book/6admefl/)
 - [直男在耽美被迫万人迷［快穿］](https://www.yimingeduai.com/book/6admd0t/)
-- [[全职高手]霸图老板是叶修](https://www.yimingeduai.com/book/6admc44/)
 - [直男误入攻略天龙人游戏](https://www.yimingeduai.com/book/6admb6h/)
 - [第一游侠[全息]](https://www.yimingeduai.com/book/6admb17/)
 - [青空来信](https://www.yimingeduai.com/book/6admaea/)
@@ -94,13 +93,14 @@
 - [重临巅峰[花滑]](https://www.yimingeduai.com/book/6adlh72/)
 - [漫画配角的不平凡日常](https://www.yimingeduai.com/book/6adlh63/)
 - [养成游戏，但破解版](https://www.yimingeduai.com/book/6adlh1l/)
-- [始皇闺女躺平失败的日子](https://www.yimingeduai.com/book/6adle9b/)
+- [韩团绿卡不想忍了](https://www.yimingeduai.com/book/6adlgoi/)
 - [如果时光不记得](https://www.yimingeduai.com/book/6adlcdl/)
 - [虫族之雌君的人设不对劲](https://www.yimingeduai.com/book/6adlbo4/)
 - [恋爱脑毁灭世界](https://www.yimingeduai.com/book/6adlb7r/)
 - [穿越废星，我靠种田求生](https://www.yimingeduai.com/book/6adla4g/)
 - [[综英美]让我统治哥谭！！！](https://www.yimingeduai.com/book/6adl82t/)
 - [当菟丝花要分手后](https://www.yimingeduai.com/book/6adl6dl/)
+- [老实人妻，但顶级魅魔](https://www.yimingeduai.com/book/6adl3h0/)
 - [[综港影]野生情人出没地](https://www.yimingeduai.com/book/6adl3ek/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.yimingeduai.com/book/6adl26i/)
 - [绿叶](https://www.yimingeduai.com/book/6adl083/)
@@ -118,10 +118,8 @@
 - [青城玩家明明超强却过分谨慎](https://www.yimingeduai.com/book/6adkdqk/)
 - [高嫁之后](https://www.yimingeduai.com/book/6adkdjq/)
 - [我司艺人永不塌房](https://www.yimingeduai.com/book/6adkd7s/)
-- [我真的只会Ctrl啊！！！](https://www.yimingeduai.com/book/6adka8q/)
 - [我不是御兽大师](https://www.yimingeduai.com/book/6adk621/)
 - [漫漫仙途](https://www.yimingeduai.com/book/6adk4ko/)
-- [恶犬攻绑定上司的乖狗系统](https://www.yimingeduai.com/book/6adk499/)
 - [你是我的根目录](https://www.yimingeduai.com/book/6adk42b/)
 - [人在虫族，写文爆红](https://www.yimingeduai.com/book/6adjvs2/)
 - [春归燕](https://www.yimingeduai.com/book/6adjsja/)
@@ -131,6 +129,7 @@
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.yimingeduai.com/book/6adjodi/)
 - [当我穿为龙傲天的情敌](https://www.yimingeduai.com/book/6adjmj4/)
 - [悟咪观察笔记](https://www.yimingeduai.com/book/6adjm2g/)
+- [社畜Beta也能被顶A觊觎吗](https://www.yimingeduai.com/book/6adjlm1/)
 - [龙傲天他解锁宠妻系统](https://www.yimingeduai.com/book/6adjk3k/)
 - [当我cos了漫画if线主角](https://www.yimingeduai.com/book/6adjjf1/)
 - [徐娘子的美食发家日常](https://www.yimingeduai.com/book/6adjgf8/)
@@ -152,7 +151,6 @@
 - [巨物致富：回乡开钓场](https://www.yimingeduai.com/book/6adi7il/)
 - [为诡异打工，但反封建迷信](https://www.yimingeduai.com/book/6adi7hu/)
 - [成为养成系练习生后](https://www.yimingeduai.com/book/6adi7bm/)
-- [清澈女大的六零年代](https://www.yimingeduai.com/book/6adi7ap/)
 - [趁她之危](https://www.yimingeduai.com/book/6adi7ae/)
 - [高调装神，猥琐发育](https://www.yimingeduai.com/book/6adi75l/)
 - [星际团宠小人鱼](https://www.yimingeduai.com/book/6adi74q/)
@@ -168,8 +166,7 @@
 - [大瑛弟国](https://www.yimingeduai.com/book/6adi6bh/)
 - [假少爷不想活了](https://www.yimingeduai.com/book/6adi6a2/)
 - [高门小婢](https://www.yimingeduai.com/book/6adi666/)
-- [御兽师，我打工养你啊](https://www.yimingeduai.com/book/6adi5hc/)
-- [穿成炮灰后我封神了［快穿］](https://www.yimingeduai.com/book/6adi5gg/)
+- [娶了女装心机太子](https://www.yimingeduai.com/book/6adi5jn/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1399/index.md)

@@ -1,16 +1,14 @@
 
 # 武侠文学网 - 值得收藏的小说阅读平台
 
-更新时间：2026-09-02 03:40:52
+更新时间：2026-09-03 03:40:57
 
 武侠文学网为您提供丰富多样的小说资源，在这里您可以找到最新最热门的小说作品。无论是经典文学还是现代流行小说，都是您值得收藏的阅读选择。
 
 - [武侠文学网](https://www.wuxia988.com/)
 
 ## 最新小说
-- [宠妃岂敢压我！](https://www.wuxia988.com/book/1ms35i1/)
-- [死遁后，师弟他不哄不停](https://www.wuxia988.com/book/1ms35gr/)
-- [发家致富小夫郎](https://www.wuxia988.com/book/1ms2uki/)
+- [边关小夫郎](https://www.wuxia988.com/book/1ms2uki/)
 - [渡鬼](https://www.wuxia988.com/book/1ms2sab/)
 - [私恋旧星](https://www.wuxia988.com/book/1ms2sa9/)
 - [当织田作绑定魅魔系统](https://www.wuxia988.com/book/1ms2sa5/)
@@ -21,7 +19,6 @@
 - [痴情女配开始放手了（快穿）](https://www.wuxia988.com/book/1ms2s9m/)
 - [我们生活玩家是这样的](https://www.wuxia988.com/book/1ms2s9g/)
 - [[原神+崩铁]在提瓦特隐居也未尝不可](https://www.wuxia988.com/book/1ms2s9d/)
-- [乖乖小宝被豪门长兄娇养了](https://www.wuxia988.com/book/1ms2s97/)
 - [我要当厨修啊[美食]](https://www.wuxia988.com/book/1ms2s96/)
 - [游戏boss们抢着要当我的猫[全息]](https://www.wuxia988.com/book/1ms2s95/)
 - [九十年代从军记](https://www.wuxia988.com/book/1ms2s93/)
@@ -65,23 +62,27 @@
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wuxia988.com/book/1ms2s5j/)
 - [师姐她怎么还不来追求我](https://www.wuxia988.com/book/1ms2s5h/)
 - [我真的只会Ctrl啊！！！](https://www.wuxia988.com/book/1ms2pqs/)
+- [上个鬼班[无限]](https://www.wuxia988.com/book/1ms2np2/)
 - [灭世龙崽有什么错](https://www.wuxia988.com/book/1ms2ivj/)
-- [九零重组小家庭](https://www.wuxia988.com/book/1ms2h1r/)
-- [假少爷有特殊的算命技巧](https://www.wuxia988.com/book/1ms2g5q/)
+- [让暴君Alpha怀崽后](https://www.wuxia988.com/book/1ms2gh8/)
+- [[足球]足坛人生模拟器](https://www.wuxia988.com/book/1ms2g4g/)
+- [娇美人换嫁七零大佬后](https://www.wuxia988.com/book/1ms2eh3/)
 - [在虫族世界逃命升级](https://www.wuxia988.com/book/1ms2cch/)
 - [神豪文男主是我爸](https://www.wuxia988.com/book/1ms2bf6/)
 - [从维多利亚时代开始](https://www.wuxia988.com/book/1ms22s1/)
+- [昭暮](https://www.wuxia988.com/book/1ms20mv/)
 - [星际团宠小人鱼](https://www.wuxia988.com/book/1ms1sq3/)
 - [十九世纪贵族厨房（美食）](https://www.wuxia988.com/book/1ms1soh/)
 - [反派人生，易如反掌[快穿]](https://www.wuxia988.com/book/1ms1s5c/)
 - [高调装神，猥琐发育](https://www.wuxia988.com/book/1ms1lnv/)
+- [食明](https://www.wuxia988.com/book/1ms1jqv/)
+- [诡话第一boss](https://www.wuxia988.com/book/1ms1gg1/)
 - [摄政王家的咸鱼夫郎](https://www.wuxia988.com/book/1ms15sm/)
 - [全球进化，而我保持不变](https://www.wuxia988.com/book/1ms122m/)
 - [绿叶](https://www.wuxia988.com/book/1ms10ho/)
 - [第一游侠[全息]](https://www.wuxia988.com/book/1ms109o/)
 - [枕边热吻](https://www.wuxia988.com/book/1ms0tgl/)
 - [我写小说纯粹为了赚钱](https://www.wuxia988.com/book/1ms0t4c/)
-- [始皇闺女躺平失败的日子](https://www.wuxia988.com/book/1ms0t0n/)
 - [九零首富的替嫁小媳妇](https://www.wuxia988.com/book/1ms0sse/)
 - [寄人篱下](https://www.wuxia988.com/book/1ms0sh8/)
 - [为诡异打工，但反封建迷信](https://www.wuxia988.com/book/1ms0o2e/)
@@ -89,9 +90,10 @@
 - [十福晋吃瓜日常(清穿)](https://www.wuxia988.com/book/1ms0ke4/)
 - [不当救世主就要当人类恶了吗](https://www.wuxia988.com/book/1ms0k4p/)
 - [在民俗惊悚片被诸神庇护](https://www.wuxia988.com/book/1ms0jjh/)
+- [社恐直播鉴宝，但带球跑](https://www.wuxia988.com/book/1ms0j5t/)
 - [当我穿为龙傲天的情敌](https://www.wuxia988.com/book/1ms0ivf/)
 - [假金丝雀深陷修罗场](https://www.wuxia988.com/book/1ms0iau/)
-- [[全职高手]霸图老板是叶修](https://www.wuxia988.com/book/1ms0i6s/)
+- [韩团绿卡不想忍了](https://www.wuxia988.com/book/1ms0i2q/)
 - [当菟丝花要分手后](https://www.wuxia988.com/book/1ms0h02/)
 - [养成游戏，但破解版](https://www.wuxia988.com/book/1ms0a6h/)
 - [霓虹夏日](https://www.wuxia988.com/book/1ms08k6/)
@@ -165,9 +167,7 @@
 - [我有一座安全城](https://www.wuxia988.com/book/1mrtm1v/)
 - [高门小婢](https://www.wuxia988.com/book/1mrtlns/)
 - [科学主义魔法学院](https://www.wuxia988.com/book/1mrtl9q/)
-- [穿成炮灰后我封神了［快穿］](https://www.wuxia988.com/book/1mrtl6n/)
 - [海岛求生：生活玩家种田囤货](https://www.wuxia988.com/book/1mrtl5h/)
-- [御兽师，我打工养你啊](https://www.wuxia988.com/book/1mrtl2b/)
 - [猫猫也要养家糊口](https://www.wuxia988.com/book/1mrtkro/)
 - [高嫁之后](https://www.wuxia988.com/book/1mrtkm9/)
 ## 相关内容

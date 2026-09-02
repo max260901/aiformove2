@@ -1,7 +1,7 @@
 
 # 书香小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-02 03:36:51
+更新时间：2026-09-03 03:36:55
 
 书香小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -10,38 +10,37 @@
 ## 最新小说
 - [阿竹与野桃](https://www.shuxiang368.com/book/3qknree/)
 - [从异世界穿回来后](https://www.shuxiang368.com/book/3qknn1o/)
-- [我有嘉宾](https://www.shuxiang368.com/book/3qknmpj/)
+- [昭暮](https://www.shuxiang368.com/book/3qkmvvc/)
 - [你，后室管理员](https://www.shuxiang368.com/book/3qkms4i/)
 - [星际团宠小人鱼](https://www.shuxiang368.com/book/3qkms1p/)
-- [原配夫人](https://www.shuxiang368.com/book/3qkms0b/)
-- [高调装神，猥琐发育](https://www.shuxiang368.com/book/3qkmkum/)
-- [男朋友买一送一](https://www.shuxiang368.com/book/3qkm9jh/)
+- [乱步他哥，但武力值max](https://www.shuxiang368.com/book/3qkmdug/)
 - [失而复得的白月光[快穿]](https://www.shuxiang368.com/book/3qkm4fc/)
-- [如何正确哄睡暴君](https://www.shuxiang368.com/book/3qkm1s1/)
 - [躲避原书剧情五年后](https://www.shuxiang368.com/book/3qkm0gj/)
-- [我不可能舔一个漂亮捞子](https://www.shuxiang368.com/book/3qklq97/)
-- [你也没死？](https://www.shuxiang368.com/book/3qklomc/)
-- [逝水](https://www.shuxiang368.com/book/3qklnnr/)
 - [被鬼怪宠爱的漂亮书生](https://www.shuxiang368.com/book/3qklj3n/)
 - [沈助理又在隐藏他的超能力](https://www.shuxiang368.com/book/3qklitk/)
+- [老公是松散生命体](https://www.shuxiang368.com/book/3qklhtf/)
 - [微臣怜惜公主](https://www.shuxiang368.com/book/3qklgrh/)
-- [系统不许我摆烂](https://www.shuxiang368.com/book/3qklc44/)
-- [误入反派培养直播后](https://www.shuxiang368.com/book/3qkl6fc/)
+- [亚当斯与韦恩的适配性](https://www.shuxiang368.com/book/3qkl74u/)
+- [在立海大玩网球模拟器](https://www.shuxiang368.com/book/3qkl4e0/)
+- [大美人怀了enigma上司的崽](https://www.shuxiang368.com/book/3qkl386/)
+- [[综英美]让我统治哥谭！！！](https://www.shuxiang368.com/book/3qkl2uc/)
 - [炮灰的我该如何上位？](https://www.shuxiang368.com/book/3qkl2m4/)
+- [奶奶蛋糕店[美食]](https://www.shuxiang368.com/book/3qkl29k/)
 - [[封神]圣人生欲](https://www.shuxiang368.com/book/3qkl21q/)
-- [多梦你一会儿](https://www.shuxiang368.com/book/3qkl1ec/)
-- [哥你不能不要我](https://www.shuxiang368.com/book/3qkl19c/)
 - [被四皇错看成小动物后](https://www.shuxiang368.com/book/3qkl0vh/)
-- [隔壁班的松田君](https://www.shuxiang368.com/book/3qkkshu/)
-- [某柯学的正义伙伴](https://www.shuxiang368.com/book/3qkknt4/)
+- [[全职高手]问就是没钱](https://www.shuxiang368.com/book/3qkkviu/)
+- [这谁的沙雕二次元心声！](https://www.shuxiang368.com/book/3qkkvar/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.shuxiang368.com/book/3qkktis/)
+- [虫族治愈师，但恐虫](https://www.shuxiang368.com/book/3qkkofr/)
 - [[足球]罗蜜第一志愿](https://www.shuxiang368.com/book/3qkkns0/)
 - [井闼山经理每天都被挖墙脚](https://www.shuxiang368.com/book/3qkklfa/)
 - [[足球]小小鸟堂堂来袭](https://www.shuxiang368.com/book/3qkkcov/)
 - [法外狂猫](https://www.shuxiang368.com/book/3qkk8dh/)
 - [好兄弟暴富后非要跟我结婚](https://www.shuxiang368.com/book/3qkk6rf/)
-- [侯府打工人](https://www.shuxiang368.com/book/3qkk6lb/)
-- [我，剑圣，养生中，勿扰](https://www.shuxiang368.com/book/3qkk3ks/)
+- [关于我虚构了一个男友这件事](https://www.shuxiang368.com/book/3qkk528/)
+- [暴君偏头痛](https://www.shuxiang368.com/book/3qkjtn6/)
 - [和室友他爸恋爱后](https://www.shuxiang368.com/book/3qkjqap/)
+- [阴郁路人不想被喜欢](https://www.shuxiang368.com/book/3qkimqb/)
 - [直男咒术师的限制级游戏](https://www.shuxiang368.com/book/3qkilev/)
 - [纯爱宇智波基本恋爱法](https://www.shuxiang368.com/book/3qkil3u/)
 ## 相关内容
