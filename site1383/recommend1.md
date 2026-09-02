@@ -1,18 +1,18 @@
 
 # 紫竹原始小说 - 最新最全的小说文学网站
 
-更新时间：2026-09-02 03:23:14
+更新时间：2026-09-03 03:23:15
 
 紫竹原始小说是一个专注于分享最新、最全的小说文学作品的网站。我们致力于为读者带来全新的阅读体验，欢迎访问我们的网站，尽情享受文学的魅力。
 
 - [紫竹原始小说](https://www.cnysxc.com/)
 
 ## 最新小说
-- [宠妃岂敢压我！](https://www.cnysxc.com/book/8ee0bs2/)
-- [死遁后，师弟他不哄不停](https://www.cnysxc.com/book/8ee0bpa/)
-- [假少爷有特殊的算命技巧](https://www.cnysxc.com/book/8ee04b4/)
-- [九零重组小家庭](https://www.cnysxc.com/book/8ee02lt/)
-- [发家致富小夫郎](https://www.cnysxc.com/book/8edvts1/)
+- [上个鬼班[无限]](https://www.cnysxc.com/book/8ee0bum/)
+- [[足球]足坛人生模拟器](https://www.cnysxc.com/book/8ee04ld/)
+- [让暴君Alpha怀崽后](https://www.cnysxc.com/book/8ee001u/)
+- [娇美人换嫁七零大佬后](https://www.cnysxc.com/book/8edvu8d/)
+- [边关小夫郎](https://www.cnysxc.com/book/8edvts1/)
 - [从维多利亚时代开始](https://www.cnysxc.com/book/8edvnav/)
 - [异种新婚报告](https://www.cnysxc.com/book/8edvn2j/)
 - [春归燕](https://www.cnysxc.com/book/8edvn2e/)
@@ -41,7 +41,6 @@
 - [退婚流龙傲天，但未婚夫是我](https://www.cnysxc.com/book/8edvmtj/)
 - [凤凰男就该窝里下蛋](https://www.cnysxc.com/book/8edvmti/)
 - [炮灰丫鬟靠签到躺赢了](https://www.cnysxc.com/book/8edvmte/)
-- [乖乖小宝被豪门长兄娇养了](https://www.cnysxc.com/book/8edvmt7/)
 - [婚后矜持](https://www.cnysxc.com/book/8edvmt0/)
 - [游戏角色想和玩家谈恋爱](https://www.cnysxc.com/book/8edvmsr/)
 - [始乱终弃高岭之花以后](https://www.cnysxc.com/book/8edvmsk/)
@@ -69,8 +68,11 @@
 - [影帝今天分手了吗[娱乐圈]](https://www.cnysxc.com/book/8edvmo1/)
 - [[希腊神话]诸神都是我学生](https://www.cnysxc.com/book/8edvmns/)
 - [无限回档，我把自己刷成了女帝](https://www.cnysxc.com/book/8edvmnn/)
+- [昭暮](https://www.cnysxc.com/book/8edvjfc/)
 - [我真的只会Ctrl啊！！！](https://www.cnysxc.com/book/8edvfvk/)
 - [反派人生，易如反掌[快穿]](https://www.cnysxc.com/book/8edvfr6/)
+- [食明](https://www.cnysxc.com/book/8edv8ir/)
+- [诡话第一boss](https://www.cnysxc.com/book/8edv583/)
 - [摄政王家的咸鱼夫郎](https://www.cnysxc.com/book/8eduugq/)
 - [绿叶](https://www.cnysxc.com/book/8edut60/)
 - [枕边热吻](https://www.cnysxc.com/book/8edus5k/)
@@ -79,15 +81,15 @@
 - [我写小说纯粹为了赚钱](https://www.cnysxc.com/book/8edulfn/)
 - [寄人篱下](https://www.cnysxc.com/book/8edul5b/)
 - [第一游侠[全息]](https://www.cnysxc.com/book/8edukmu/)
-- [始皇闺女躺平失败的日子](https://www.cnysxc.com/book/8eduit5/)
 - [误标记隔壁阿姨O之后](https://www.cnysxc.com/book/8edufth/)
+- [韩团绿卡不想忍了](https://www.cnysxc.com/book/8eduer5/)
 - [不当救世主就要当人类恶了吗](https://www.cnysxc.com/book/8educgg/)
 - [十福晋吃瓜日常(清穿)](https://www.cnysxc.com/book/8educ78/)
 - [假金丝雀深陷修罗场](https://www.cnysxc.com/book/8educ1t/)
 - [当菟丝花要分手后](https://www.cnysxc.com/book/8edubqv/)
 - [高嫁之后](https://www.cnysxc.com/book/8edubi6/)
-- [[全职高手]霸图老板是叶修](https://www.cnysxc.com/book/8eduae1/)
 - [当我穿为龙傲天的情敌](https://www.cnysxc.com/book/8edu8mg/)
+- [社恐直播鉴宝，但带球跑](https://www.cnysxc.com/book/8edu869/)
 - [[综英美]让我统治哥谭！！！](https://www.cnysxc.com/book/8edu5g9/)
 - [养成游戏，但破解版](https://www.cnysxc.com/book/8edu32q/)
 - [霓虹夏日](https://www.cnysxc.com/book/8edtv6q/)
@@ -144,7 +146,6 @@
 - [猫猫也要养家糊口](https://www.cnysxc.com/book/8edrc29/)
 - [在民俗惊悚片被诸神庇护](https://www.cnysxc.com/book/8edrc25/)
 - [高门小婢](https://www.cnysxc.com/book/8edrc1o/)
-- [穿成炮灰后我封神了［快穿］](https://www.cnysxc.com/book/8edrbrv/)
 - [清澈女大的六零年代](https://www.cnysxc.com/book/8edrbl0/)
 - [千禧年，拆迁分了十栋楼！](https://www.cnysxc.com/book/8edrbci/)
 - [海岛求生：生活玩家种田囤货](https://www.cnysxc.com/book/8edrbas/)
@@ -167,7 +168,6 @@
 - [五十年代港城日常](https://www.cnysxc.com/book/8edr9g5/)
 - [趁她之危](https://www.cnysxc.com/book/8edr9ce/)
 - [为诡异打工，但反封建迷信](https://www.cnysxc.com/book/8edr993/)
-- [御兽师，我打工养你啊](https://www.cnysxc.com/book/8edr976/)
 - [全民求生:从小木屋到魔法农场](https://www.cnysxc.com/book/8edr957/)
 - [我是唯一地上神国](https://www.cnysxc.com/book/8edr93s/)
 ## 相关内容

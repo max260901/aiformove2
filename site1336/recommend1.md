@@ -1,16 +1,14 @@
 
 # 笔看阁-最热门的免费小说网 | 玄幻、网游、言情、穿越、都市全本小说在线阅读
 
-更新时间：2026-09-02 03:23:43
+更新时间：2026-09-03 03:23:45
 
 笔看阁是最热门的免费小说网站之一，专注于提供包括玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读服务。本站承诺不设任何弹窗广告，页面简洁易用，为读者创造一个纯净舒适的阅读环境。
 
 - [笔看阁](https://www.dasenluan.com/)
 
 ## 最新小说
-- [宠妃岂敢压我！](https://www.dasenluan.com/book/3jmhki7/)
-- [死遁后，师弟他不哄不停](https://www.dasenluan.com/book/3jmhki6/)
-- [发家致富小夫郎](https://www.dasenluan.com/book/3jmhki4/)
+- [边关小夫郎](https://www.dasenluan.com/book/3jmhki4/)
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.dasenluan.com/book/3jmhjou/)
 - [被怪物女友始乱终弃后[gb]](https://www.dasenluan.com/book/3jmhjot/)
 - [和光太郎谈恋爱](https://www.dasenluan.com/book/3jmhjor/)
@@ -57,7 +55,6 @@
 - [游戏角色想和玩家谈恋爱](https://www.dasenluan.com/book/3jmhjks/)
 - [万人嫌女配深陷修罗场](https://www.dasenluan.com/book/3jmhjkr/)
 - [影帝今天分手了吗[娱乐圈]](https://www.dasenluan.com/book/3jmhjko/)
-- [乖乖小宝被豪门长兄娇养了](https://www.dasenluan.com/book/3jmhjkl/)
 - [宫陷](https://www.dasenluan.com/book/3jmhjkk/)
 - [我要当厨修啊[美食]](https://www.dasenluan.com/book/3jmhjkj/)
 - [昼色清明](https://www.dasenluan.com/book/3jmhjki/)
@@ -65,16 +62,21 @@
 - [异种新婚报告](https://www.dasenluan.com/book/3jmhjk9/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.dasenluan.com/book/3jmhede/)
 - [我真的只会Ctrl啊！！！](https://www.dasenluan.com/book/3jmhai0/)
+- [上个鬼班[无限]](https://www.dasenluan.com/book/3jmh4f0/)
 - [星际团宠小人鱼](https://www.dasenluan.com/book/3jmh3e1/)
+- [让暴君Alpha怀崽后](https://www.dasenluan.com/book/3jmh1t2/)
+- [娇美人换嫁七零大佬后](https://www.dasenluan.com/book/3jmh0b5/)
 - [灭世龙崽有什么错](https://www.dasenluan.com/book/3jmgv7u/)
-- [九零重组小家庭](https://www.dasenluan.com/book/3jmguv5/)
-- [假少爷有特殊的算命技巧](https://www.dasenluan.com/book/3jmgsue/)
+- [[足球]足坛人生模拟器](https://www.dasenluan.com/book/3jmgs85/)
 - [神豪文男主是我爸](https://www.dasenluan.com/book/3jmgpkp/)
 - [在虫族世界逃命升级](https://www.dasenluan.com/book/3jmgo88/)
 - [趁她之危](https://www.dasenluan.com/book/3jmgm6k/)
+- [昭暮](https://www.dasenluan.com/book/3jmgfde/)
 - [从维多利亚时代开始](https://www.dasenluan.com/book/3jmgej6/)
 - [反派人生，易如反掌[快穿]](https://www.dasenluan.com/book/3jmg8kf/)
 - [假少爷不想活了](https://www.dasenluan.com/book/3jmg85e/)
+- [食明](https://www.dasenluan.com/book/3jmfvsd/)
+- [诡话第一boss](https://www.dasenluan.com/book/3jmfsl0/)
 - [春归燕](https://www.dasenluan.com/book/3jmfrin/)
 - [十九世纪贵族厨房（美食）](https://www.dasenluan.com/book/3jmfpeb/)
 - [高调装神，猥琐发育](https://www.dasenluan.com/book/3jmfoig/)
@@ -85,7 +87,6 @@
 - [寄人篱下](https://www.dasenluan.com/book/3jmf8bt/)
 - [绿叶](https://www.dasenluan.com/book/3jmf5lc/)
 - [科学主义魔法学院](https://www.dasenluan.com/book/3jmf5iu/)
-- [始皇闺女躺平失败的日子](https://www.dasenluan.com/book/3jmf56u/)
 - [九零首富的替嫁小媳妇](https://www.dasenluan.com/book/3jmf26v/)
 - [我写小说纯粹为了赚钱](https://www.dasenluan.com/book/3jmf24n/)
 - [枕边热吻](https://www.dasenluan.com/book/3jmf1hf/)
@@ -94,7 +95,7 @@
 - [误标记隔壁阿姨O之后](https://www.dasenluan.com/book/3jmf02c/)
 - [当我穿为龙傲天的情敌](https://www.dasenluan.com/book/3jmev3a/)
 - [不当救世主就要当人类恶了吗](https://www.dasenluan.com/book/3jmeuuh/)
-- [[全职高手]霸图老板是叶修](https://www.dasenluan.com/book/3jmesai/)
+- [社恐直播鉴宝，但带球跑](https://www.dasenluan.com/book/3jmeuat/)
 - [假金丝雀深陷修罗场](https://www.dasenluan.com/book/3jmepnm/)
 - [当菟丝花要分手后](https://www.dasenluan.com/book/3jmeodo/)
 - [在民俗惊悚片被诸神庇护](https://www.dasenluan.com/book/3jmeo9v/)
@@ -126,6 +127,7 @@
 - [重临巅峰[花滑]](https://www.dasenluan.com/book/3jmdp4t/)
 - [你是我的根目录](https://www.dasenluan.com/book/3jmdo4b/)
 - [[综港影]野生情人出没地](https://www.dasenluan.com/book/3jmdm46/)
+- [韩团绿卡不想忍了](https://www.dasenluan.com/book/3jmdlfs/)
 - [[综英美]让我统治哥谭！！！](https://www.dasenluan.com/book/3jmdl2f/)
 - [直男误入攻略天龙人游戏](https://www.dasenluan.com/book/3jmdkvs/)
 - [悟咪观察笔记](https://www.dasenluan.com/book/3jmdhst/)
@@ -149,8 +151,6 @@
 - [把清冷权臣调成荡夫后](https://www.dasenluan.com/book/3jmcvln/)
 - [[群穿]我在御兽番抢人气](https://www.dasenluan.com/book/3jmcr32/)
 - [六零之成了卷王的妹妹](https://www.dasenluan.com/book/3jmc3ic/)
-- [穿成炮灰后我封神了［快穿］](https://www.dasenluan.com/book/3jmc3cu/)
-- [御兽师，我打工养你啊](https://www.dasenluan.com/book/3jmc39g/)
 - [大瑛弟国](https://www.dasenluan.com/book/3jmc355/)
 - [我不是御兽大师](https://www.dasenluan.com/book/3jmc2uj/)
 - [成为养成系练习生后](https://www.dasenluan.com/book/3jmc2rp/)

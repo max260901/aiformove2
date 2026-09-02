@@ -1,44 +1,45 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-09-02 03:39:50
+更新时间：2026-09-03 03:39:55
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。
 
 - [三哥小说网](https://www.wkntmcb.com/)
 
 ## 最新小说
+- [暴君偏头痛](https://www.wkntmcb.com/book/48j2e1u/)
 - [阿竹与野桃](https://www.wkntmcb.com/book/48j2dv5/)
 - [躲避原书剧情五年后](https://www.wkntmcb.com/book/48j2bqk/)
-- [我有嘉宾](https://www.wkntmcb.com/book/48j22s5/)
 - [从异世界穿回来后](https://www.wkntmcb.com/book/48j2273/)
 - [星际团宠小人鱼](https://www.wkntmcb.com/book/48j1tq7/)
-- [原配夫人](https://www.wkntmcb.com/book/48j1tnm/)
 - [你，后室管理员](https://www.wkntmcb.com/book/48j1tng/)
-- [高调装神，猥琐发育](https://www.wkntmcb.com/book/48j0ini/)
-- [男朋友买一送一](https://www.wkntmcb.com/book/48j0ia4/)
+- [昭暮](https://www.wkntmcb.com/book/48j19j2/)
+- [乱步他哥，但武力值max](https://www.wkntmcb.com/book/48j0lm7/)
 - [直男咒术师的限制级游戏](https://www.wkntmcb.com/book/48j0ar4/)
-- [如何正确哄睡暴君](https://www.wkntmcb.com/book/48j036u/)
+- [阴郁路人不想被喜欢](https://www.wkntmcb.com/book/48j09l3/)
 - [失而复得的白月光[快穿]](https://www.wkntmcb.com/book/48j01vf/)
-- [逝水](https://www.wkntmcb.com/book/48ivu3d/)
-- [你也没死？](https://www.wkntmcb.com/book/48ivq8u/)
-- [我不可能舔一个漂亮捞子](https://www.wkntmcb.com/book/48ivnot/)
 - [沈助理又在隐藏他的超能力](https://www.wkntmcb.com/book/48ivlsk/)
-- [系统不许我摆烂](https://www.wkntmcb.com/book/48ivivr/)
-- [误入反派培养直播后](https://www.wkntmcb.com/book/48ivafm/)
+- [在立海大玩网球模拟器](https://www.wkntmcb.com/book/48ivb55/)
+- [奶奶蛋糕店[美食]](https://www.wkntmcb.com/book/48iv94q/)
+- [[全职高手]问就是没钱](https://www.wkntmcb.com/book/48iv6p2/)
 - [微臣怜惜公主](https://www.wkntmcb.com/book/48iv5tl/)
-- [多梦你一会儿](https://www.wkntmcb.com/book/48iv5oc/)
-- [哥你不能不要我](https://www.wkntmcb.com/book/48iv4ha/)
 - [被鬼怪宠爱的漂亮书生](https://www.wkntmcb.com/book/48iv4d5/)
+- [大美人怀了enigma上司的崽](https://www.wkntmcb.com/book/48iv4c2/)
 - [炮灰的我该如何上位？](https://www.wkntmcb.com/book/48iv2nj/)
-- [隔壁班的松田君](https://www.wkntmcb.com/book/48iuum5/)
-- [某柯学的正义伙伴](https://www.wkntmcb.com/book/48iuuam/)
+- [亚当斯与韦恩的适配性](https://www.wkntmcb.com/book/48iv166/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.wkntmcb.com/book/48iuuls/)
+- [这谁的沙雕二次元心声！](https://www.wkntmcb.com/book/48iuul9/)
+- [虫族治愈师，但恐虫](https://www.wkntmcb.com/book/48iuuer/)
 - [[封神]圣人生欲](https://www.wkntmcb.com/book/48ius3c/)
 - [纯爱宇智波基本恋爱法](https://www.wkntmcb.com/book/48iupto/)
+- [老公是松散生命体](https://www.wkntmcb.com/book/48iuoto/)
 - [[足球]罗蜜第一志愿](https://www.wkntmcb.com/book/48iun4t/)
 - [被四皇错看成小动物后](https://www.wkntmcb.com/book/48iumvm/)
 - [井闼山经理每天都被挖墙脚](https://www.wkntmcb.com/book/48iukap/)
+- [[综英美]让我统治哥谭！！！](https://www.wkntmcb.com/book/48iuer6/)
 - [好兄弟暴富后非要跟我结婚](https://www.wkntmcb.com/book/48iu8rs/)
+- [关于我虚构了一个男友这件事](https://www.wkntmcb.com/book/48iu7tf/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1339/index.md)

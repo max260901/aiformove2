@@ -1,19 +1,22 @@
 
 # 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
 
-更新时间：2026-09-02 03:20:35
+更新时间：2026-09-03 03:20:35
 
 瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！
 
 - [瑞文文学网](https://www.49ig.com/)
 
 ## 最新小说
-- [死遁后，师弟他不哄不停](https://www.49ig.com/book/436ds2c/)
-- [宠妃岂敢压我！](https://www.49ig.com/book/436ds21/)
-- [假少爷有特殊的算命技巧](https://www.49ig.com/book/436drvl/)
+- [上个鬼班[无限]](https://www.49ig.com/book/436e11a/)
+- [[足球]足坛人生模拟器](https://www.49ig.com/book/436e0c2/)
+- [让暴君Alpha怀崽后](https://www.49ig.com/book/436dr4g/)
+- [娇美人换嫁七零大佬后](https://www.49ig.com/book/436dovh/)
 - [从维多利亚时代开始](https://www.49ig.com/book/436dj9u/)
-- [九零重组小家庭](https://www.49ig.com/book/436ddsl/)
-- [发家致富小夫郎](https://www.49ig.com/book/436d78h/)
+- [昭暮](https://www.49ig.com/book/436deq2/)
+- [边关小夫郎](https://www.49ig.com/book/436d78h/)
+- [食明](https://www.49ig.com/book/436d4km/)
+- [诡话第一boss](https://www.49ig.com/book/436d19r/)
 - [神豪文男主是我爸](https://www.49ig.com/book/436ctia/)
 - [我夫君怎会是龙傲天？](https://www.49ig.com/book/436ctda/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.49ig.com/book/436ct4h/)
@@ -37,7 +40,6 @@
 - [师姐她怎么还不来追求我](https://www.49ig.com/book/436crpu/)
 - [和光太郎谈恋爱](https://www.49ig.com/book/436crp7/)
 - [万人嫌女配深陷修罗场](https://www.49ig.com/book/436crnf/)
-- [乖乖小宝被豪门长兄娇养了](https://www.49ig.com/book/436crke/)
 - [痴情女配开始放手了（快穿）](https://www.49ig.com/book/436crjn/)
 - [下潜一万米，海渊求生](https://www.49ig.com/book/436crh3/)
 - [无限回档，我把自己刷成了女帝](https://www.49ig.com/book/436crft/)
@@ -77,14 +79,15 @@
 - [我写小说纯粹为了赚钱](https://www.49ig.com/book/436cj10/)
 - [寄人篱下](https://www.49ig.com/book/436chqu/)
 - [第一游侠[全息]](https://www.49ig.com/book/436ch52/)
+- [韩团绿卡不想忍了](https://www.49ig.com/book/436cd06/)
 - [误标记隔壁阿姨O之后](https://www.49ig.com/book/436cbr4/)
 - [高嫁之后](https://www.49ig.com/book/436cato/)
-- [[全职高手]霸图老板是叶修](https://www.49ig.com/book/436c99o/)
 - [假金丝雀深陷修罗场](https://www.49ig.com/book/436c8ud/)
 - [不当救世主就要当人类恶了吗](https://www.49ig.com/book/436c7cp/)
 - [十福晋吃瓜日常(清穿)](https://www.49ig.com/book/436c71u/)
 - [当菟丝花要分手后](https://www.49ig.com/book/436c6rk/)
 - [当我穿为龙傲天的情敌](https://www.49ig.com/book/436c5qn/)
+- [社恐直播鉴宝，但带球跑](https://www.49ig.com/book/436c5g1/)
 - [[综英美]让我统治哥谭！！！](https://www.49ig.com/book/436c480/)
 - [霓虹夏日](https://www.49ig.com/book/436c1uu/)
 - [我司艺人永不塌房](https://www.49ig.com/book/436bvbi/)
@@ -124,7 +127,6 @@
 - [我不是御兽大师](https://www.49ig.com/book/436ambd/)
 - [穿越废星，我靠种田求生](https://www.49ig.com/book/436am5q/)
 - [满级大佬制霸热血运动番](https://www.49ig.com/book/436aluq/)
-- [始皇闺女躺平失败的日子](https://www.49ig.com/book/436alou/)
 - [我真的只会Ctrl啊！！！](https://www.49ig.com/book/436alog/)
 - [如果时光不记得](https://www.49ig.com/book/436akqf/)
 - [徐娘子的美食发家日常](https://www.49ig.com/book/436ahtl/)
@@ -150,7 +152,6 @@
 - [高调装神，猥琐发育](https://www.49ig.com/book/4369798/)
 - [趁她之危](https://www.49ig.com/book/436976s/)
 - [[娱乐圈]过分美丽的她](https://www.49ig.com/book/436975g/)
-- [穿成炮灰后我封神了［快穿］](https://www.49ig.com/book/4369746/)
 - [在民俗惊悚片被诸神庇护](https://www.49ig.com/book/43696ve/)
 - [六零之成了卷王的妹妹](https://www.49ig.com/book/43696pr/)
 - [95美国贵族高中模拟](https://www.49ig.com/book/43696pa/)
@@ -162,7 +163,6 @@
 - [日化人生[科研]](https://www.49ig.com/book/43696ck/)
 - [全民求生:从小木屋到魔法农场](https://www.49ig.com/book/436968e/)
 - [大瑛弟国](https://www.49ig.com/book/436965v/)
-- [御兽师，我打工养你啊](https://www.49ig.com/book/4369622/)
 - [成为养成系练习生后](https://www.49ig.com/book/43695od/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.49ig.com/book/43695jp/)
 - [五十年代港城日常](https://www.49ig.com/book/43695i9/)
