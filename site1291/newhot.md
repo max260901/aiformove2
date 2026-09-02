@@ -1,7 +1,7 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-09-02 03:33:57
+更新时间：2026-09-03 03:34:00
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
@@ -12,27 +12,27 @@
 - [井闼山经理每天都被挖墙脚](https://www.qingyuchun.com/book/10578j3/)
 - [阿竹与野桃](https://www.qingyuchun.com/book/10578iq/)
 - [失而复得的白月光[快穿]](https://www.qingyuchun.com/book/10578ho/)
+- [[综英美]让我统治哥谭！！！](https://www.qingyuchun.com/book/10578hk/)
+- [暴君偏头痛](https://www.qingyuchun.com/book/10578gl/)
 - [从异世界穿回来后](https://www.qingyuchun.com/book/10578fh/)
 - [[封神]圣人生欲](https://www.qingyuchun.com/book/10578eh/)
 - [星际团宠小人鱼](https://www.qingyuchun.com/book/10578e2/)
 - [你，后室管理员](https://www.qingyuchun.com/book/10578dr/)
-- [原配夫人](https://www.qingyuchun.com/book/10578do/)
 - [被四皇错看成小动物后](https://www.qingyuchun.com/book/10578d8/)
-- [高调装神，猥琐发育](https://www.qingyuchun.com/book/10578ce/)
 - [直男咒术师的限制级游戏](https://www.qingyuchun.com/book/105789t/)
+- [阴郁路人不想被喜欢](https://www.qingyuchun.com/book/105788l/)
 - [纯爱宇智波基本恋爱法](https://www.qingyuchun.com/book/105788k/)
-- [某柯学的正义伙伴](https://www.qingyuchun.com/book/1054fqs/)
-- [男朋友买一送一](https://www.qingyuchun.com/book/1054421/)
-- [我有嘉宾](https://www.qingyuchun.com/book/1053upq/)
+- [昭暮](https://www.qingyuchun.com/book/1056tbq/)
+- [乱步他哥，但武力值max](https://www.qingyuchun.com/book/10546df/)
 - [沈助理又在隐藏他的超能力](https://www.qingyuchun.com/book/36vlen/)
-- [系统不许我摆烂](https://www.qingyuchun.com/book/36vilg/)
-- [逝水](https://www.qingyuchun.com/book/36v8tb/)
-- [隔壁班的松田君](https://www.qingyuchun.com/book/36uu0k/)
-- [你也没死？](https://www.qingyuchun.com/book/36us0l/)
-- [误入反派培养直播后](https://www.qingyuchun.com/book/36ufnk/)
-- [多梦你一会儿](https://www.qingyuchun.com/book/36ub5l/)
+- [在立海大玩网球模拟器](https://www.qingyuchun.com/book/36vai5/)
+- [奶奶蛋糕店[美食]](https://www.qingyuchun.com/book/36v9rs/)
+- [[全职高手]问就是没钱](https://www.qingyuchun.com/book/36v46a/)
+- [虫族治愈师，但恐虫](https://www.qingyuchun.com/book/36us7v/)
+- [这谁的沙雕二次元心声！](https://www.qingyuchun.com/book/36uon7/)
+- [老公是松散生命体](https://www.qingyuchun.com/book/36umob/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.qingyuchun.com/book/36uate/)
 - [[足球]罗蜜第一志愿](https://www.qingyuchun.com/book/36u8i7/)
-- [哥你不能不要我](https://www.qingyuchun.com/book/36tlq2/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1291/index.md)

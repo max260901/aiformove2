@@ -1,7 +1,7 @@
 
 # 思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-02 03:20:48
+更新时间：2026-09-03 03:20:48
 
 思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。
 
@@ -9,6 +9,8 @@
 
 ## 最新小说
 - [阿竹与野桃](https://www.968577.com/book/1b28mf4/)
+- [[综英美]让我统治哥谭！！！](https://www.968577.com/book/1b28me6/)
+- [暴君偏头痛](https://www.968577.com/book/1b28me1/)
 - [井闼山经理每天都被挖墙脚](https://www.968577.com/book/1b28mca/)
 - [躲避原书剧情五年后](https://www.968577.com/book/1b28mbs/)
 - [失而复得的白月光[快穿]](https://www.968577.com/book/1b28mbi/)
@@ -16,23 +18,21 @@
 - [星际团宠小人鱼](https://www.968577.com/book/1b28m9j/)
 - [你，后室管理员](https://www.968577.com/book/1b28m9i/)
 - [[封神]圣人生欲](https://www.968577.com/book/1b28m9c/)
-- [原配夫人](https://www.968577.com/book/1b28m90/)
-- [高调装神，猥琐发育](https://www.968577.com/book/1b28m8g/)
 - [从异世界穿回来后](https://www.968577.com/book/1b28m5n/)
 - [纯爱宇智波基本恋爱法](https://www.968577.com/book/1b28m3q/)
 - [直男咒术师的限制级游戏](https://www.968577.com/book/1b28m3a/)
-- [某柯学的正义伙伴](https://www.968577.com/book/1b25thr/)
-- [男朋友买一送一](https://www.968577.com/book/1b25gnd/)
-- [我有嘉宾](https://www.968577.com/book/1b25arh/)
+- [阴郁路人不想被喜欢](https://www.968577.com/book/1b28m37/)
+- [昭暮](https://www.968577.com/book/1b28b9l/)
+- [乱步他哥，但武力值max](https://www.968577.com/book/1b25mtn/)
 - [沈助理又在隐藏他的超能力](https://www.968577.com/book/49sk3i/)
-- [系统不许我摆烂](https://www.968577.com/book/49sja7/)
-- [逝水](https://www.968577.com/book/49s6fb/)
-- [隔壁班的松田君](https://www.968577.com/book/49rsrb/)
-- [你也没死？](https://www.968577.com/book/49rnpe/)
-- [误入反派培养直播后](https://www.968577.com/book/49rdi5/)
-- [多梦你一会儿](https://www.968577.com/book/49r9le/)
+- [在立海大玩网球模拟器](https://www.968577.com/book/49s914/)
+- [奶奶蛋糕店[美食]](https://www.968577.com/book/49s7hq/)
+- [[全职高手]问就是没钱](https://www.968577.com/book/49s0b5/)
+- [虫族治愈师，但恐虫](https://www.968577.com/book/49rsmg/)
+- [这谁的沙雕二次元心声！](https://www.968577.com/book/49rlcv/)
+- [老公是松散生命体](https://www.968577.com/book/49rl15/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.968577.com/book/49rb8e/)
 - [[足球]罗蜜第一志愿](https://www.968577.com/book/49r7cu/)
-- [哥你不能不要我](https://www.968577.com/book/49ql9h/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1294/index.md)

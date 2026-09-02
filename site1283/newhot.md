@@ -1,38 +1,38 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-02 03:22:56
+更新时间：2026-09-03 03:22:57
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
 - [书包网](https://www.cialisgs.com/)
 
 ## 最新小说
+- [暴君偏头痛](https://www.cialisgs.com/book/89ru3nq/)
 - [阿竹与野桃](https://www.cialisgs.com/book/89ru3ng/)
 - [井闼山经理每天都被挖墙脚](https://www.cialisgs.com/book/89ru3nb/)
+- [[综英美]让我统治哥谭！！！](https://www.cialisgs.com/book/89ru3n0/)
 - [失而复得的白月光[快穿]](https://www.cialisgs.com/book/89ru3mg/)
 - [躲避原书剧情五年后](https://www.cialisgs.com/book/89ru3lp/)
 - [星际团宠小人鱼](https://www.cialisgs.com/book/89ru3is/)
 - [被四皇错看成小动物后](https://www.cialisgs.com/book/89ru3im/)
-- [原配夫人](https://www.cialisgs.com/book/89ru3ik/)
 - [你，后室管理员](https://www.cialisgs.com/book/89ru3hl/)
 - [[封神]圣人生欲](https://www.cialisgs.com/book/89ru3h9/)
 - [从异世界穿回来后](https://www.cialisgs.com/book/89ru3fd/)
-- [高调装神，猥琐发育](https://www.cialisgs.com/book/89ru3ed/)
 - [直男咒术师的限制级游戏](https://www.cialisgs.com/book/89ru3bn/)
 - [纯爱宇智波基本恋爱法](https://www.cialisgs.com/book/89ru3bi/)
-- [某柯学的正义伙伴](https://www.cialisgs.com/book/89rr9va/)
-- [男朋友买一送一](https://www.cialisgs.com/book/89rqtil/)
-- [我有嘉宾](https://www.cialisgs.com/book/89rqrmr/)
-- [系统不许我摆烂](https://www.cialisgs.com/book/qirhv2/)
+- [阴郁路人不想被喜欢](https://www.cialisgs.com/book/89ru3ba/)
+- [昭暮](https://www.cialisgs.com/book/89rtoen/)
+- [乱步他哥，但武力值max](https://www.cialisgs.com/book/89rr2h6/)
 - [沈助理又在隐藏他的超能力](https://www.cialisgs.com/book/qirhaa/)
-- [逝水](https://www.cialisgs.com/book/qir7g6/)
-- [隔壁班的松田君](https://www.cialisgs.com/book/qiqnts/)
-- [你也没死？](https://www.cialisgs.com/book/qiqlqf/)
-- [误入反派培养直播后](https://www.cialisgs.com/book/qiq9o8/)
+- [在立海大玩网球模拟器](https://www.cialisgs.com/book/qir6b0/)
+- [奶奶蛋糕店[美食]](https://www.cialisgs.com/book/qir530/)
+- [[全职高手]问就是没钱](https://www.cialisgs.com/book/qir13j/)
+- [虫族治愈师，但恐虫](https://www.cialisgs.com/book/qiqsao/)
+- [老公是松散生命体](https://www.cialisgs.com/book/qiqkpk/)
+- [这谁的沙雕二次元心声！](https://www.cialisgs.com/book/qiqk7h/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.cialisgs.com/book/qiq8en/)
 - [[足球]罗蜜第一志愿](https://www.cialisgs.com/book/qiq7jp/)
-- [多梦你一会儿](https://www.cialisgs.com/book/qiq6i6/)
-- [哥你不能不要我](https://www.cialisgs.com/book/qipjq5/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1283/index.md)

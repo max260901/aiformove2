@@ -1,19 +1,22 @@
 
 # 都来读小说网 - 免费电子书阅读平台
 
-更新时间：2026-09-02 03:37:20
+更新时间：2026-09-03 03:37:24
 
 都来读小说网提供快速更新的海量免费小说资源，主要以TXT格式为主，致力于为读者带来优质的阅读体验。
 
 - [都来读小说网](https://www.swazs.com/)
 
 ## 最新小说
-- [宠妃岂敢压我！](https://www.swazs.com/book/1u7k6fb/)
-- [假少爷有特殊的算命技巧](https://www.swazs.com/book/1u7k6cr/)
-- [死遁后，师弟他不哄不停](https://www.swazs.com/book/1u7k6b5/)
+- [上个鬼班[无限]](https://www.swazs.com/book/1u7kb9e/)
+- [[足球]足坛人生模拟器](https://www.swazs.com/book/1u7kapv/)
+- [让暴君Alpha怀崽后](https://www.swazs.com/book/1u7k5ei/)
+- [娇美人换嫁七零大佬后](https://www.swazs.com/book/1u7k3bj/)
 - [从维多利亚时代开始](https://www.swazs.com/book/1u7jtiv/)
-- [九零重组小家庭](https://www.swazs.com/book/1u7jodm/)
-- [发家致富小夫郎](https://www.swazs.com/book/1u7jhie/)
+- [昭暮](https://www.swazs.com/book/1u7jp19/)
+- [边关小夫郎](https://www.swazs.com/book/1u7jhie/)
+- [食明](https://www.swazs.com/book/1u7jevl/)
+- [诡话第一boss](https://www.swazs.com/book/1u7jbn8/)
 - [无限回档，我把自己刷成了女帝](https://www.swazs.com/book/1u7j7o0/)
 - [神豪文男主是我爸](https://www.swazs.com/book/1u7j78a/)
 - [我的烧烤摊超美味[美食]](https://www.swazs.com/book/1u7j753/)
@@ -68,7 +71,6 @@
 - [异种新婚报告](https://www.swazs.com/book/1u7j54q/)
 - [撕碎[刑侦]](https://www.swazs.com/book/1u7j54l/)
 - [[三国]清澈，但千古一帝](https://www.swazs.com/book/1u7j53u/)
-- [乖乖小宝被豪门长兄娇养了](https://www.swazs.com/book/1u7j53k/)
 - [枕边热吻](https://www.swazs.com/book/1u7j3mf/)
 - [绿叶](https://www.swazs.com/book/1u7j3ca/)
 - [摄政王家的咸鱼夫郎](https://www.swazs.com/book/1u7j2cu/)
@@ -77,13 +79,14 @@
 - [我写小说纯粹为了赚钱](https://www.swazs.com/book/1u7ittr/)
 - [寄人篱下](https://www.swazs.com/book/1u7ipd9/)
 - [第一游侠[全息]](https://www.swazs.com/book/1u7ipc5/)
+- [韩团绿卡不想忍了](https://www.swazs.com/book/1u7ioj0/)
 - [高嫁之后](https://www.swazs.com/book/1u7il5t/)
 - [误标记隔壁阿姨O之后](https://www.swazs.com/book/1u7ikcq/)
-- [[全职高手]霸图老板是叶修](https://www.swazs.com/book/1u7ijk8/)
 - [假金丝雀深陷修罗场](https://www.swazs.com/book/1u7ij79/)
 - [当菟丝花要分手后](https://www.swazs.com/book/1u7ii70/)
 - [十福晋吃瓜日常(清穿)](https://www.swazs.com/book/1u7ih7f/)
 - [不当救世主就要当人类恶了吗](https://www.swazs.com/book/1u7igvp/)
+- [社恐直播鉴宝，但带球跑](https://www.swazs.com/book/1u7iggu/)
 - [当我穿为龙傲天的情敌](https://www.swazs.com/book/1u7ifl2/)
 - [[综英美]让我统治哥谭！！！](https://www.swazs.com/book/1u7iees/)
 - [霓虹夏日](https://www.swazs.com/book/1u7idak/)
@@ -121,7 +124,6 @@
 - [直男误入攻略天龙人游戏](https://www.swazs.com/book/1u7h28o/)
 - [满级大佬制霸热血运动番](https://www.swazs.com/book/1u7h137/)
 - [反派人生，易如反掌[快穿]](https://www.swazs.com/book/1u7h0gi/)
-- [始皇闺女躺平失败的日子](https://www.swazs.com/book/1u7h0dh/)
 - [萩原警官的咒术大冒险](https://www.swazs.com/book/1u7h09l/)
 - [穿越废星，我靠种田求生](https://www.swazs.com/book/1u7h024/)
 - [我不是御兽大师](https://www.swazs.com/book/1u7gvsa/)
@@ -145,7 +147,6 @@
 - [猫猫也要养家糊口](https://www.swazs.com/book/1u7fige/)
 - [海岛求生：生活玩家种田囤货](https://www.swazs.com/book/1u7fia2/)
 - [星际团宠小人鱼](https://www.swazs.com/book/1u7fi8l/)
-- [御兽师，我打工养你啊](https://www.swazs.com/book/1u7fi42/)
 - [清澈女大的六零年代](https://www.swazs.com/book/1u7fi1e/)
 - [千禧年，拆迁分了十栋楼！](https://www.swazs.com/book/1u7fhib/)
 - [趁她之危](https://www.swazs.com/book/1u7fhf1/)
@@ -167,7 +168,6 @@
 - [古代种田养娃日常](https://www.swazs.com/book/1u7ffua/)
 - [成为养成系练习生后](https://www.swazs.com/book/1u7fftb/)
 - [高调装神，猥琐发育](https://www.swazs.com/book/1u7fft4/)
-- [穿成炮灰后我封神了［快穿］](https://www.swazs.com/book/1u7ffnu/)
 - [大瑛弟国](https://www.swazs.com/book/1u7ffko/)
 - [为诡异打工，但反封建迷信](https://www.swazs.com/book/1u7ffif/)
 ## 相关内容

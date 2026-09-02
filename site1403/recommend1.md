@@ -1,19 +1,22 @@
 
 # 微雨数据小说,新笔趣小说阅读网,顶点小说网备份-热门小说大全
 
-更新时间：2026-09-02 03:38:34
+更新时间：2026-09-03 03:38:39
 
 微雨数据小说网作为广大书友喜爱的平台之一，同时也是顶点小说阅读网的官方备份网站，汇集了当前最受欢迎和最火热的小说资源。当遇到顶点小说网无法访问时，请访问笔趣看小说网继续享受精彩内容！
 
 - [微雨数据小说](https://www.weiyushuju.com/)
 
 ## 最新小说
-- [死遁后，师弟他不哄不停](https://www.weiyushuju.com/book/6rf6u8e/)
-- [假少爷有特殊的算命技巧](https://www.weiyushuju.com/book/6rf6u67/)
-- [宠妃岂敢压我！](https://www.weiyushuju.com/book/6rf6u33/)
+- [上个鬼班[无限]](https://www.weiyushuju.com/book/6rf737i/)
+- [[足球]足坛人生模拟器](https://www.weiyushuju.com/book/6rf72l3/)
+- [让暴君Alpha怀崽后](https://www.weiyushuju.com/book/6rf6t44/)
+- [娇美人换嫁七零大佬后](https://www.weiyushuju.com/book/6rf6r95/)
 - [从维多利亚时代开始](https://www.weiyushuju.com/book/6rf6lb0/)
-- [九零重组小家庭](https://www.weiyushuju.com/book/6rf6g0r/)
-- [发家致富小夫郎](https://www.weiyushuju.com/book/6rf696a/)
+- [昭暮](https://www.weiyushuju.com/book/6rf6h2g/)
+- [边关小夫郎](https://www.weiyushuju.com/book/6rf696a/)
+- [食明](https://www.weiyushuju.com/book/6rf66ja/)
+- [诡话第一boss](https://www.weiyushuju.com/book/6rf63fq/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.weiyushuju.com/book/6rf5vmv/)
 - [灭世龙崽有什么错](https://www.weiyushuju.com/book/6rf5vks/)
 - [[娱乐圈]穿进同人文里哦多尅](https://www.weiyushuju.com/book/6rf5vih/)
@@ -52,7 +55,6 @@
 - [始乱终弃高岭之花以后](https://www.weiyushuju.com/book/6rf5tol/)
 - [影帝今天分手了吗[娱乐圈]](https://www.weiyushuju.com/book/6rf5thr/)
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.weiyushuju.com/book/6rf5tgr/)
-- [乖乖小宝被豪门长兄娇养了](https://www.weiyushuju.com/book/6rf5tg9/)
 - [退婚流龙傲天，但未婚夫是我](https://www.weiyushuju.com/book/6rf5tff/)
 - [在千禧年的伦敦当女巫](https://www.weiyushuju.com/book/6rf5tdo/)
 - [女先生](https://www.weiyushuju.com/book/6rf5tc9/)
@@ -77,15 +79,16 @@
 - [我写小说纯粹为了赚钱](https://www.weiyushuju.com/book/6rf5muu/)
 - [第一游侠[全息]](https://www.weiyushuju.com/book/6rf5j02/)
 - [寄人篱下](https://www.weiyushuju.com/book/6rf5imt/)
+- [韩团绿卡不想忍了](https://www.weiyushuju.com/book/6rf5gdq/)
 - [高嫁之后](https://www.weiyushuju.com/book/6rf5d48/)
 - [误标记隔壁阿姨O之后](https://www.weiyushuju.com/book/6rf5d2d/)
-- [[全职高手]霸图老板是叶修](https://www.weiyushuju.com/book/6rf5c7p/)
 - [当菟丝花要分手后](https://www.weiyushuju.com/book/6rf5a27/)
 - [十福晋吃瓜日常(清穿)](https://www.weiyushuju.com/book/6rf5a17/)
 - [不当救世主就要当人类恶了吗](https://www.weiyushuju.com/book/6rf59le/)
 - [假金丝雀深陷修罗场](https://www.weiyushuju.com/book/6rf58vd/)
 - [[综英美]让我统治哥谭！！！](https://www.weiyushuju.com/book/6rf57bn/)
 - [当我穿为龙傲天的情敌](https://www.weiyushuju.com/book/6rf5667/)
+- [社恐直播鉴宝，但带球跑](https://www.weiyushuju.com/book/6rf55ep/)
 - [霓虹夏日](https://www.weiyushuju.com/book/6rf556s/)
 - [我司艺人永不塌房](https://www.weiyushuju.com/book/6rf52fa/)
 - [养成游戏，但破解版](https://www.weiyushuju.com/book/6rf4vru/)
@@ -126,7 +129,6 @@
 - [穿越废星，我靠种田求生](https://www.weiyushuju.com/book/6rf3nnf/)
 - [我真的只会Ctrl啊！！！](https://www.weiyushuju.com/book/6rf3nhe/)
 - [反派人生，易如反掌[快穿]](https://www.weiyushuju.com/book/6rf3mmd/)
-- [始皇闺女躺平失败的日子](https://www.weiyushuju.com/book/6rf3mju/)
 - [徐娘子的美食发家日常](https://www.weiyushuju.com/book/6rf3leh/)
 - [[足球]没头脑和不高兴](https://www.weiyushuju.com/book/6rf3iqv/)
 - [搭档，一起来玩求生游戏吧！](https://www.weiyushuju.com/book/6rf3hi5/)
@@ -150,10 +152,8 @@
 - [为诡异打工，但反封建迷信](https://www.weiyushuju.com/book/6rf29ds/)
 - [六零之成了卷王的妹妹](https://www.weiyushuju.com/book/6rf293s/)
 - [千禧年，拆迁分了十栋楼！](https://www.weiyushuju.com/book/6rf28uh/)
-- [御兽师，我打工养你啊](https://www.weiyushuju.com/book/6rf28ss/)
 - [九零首富的替嫁小媳妇](https://www.weiyushuju.com/book/6rf28lu/)
 - [巨物致富：回乡开钓场](https://www.weiyushuju.com/book/6rf28jc/)
-- [穿成炮灰后我封神了［快穿］](https://www.weiyushuju.com/book/6rf28hb/)
 - [清澈女大的六零年代](https://www.weiyushuju.com/book/6rf28gp/)
 - [高门小婢](https://www.weiyushuju.com/book/6rf28ev/)
 - [[娱乐圈]过分美丽的她](https://www.weiyushuju.com/book/6rf28cs/)
