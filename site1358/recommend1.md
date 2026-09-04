@@ -1,7 +1,7 @@
 
 # 哲理书客吧-全本小说免费阅读及txt下载,最新章节无弹窗
 
-更新时间：2026-09-04 03:45:30
+更新时间：2026-09-05 03:46:34
 
 哲理书客吧提供最快更新的热门网络小说最新章节，支持全本小说在线免费阅读与txt电子书打包下载服务。收录多本经典好看的小说，并承诺无广告弹窗清爽阅读体验，是小说爱好者的理想选择。
 
@@ -101,7 +101,7 @@
 - [我与龙傲天寿命共享](https://www.zheli518.com/book/4taojiu/)
 - [如何正确哄睡暴君](https://www.zheli518.com/book/4taofv8/)
 - [九零首富的替嫁小媳妇](https://www.zheli518.com/book/4taoc4n/)
-- [枕边热吻](https://www.zheli518.com/book/4taobmh/)
+- [怀了前任大哥的崽后](https://www.zheli518.com/book/4taobmh/)
 - [死遁的亡夫们都回来了](https://www.zheli518.com/book/4taoblf/)
 - [我骗家里的钱养你啊](https://www.zheli518.com/book/4tao9rp/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.zheli518.com/book/4tao9i0/)

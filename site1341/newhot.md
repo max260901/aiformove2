@@ -1,7 +1,7 @@
 
 # 春日书屋-免费热门小说在线阅读平台|晋江文学|全本免费畅读
 
-更新时间：2026-09-04 03:35:38
+更新时间：2026-09-05 03:36:40
 
 春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！
 
@@ -20,7 +20,7 @@
 - [[崩铁]请给玩家一个准确的血条！](https://www.shenyuanhg.com/book/7gie9e7/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.shenyuanhg.com/book/7gie9e5/)
 - [暴君偏头痛](https://www.shenyuanhg.com/book/7gie8jd/)
-- [阿竹与野桃](https://www.shenyuanhg.com/book/7gie8hp/)
+- [渡鬼](https://www.shenyuanhg.com/book/7gie8h2/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shenyuanhg.com/book/7gie8g9/)
 - [我的烧烤摊超美味[美食]](https://www.shenyuanhg.com/book/7gie8g0/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.shenyuanhg.com/book/7gie7ae/)
@@ -155,7 +155,6 @@
 - [巨龙宝藏是个小社恐](https://www.shenyuanhg.com/book/7gibp29/)
 - [被子同学](https://www.shenyuanhg.com/book/7gibovg/)
 - [七零知青有空间](https://www.shenyuanhg.com/book/7giboed/)
-- [咸鱼受只想摆烂](https://www.shenyuanhg.com/book/7gibo6l/)
 - [[综武侠]换装之江湖遍地是小号](https://www.shenyuanhg.com/book/7gibo4p/)
 - [被迫扮演病娇以后[快穿]](https://www.shenyuanhg.com/book/7gibnr9/)
 - [被迫跟死对头结婚后](https://www.shenyuanhg.com/book/7gibnr3/)
@@ -418,7 +417,6 @@
 - [普通高中生，但兼职咒术师](https://www.shenyuanhg.com/book/7giap3i/)
 - [顶流他姐有神豪系统](https://www.shenyuanhg.com/book/7giap2k/)
 - [穿成影后的作死前妻](https://www.shenyuanhg.com/book/7giap0c/)
-- [在狗血文里躺平[人外]](https://www.shenyuanhg.com/book/7gian7h/)
 - [某柯学的正义伙伴](https://www.shenyuanhg.com/book/7giamg6/)
 - [青空来信](https://www.shenyuanhg.com/book/7giamcb/)
 - [[封神]圣人生欲](https://www.shenyuanhg.com/book/7giambt/)
@@ -433,6 +431,7 @@
 - [战死的阿爹回来了[年代]](https://www.shenyuanhg.com/book/7giab63/)
 - [[综英美]让我统治哥谭！！！](https://www.shenyuanhg.com/book/7gia9oi/)
 - [盛夏晴浓](https://www.shenyuanhg.com/book/7gia8so/)
+- [好巧，你也是妹控？[综崩铁]](https://www.shenyuanhg.com/book/7gia69b/)
 - [关于我虚构了一个男友这件事](https://www.shenyuanhg.com/book/7gia3oe/)
 - [求生游戏：当邪神成为生活玩家后](https://www.shenyuanhg.com/book/7gia2tu/)
 - [好兄弟暴富后非要跟我结婚](https://www.shenyuanhg.com/book/7gia1jf/)

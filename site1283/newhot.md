@@ -1,7 +1,7 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-04 03:23:17
+更新时间：2026-09-05 03:24:25
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
@@ -22,11 +22,11 @@
 - [我骗家里的钱养你啊](https://www.cialisgs.com/book/89ru3ob/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.cialisgs.com/book/89ru3o1/)
 - [暴君偏头痛](https://www.cialisgs.com/book/89ru3nq/)
-- [阿竹与野桃](https://www.cialisgs.com/book/89ru3ng/)
 - [[综英美]让我统治哥谭！！！](https://www.cialisgs.com/book/89ru3n0/)
 - [失而复得的白月光[快穿]](https://www.cialisgs.com/book/89ru3mg/)
 - [青城玩家明明超强却过分谨慎](https://www.cialisgs.com/book/89ru3m6/)
 - [躲避原书剧情五年后](https://www.cialisgs.com/book/89ru3lp/)
+- [渡鬼](https://www.cialisgs.com/book/89ru3k8/)
 - [我的烧烤摊超美味[美食]](https://www.cialisgs.com/book/89ru3j4/)
 - [星际团宠小人鱼](https://www.cialisgs.com/book/89ru3is/)
 - [被四皇错看成小动物后](https://www.cialisgs.com/book/89ru3im/)
@@ -248,7 +248,6 @@
 - [掉马后成了奥特带恶人](https://www.cialisgs.com/book/qira6l/)
 - [吃瓜也能整顿豪门？](https://www.cialisgs.com/book/qira42/)
 - [请别摘下超能力社恐的耳机](https://www.cialisgs.com/book/qira2o/)
-- [咸鱼受只想摆烂](https://www.cialisgs.com/book/qira29/)
 - [蜜蜂膝盖银子弹](https://www.cialisgs.com/book/qir9sc/)
 - [变成龙傲天的心上猫后](https://www.cialisgs.com/book/qir9ro/)
 - [糊咖爱豆用动物心声破案](https://www.cialisgs.com/book/qir9gq/)
@@ -407,7 +406,6 @@
 - [我靠玛丽苏系统伪装神女](https://www.cialisgs.com/book/qiqr3b/)
 - [当了卧底的我发现遍地熟人](https://www.cialisgs.com/book/qiqos0/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.cialisgs.com/book/qiqoo4/)
-- [在狗血文里躺平[人外]](https://www.cialisgs.com/book/qiqobk/)
 - [隔壁班的松田君](https://www.cialisgs.com/book/qiqnts/)
 - [你也没死？](https://www.cialisgs.com/book/qiqlqf/)
 - [老公是松散生命体](https://www.cialisgs.com/book/qiqkpk/)

@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-09-04 03:22:59
+更新时间：2026-09-05 03:24:08
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -20,7 +20,7 @@
 - [全世界名为爱的恶意](https://www.chuangyi1687.com/book/1hvgp0o/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.chuangyi1687.com/book/1hvgp0j/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.chuangyi1687.com/book/1hvgp0d/)
-- [阿竹与野桃](https://www.chuangyi1687.com/book/1hvgov0/)
+- [渡鬼](https://www.chuangyi1687.com/book/1hvgoun/)
 - [躲避原书剧情五年后](https://www.chuangyi1687.com/book/1hvgotm/)
 - [[综英美]让我统治哥谭！！！](https://www.chuangyi1687.com/book/1hvgota/)
 - [失而复得的白月光[快穿]](https://www.chuangyi1687.com/book/1hvgosl/)
@@ -239,7 +239,6 @@
 - [蜜蜂膝盖银子弹](https://www.chuangyi1687.com/book/500e9g/)
 - [少女妄想症](https://www.chuangyi1687.com/book/500e8d/)
 - [反派的病弱白月光重生了](https://www.chuangyi1687.com/book/500e5h/)
-- [咸鱼受只想摆烂](https://www.chuangyi1687.com/book/500dun/)
 - [七十年代娇美人](https://www.chuangyi1687.com/book/500dtq/)
 - [变成龙傲天的心上猫后](https://www.chuangyi1687.com/book/500dsk/)
 - [掉马后成了奥特带恶人](https://www.chuangyi1687.com/book/500ds4/)
@@ -405,7 +404,6 @@
 - [[足球]在比利时我们只玩天赋](https://www.chuangyi1687.com/book/4vvtci/)
 - [小狗向导，世界瑰宝！](https://www.chuangyi1687.com/book/4vvtb2/)
 - [国舅太难追了](https://www.chuangyi1687.com/book/4vvta4/)
-- [在狗血文里躺平[人外]](https://www.chuangyi1687.com/book/4vvssq/)
 - [隔壁班的松田君](https://www.chuangyi1687.com/book/4vvsmo/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.chuangyi1687.com/book/4vvsll/)
 - [当了卧底的我发现遍地熟人](https://www.chuangyi1687.com/book/4vvrtv/)

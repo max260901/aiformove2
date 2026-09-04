@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-09-04 03:44:55
+更新时间：2026-09-05 03:45:59
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
@@ -24,9 +24,9 @@
 - [从异世界穿回来后](https://www.yumin66.com/book/5q5nbe/)
 - [[综英美]让我统治哥谭！！！](https://www.yumin66.com/book/5q5nav/)
 - [暴君偏头痛](https://www.yumin66.com/book/5q5n9i/)
-- [阿竹与野桃](https://www.yumin66.com/book/5q5n90/)
 - [躲避原书剧情五年后](https://www.yumin66.com/book/5q5n8r/)
 - [青城玩家明明超强却过分谨慎](https://www.yumin66.com/book/5q5n86/)
+- [渡鬼](https://www.yumin66.com/book/5q5n7h/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yumin66.com/book/5q5n74/)
 - [[封神]圣人生欲](https://www.yumin66.com/book/5q5n5t/)
 - [你，后室管理员](https://www.yumin66.com/book/5q5n5l/)
@@ -233,7 +233,6 @@
 - [直播表现美强惨的我无欲无求](https://www.yumin66.com/book/ilo7b/)
 - [迫害系偶像排球部出道中](https://www.yumin66.com/book/ilo6f/)
 - [我养的龙是我老公[原神]](https://www.yumin66.com/book/ilo4c/)
-- [咸鱼受只想摆烂](https://www.yumin66.com/book/ilo1a/)
 - [父皇，我是gay](https://www.yumin66.com/book/ilnjt/)
 - [清穿纯妃养娃日常](https://www.yumin66.com/book/ilnis/)
 - [暗恋你](https://www.yumin66.com/book/ilnhn/)
@@ -409,7 +408,6 @@
 - [虫族治愈师，但恐虫](https://www.yumin66.com/book/il56p/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.yumin66.com/book/il4r3/)
 - [你也没死？](https://www.yumin66.com/book/il4h3/)
-- [在狗血文里躺平[人外]](https://www.yumin66.com/book/il45p/)
 - [这谁的沙雕二次元心声！](https://www.yumin66.com/book/il1eo/)
 - [老公是松散生命体](https://www.yumin66.com/book/ikvsh/)
 - [青空来信](https://www.yumin66.com/book/ikvcc/)

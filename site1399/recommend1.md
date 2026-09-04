@@ -1,7 +1,7 @@
 
 # 佚名奇书小说 - 免费更新的小说阅读网站
 
-更新时间：2026-09-04 03:43:37
+更新时间：2026-09-05 03:44:41
 
 佚名奇书小说提供全网各类热门小说在线阅读服务，支持免费观看。这里汇集了丰富的小说资源，包括但不限于都市、玄幻、武侠等多种类型，并且保证章节更新及时，页面设计清爽无广告干扰，是广大书友不可多得的好去处。
 
@@ -117,7 +117,7 @@
 - [被天使之王骗婚后[诡秘之主]](https://www.yimingeduai.com/book/6adkj74/)
 - [开局绑定郭奉孝，谋定三国风云](https://www.yimingeduai.com/book/6adkj0a/)
 - [死亡悖论[无限流]](https://www.yimingeduai.com/book/6adkh1f/)
-- [枕边热吻](https://www.yimingeduai.com/book/6adkgtl/)
+- [怀了前任大哥的崽后](https://www.yimingeduai.com/book/6adkgtl/)
 - [专业女配的自我修养（快穿）](https://www.yimingeduai.com/book/6adkgl8/)
 - [路人攻了主角攻［快穿］](https://www.yimingeduai.com/book/6adkda6/)
 - [我司艺人永不塌房](https://www.yimingeduai.com/book/6adkd7s/)

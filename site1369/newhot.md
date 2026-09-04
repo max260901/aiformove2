@@ -1,7 +1,7 @@
 
 # 武侠文学网 - 值得收藏的小说阅读平台
 
-更新时间：2026-09-04 03:41:31
+更新时间：2026-09-05 03:42:35
 
 武侠文学网为您提供丰富多样的小说资源，在这里您可以找到最新最热门的小说作品。无论是经典文学还是现代流行小说，都是您值得收藏的阅读选择。
 
@@ -31,8 +31,8 @@
 - [[足球]番外乐子集](https://www.wuxia988.com/book/1ms2v5l/)
 - [我超凶的！[快穿]](https://www.wuxia988.com/book/1ms2tbu/)
 - [我比反派先崩坏[快穿]](https://www.wuxia988.com/book/1ms2sio/)
+- [渡鬼](https://www.wuxia988.com/book/1ms2sab/)
 - [我的烧烤摊超美味[美食]](https://www.wuxia988.com/book/1ms2s89/)
-- [阿竹与野桃](https://www.wuxia988.com/book/1ms2s73/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wuxia988.com/book/1ms2s5j/)
 - [cos温迪后玩到真崩铁了](https://www.wuxia988.com/book/1ms2o4e/)
 - [从异世界穿回来后](https://www.wuxia988.com/book/1ms2ntr/)
@@ -133,7 +133,6 @@
 - [东映排球部](https://www.wuxia988.com/book/1ms0rr2/)
 - [来自深渊的救世者](https://www.wuxia988.com/book/1ms0rld/)
 - [妖怪崽崽种田日常](https://www.wuxia988.com/book/1ms0ra3/)
-- [咸鱼受只想摆烂](https://www.wuxia988.com/book/1ms0r38/)
 - [首辅大人怀中娇（重生）](https://www.wuxia988.com/book/1ms0r1g/)
 - [巨星渡灵师](https://www.wuxia988.com/book/1ms0r0c/)
 - [长公主的六零年代](https://www.wuxia988.com/book/1ms0qjl/)
@@ -422,7 +421,6 @@
 - [让我再吃一口](https://www.wuxia988.com/book/1mrvofj/)
 - [咒术师，但队友是侦探](https://www.wuxia988.com/book/1mrvo99/)
 - [末世山居日常](https://www.wuxia988.com/book/1mrvo8d/)
-- [在狗血文里躺平[人外]](https://www.wuxia988.com/book/1mrvnmv/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.wuxia988.com/book/1mrvngo/)
 - [刀子精手心的人偶崽崽](https://www.wuxia988.com/book/1mrvkhc/)
 - [求生游戏：当邪神成为生活玩家后](https://www.wuxia988.com/book/1mrvjpv/)
@@ -430,6 +428,7 @@
 - [[足球]小小鸟堂堂来袭](https://www.wuxia988.com/book/1mrvec2/)
 - [盛夏晴浓](https://www.wuxia988.com/book/1mrvdc3/)
 - [幼崽假少爷选择回归寒门](https://www.wuxia988.com/book/1mrvcsc/)
+- [好巧，你也是妹控？[综崩铁]](https://www.wuxia988.com/book/1mrvc91/)
 - [青城玩家明明超强却过分谨慎](https://www.wuxia988.com/book/1mrvaum/)
 - [矩阵干扰](https://www.wuxia988.com/book/1mrv9eb/)
 - [法外狂猫](https://www.wuxia988.com/book/1mrv92r/)

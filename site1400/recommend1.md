@@ -1,7 +1,7 @@
 
 # 都来读小说网 - 免费电子书阅读平台
 
-更新时间：2026-09-04 03:37:55
+更新时间：2026-09-05 03:38:57
 
 都来读小说网提供快速更新的海量免费小说资源，主要以TXT格式为主，致力于为读者带来优质的阅读体验。
 
@@ -86,7 +86,7 @@
 - [我们生活玩家是这样的](https://www.swazs.com/book/1u7j573/)
 - [如何正确哄睡暴君](https://www.swazs.com/book/1u7j4pf/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.swazs.com/book/1u7j4jm/)
-- [枕边热吻](https://www.swazs.com/book/1u7j3mf/)
+- [怀了前任大哥的崽后](https://www.swazs.com/book/1u7j3mf/)
 - [摄政王家的咸鱼夫郎](https://www.swazs.com/book/1u7j2cu/)
 - [[足球]我的游戏存档成真了？！](https://www.swazs.com/book/1u7j2ba/)
 - [死遁的亡夫们都回来了](https://www.swazs.com/book/1u7j12c/)

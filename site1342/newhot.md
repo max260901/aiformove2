@@ -1,7 +1,7 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-09-04 03:21:25
+更新时间：2026-09-05 03:22:32
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。
 
@@ -21,8 +21,8 @@
 - [［综英美］蝙蝠崽？我不是啊！](https://www.ashedao.com/book/99d3a4u/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.ashedao.com/book/99d39b0/)
 - [我的烧烤摊超美味[美食]](https://www.ashedao.com/book/99d3987/)
-- [阿竹与野桃](https://www.ashedao.com/book/99d396r/)
 - [暴君偏头痛](https://www.ashedao.com/book/99d396p/)
+- [渡鬼](https://www.ashedao.com/book/99d396o/)
 - [修仙界都为我神魂颠倒](https://www.ashedao.com/book/99d3806/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.ashedao.com/book/99d37vr/)
 - [穿成年代文奇葩前妻](https://www.ashedao.com/book/99d37ok/)
@@ -160,7 +160,6 @@
 - [绑定惊吓系统但对象狂涨好感有救吗](https://www.ashedao.com/book/99d0ood/)
 - [逝水](https://www.ashedao.com/book/99d0olf/)
 - [[综武侠]换装之江湖遍地是小号](https://www.ashedao.com/book/99d0okh/)
-- [咸鱼受只想摆烂](https://www.ashedao.com/book/99d0odg/)
 - [巨龙宝藏是个小社恐](https://www.ashedao.com/book/99d0od4/)
 - [恋爱脑他重生了](https://www.ashedao.com/book/99d0o6k/)
 - [被迫扮演病娇以后[快穿]](https://www.ashedao.com/book/99d0o5k/)
@@ -419,7 +418,6 @@
 - [末世山居日常](https://www.ashedao.com/book/99cvpnj/)
 - [转生成为伊路米的双生姐姐](https://www.ashedao.com/book/99cvpne/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.ashedao.com/book/99cvolk/)
-- [在狗血文里躺平[人外]](https://www.ashedao.com/book/99cvof0/)
 - [[封神]圣人生欲](https://www.ashedao.com/book/99cvnte/)
 - [某柯学的正义伙伴](https://www.ashedao.com/book/99cvn4r/)
 - [青空来信](https://www.ashedao.com/book/99cvn0q/)
@@ -433,6 +431,7 @@
 - [战死的阿爹回来了[年代]](https://www.ashedao.com/book/99cvc85/)
 - [盛夏晴浓](https://www.ashedao.com/book/99cv9or/)
 - [[综英美]让我统治哥谭！！！](https://www.ashedao.com/book/99cv8ni/)
+- [好巧，你也是妹控？[综崩铁]](https://www.ashedao.com/book/99cv7aj/)
 - [好兄弟暴富后非要跟我结婚](https://www.ashedao.com/book/99cv3n9/)
 - [求生游戏：当邪神成为生活玩家后](https://www.ashedao.com/book/99cv2le/)
 - [关于我虚构了一个男友这件事](https://www.ashedao.com/book/99cv2gb/)

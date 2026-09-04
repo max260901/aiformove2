@@ -1,7 +1,7 @@
 
 # 科幻188文学网-最新章节全文小说免费阅读
 
-更新时间：2026-09-04 03:29:30
+更新时间：2026-09-05 03:30:30
 
 科幻188文学网给广大网友提供最好的小说阅读服务，全站小说均可免费阅读且无任何弹窗干扰。这里是你寻找最新最全小说内容的理想之地。
 
@@ -32,8 +32,8 @@
 - [我超凶的！[快穿]](https://www.kehuan188.com/book/56q2u3k/)
 - [我比反派先崩坏[快穿]](https://www.kehuan188.com/book/56q2ta1/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kehuan188.com/book/56q2t1j/)
-- [阿竹与野桃](https://www.kehuan188.com/book/56q2t16/)
 - [我的烧烤摊超美味[美食]](https://www.kehuan188.com/book/56q2t12/)
+- [渡鬼](https://www.kehuan188.com/book/56q2suv/)
 - [cos温迪后玩到真崩铁了](https://www.kehuan188.com/book/56q2otk/)
 - [从异世界穿回来后](https://www.kehuan188.com/book/56q2om5/)
 - [我有嘉宾](https://www.kehuan188.com/book/56q2ocv/)
@@ -132,7 +132,6 @@
 - [在无限世界当晕倒羊](https://www.kehuan188.com/book/56q0sp4/)
 - [东映排球部](https://www.kehuan188.com/book/56q0slb/)
 - [来自深渊的救世者](https://www.kehuan188.com/book/56q0skl/)
-- [咸鱼受只想摆烂](https://www.kehuan188.com/book/56q0s1u/)
 - [你也没死？](https://www.kehuan188.com/book/56q0s0r/)
 - [歪剧情我是专业的[快穿]](https://www.kehuan188.com/book/56q0rop/)
 - [我绝不可能是只NPC](https://www.kehuan188.com/book/56q0rml/)
@@ -423,7 +422,6 @@
 - [高冷影后逼我标记她](https://www.kehuan188.com/book/56pvp3j/)
 - [癫骨](https://www.kehuan188.com/book/56pvp2n/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.kehuan188.com/book/56pvorm/)
-- [在狗血文里躺平[人外]](https://www.kehuan188.com/book/56pvmf8/)
 - [求生游戏：当邪神成为生活玩家后](https://www.kehuan188.com/book/56pvld1/)
 - [刀子精手心的人偶崽崽](https://www.kehuan188.com/book/56pvl7p/)
 - [我最讨厌打球了！](https://www.kehuan188.com/book/56pvjq7/)
@@ -431,6 +429,7 @@
 - [幼崽假少爷选择回归寒门](https://www.kehuan188.com/book/56pve7l/)
 - [盛夏晴浓](https://www.kehuan188.com/book/56pvdv4/)
 - [青城玩家明明超强却过分谨慎](https://www.kehuan188.com/book/56pvcdl/)
+- [好巧，你也是妹控？[综崩铁]](https://www.kehuan188.com/book/56pvbgc/)
 - [法外狂猫](https://www.kehuan188.com/book/56pv9vd/)
 - [矩阵干扰](https://www.kehuan188.com/book/56pv9fd/)
 - [侯府打工人](https://www.kehuan188.com/book/56pv9be/)

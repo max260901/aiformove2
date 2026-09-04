@@ -1,7 +1,7 @@
 
 # 科幻读书-免费小说阅读|言情小说|小说排行榜|全本完本小说下载
 
-更新时间：2026-09-04 03:29:45
+更新时间：2026-09-05 03:30:45
 
 科幻读书提供海量完结全本小说在线阅读服务，涵盖言情、都市、耽美、穿越等多种类型，并定期更新连载章节及发布最新小说排行榜单。支持有声小说推荐与下载。
 
@@ -103,7 +103,7 @@
 - [九零首富的替嫁小媳妇](https://www.kehuan918.com/book/1d546ro/)
 - [我骗家里的钱养你啊](https://www.kehuan918.com/book/1d546qe/)
 - [死遁的亡夫们都回来了](https://www.kehuan918.com/book/1d546gl/)
-- [枕边热吻](https://www.kehuan918.com/book/1d545ij/)
+- [怀了前任大哥的崽后](https://www.kehuan918.com/book/1d545ij/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.kehuan918.com/book/1d54446/)
 - [在民俗惊悚片被诸神庇护](https://www.kehuan918.com/book/1d53ssm/)
 - [死对头又在挑衅我](https://www.kehuan918.com/book/1d53sh7/)

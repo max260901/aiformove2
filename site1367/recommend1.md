@@ -1,7 +1,7 @@
 
 # 奇幻笔趣屋 - 书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-04 03:33:59
+更新时间：2026-09-05 03:35:00
 
 奇幻笔趣屋收录整理最新最全的热门网络小说，提供所有小说首发最新章节免费阅读服务，是书友们最值得收藏的小说阅读网站。
 
@@ -102,7 +102,7 @@
 - [如何正确哄睡暴君](https://www.qihuan958.com/book/4rars4v/)
 - [死遁的亡夫们都回来了](https://www.qihuan958.com/book/4rarkt2/)
 - [我骗家里的钱养你啊](https://www.qihuan958.com/book/4rarkcd/)
-- [枕边热吻](https://www.qihuan958.com/book/4rarjv0/)
+- [怀了前任大哥的崽后](https://www.qihuan958.com/book/4rarjv0/)
 - [九零首富的替嫁小媳妇](https://www.qihuan958.com/book/4rarjug/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.qihuan958.com/book/4rarjlt/)
 - [在民俗惊悚片被诸神庇护](https://www.qihuan958.com/book/4rarc7t/)

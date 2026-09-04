@@ -1,13 +1,16 @@
 
 # 零点看书吧-书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-04 03:25:24
+更新时间：2026-09-05 03:26:29
 
 零点看书吧是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节。作为无弹窗的小说阅读平台，零点看书吧成为网络小说爱好者必备的选择。
 
 - [零点看书吧](https://www.gjnbgb.com/)
 
 ## 最新小说
+- [这个替嫁让我来！](https://www.gjnbgb.com/book/2s9t7jr/)
+- [我拿的可是反派剧本](https://www.gjnbgb.com/book/2s9t7bv/)
+- [丧尸王有什么坏心思？](https://www.gjnbgb.com/book/2s9t6su/)
 - [禁止继承限制级雌君](https://www.gjnbgb.com/book/2s9t5er/)
 - [自知之明](https://www.gjnbgb.com/book/2s9t5dv/)
 - [等我吃腻了再倒闭可以吗](https://www.gjnbgb.com/book/2s9t5d2/)
@@ -36,7 +39,7 @@
 - [离开那个混蛋后](https://www.gjnbgb.com/book/2s9sjfe/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.gjnbgb.com/book/2s9shih/)
 - [我的烧烤摊超美味[美食]](https://www.gjnbgb.com/book/2s9shgh/)
-- [阿竹与野桃](https://www.gjnbgb.com/book/2s9shfu/)
+- [渡鬼](https://www.gjnbgb.com/book/2s9shfh/)
 - [穿成反派的亡夫后[虫族]](https://www.gjnbgb.com/book/2s9sge2/)
 - [氪成酒厂股东了怎么办](https://www.gjnbgb.com/book/2s9sg4h/)
 - [衍生穿越合订本](https://www.gjnbgb.com/book/2s9sg1t/)
@@ -136,7 +139,6 @@
 - [若清晨所见之蓝](https://www.gjnbgb.com/book/2s9qsfq/)
 - [歪剧情我是专业的[快穿]](https://www.gjnbgb.com/book/2s9qsaf/)
 - [妖怪崽崽种田日常](https://www.gjnbgb.com/book/2s9qrv6/)
-- [咸鱼受只想摆烂](https://www.gjnbgb.com/book/2s9qruu/)
 - [黑莲花在线演我](https://www.gjnbgb.com/book/2s9qrrp/)
 - [[综崩铁]谁家小鸟掉冥河了](https://www.gjnbgb.com/book/2s9qrrk/)
 - [被子同学](https://www.gjnbgb.com/book/2s9qro9/)
@@ -247,7 +249,6 @@
 - [荒谬神父是个渣](https://www.gjnbgb.com/book/2s9q9hq/)
 - [恶毒女配是绝色美人[快穿]](https://www.gjnbgb.com/book/2s9q9ep/)
 - [野比春子穿越事件簿](https://www.gjnbgb.com/book/2s9q95q/)
-- [穿为清冷影后的污点A](https://www.gjnbgb.com/book/2s9q94g/)
 - [我被厉鬼盯上了](https://www.gjnbgb.com/book/2s9q914/)
 - [在立海大玩网球模拟器](https://www.gjnbgb.com/book/2s9q8sr/)
 - [社畜，但是天才魔导师](https://www.gjnbgb.com/book/2s9q8rd/)
@@ -418,9 +419,9 @@
 - [吐槽役审神者会爆改幕后大boss吗](https://www.gjnbgb.com/book/2s9ppfc/)
 - [幼崽假少爷选择回归寒门](https://www.gjnbgb.com/book/2s9ppev/)
 - [求生游戏：当邪神成为生活玩家后](https://www.gjnbgb.com/book/2s9pp6i/)
-- [在狗血文里躺平[人外]](https://www.gjnbgb.com/book/2s9pobq/)
 - [[足球]小小鸟堂堂来袭](https://www.gjnbgb.com/book/2s9pml6/)
 - [青城玩家明明超强却过分谨慎](https://www.gjnbgb.com/book/2s9plvk/)
+- [好巧，你也是妹控？[综崩铁]](https://www.gjnbgb.com/book/2s9plru/)
 - [撕毁女配剧本的我被神之子读心了](https://www.gjnbgb.com/book/2s9pl2a/)
 - [矩阵干扰](https://www.gjnbgb.com/book/2s9pkov/)
 - [柯学剧本杀，但恋爱流打法](https://www.gjnbgb.com/book/2s9pk1s/)

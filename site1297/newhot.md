@@ -1,7 +1,7 @@
 
 # 笔趣阁_书友最值得收藏的网络小说阅读网_新笔趣阁5200
 
-更新时间：2026-09-04 03:28:23
+更新时间：2026-09-05 03:29:24
 
 笔趣阁是广大书友最值得收藏的网络小说阅读网，新笔趣阁网站收录了当前最火热的网络小说，笔趣阁5200免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -25,9 +25,9 @@
 - [躲避原书剧情五年后](https://www.kangrunwangye.com/book/1o9mg78/)
 - [我的烧烤摊超美味[美食]](https://www.kangrunwangye.com/book/1o9mg77/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kangrunwangye.com/book/1o9mg6m/)
-- [阿竹与野桃](https://www.kangrunwangye.com/book/1o9mg5m/)
 - [[综英美]让我统治哥谭！！！](https://www.kangrunwangye.com/book/1o9mg57/)
 - [青城玩家明明超强却过分谨慎](https://www.kangrunwangye.com/book/1o9mg56/)
+- [渡鬼](https://www.kangrunwangye.com/book/1o9mg48/)
 - [暴君偏头痛](https://www.kangrunwangye.com/book/1o9mg3r/)
 - [星际团宠小人鱼](https://www.kangrunwangye.com/book/1o9mg2c/)
 - [被四皇错看成小动物后](https://www.kangrunwangye.com/book/1o9mg2b/)
@@ -236,7 +236,6 @@
 - [请别摘下超能力社恐的耳机](https://www.kangrunwangye.com/book/5k7eas/)
 - [清穿纯妃养娃日常](https://www.kangrunwangye.com/book/5k7ea3/)
 - [父皇，我是gay](https://www.kangrunwangye.com/book/5k7e98/)
-- [咸鱼受只想摆烂](https://www.kangrunwangye.com/book/5k7e13/)
 - [在情敌变情人文里当炮灰](https://www.kangrunwangye.com/book/5k7dvl/)
 - [我的爸爸不可能叛变](https://www.kangrunwangye.com/book/5k7dv1/)
 - [反派的病弱白月光重生了](https://www.kangrunwangye.com/book/5k7dcn/)
@@ -410,7 +409,6 @@
 - [作家与读者](https://www.kangrunwangye.com/book/5k6qgc/)
 - [[足球]在比利时我们只玩天赋](https://www.kangrunwangye.com/book/5k6qfn/)
 - [你也没死？](https://www.kangrunwangye.com/book/5k6pqj/)
-- [在狗血文里躺平[人外]](https://www.kangrunwangye.com/book/5k6o12/)
 - [青空来信](https://www.kangrunwangye.com/book/5k6mgh/)
 - [老公是松散生命体](https://www.kangrunwangye.com/book/5k6kss/)
 - [这谁的沙雕二次元心声！](https://www.kangrunwangye.com/book/5k6kik/)

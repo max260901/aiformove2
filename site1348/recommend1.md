@@ -1,7 +1,7 @@
 
 # 看剧文学网 - 书友最值得收藏的小说阅读网
 
-更新时间：2026-09-04 03:28:56
+更新时间：2026-09-05 03:29:57
 
 看剧文学网，精选最好看的小说推荐给大家在线阅读。这里有网络小说大全，包括最火、最热门的小说最新章节，是书友最值得收藏的免费小说阅读网。
 
@@ -103,7 +103,7 @@
 - [我骗家里的钱养你啊](https://www.kanju788.com/book/to2jns/)
 - [死遁的亡夫们都回来了](https://www.kanju788.com/book/to2jc9/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.kanju788.com/book/to2iug/)
-- [枕边热吻](https://www.kanju788.com/book/to2ih8/)
+- [怀了前任大哥的崽后](https://www.kanju788.com/book/to2ih8/)
 - [九零首富的替嫁小媳妇](https://www.kanju788.com/book/to2i6g/)
 - [死对头又在挑衅我](https://www.kanju788.com/book/to293n/)
 - [在民俗惊悚片被诸神庇护](https://www.kanju788.com/book/to292n/)

@@ -1,7 +1,7 @@
 
 # 泡泡中文小说-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-04 03:42:33
+更新时间：2026-09-05 03:43:36
 
 泡泡中文小说是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -30,7 +30,7 @@
 - [渣攻他疯了［快穿］](https://www.xiaoshuo288.com/book/dm3lup/)
 - [[足球]番外乐子集](https://www.xiaoshuo288.com/book/dm3lps/)
 - [我超凶的！[快穿]](https://www.xiaoshuo288.com/book/dm3ju7/)
-- [阿竹与野桃](https://www.xiaoshuo288.com/book/dm3j66/)
+- [渡鬼](https://www.xiaoshuo288.com/book/dm3j3u/)
 - [我的烧烤摊超美味[美食]](https://www.xiaoshuo288.com/book/dm3j3r/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xiaoshuo288.com/book/dm3j3e/)
 - [我比反派先崩坏[快穿]](https://www.xiaoshuo288.com/book/dm3j2u/)
@@ -134,7 +134,6 @@
 - [忍界修罗带球跑](https://www.xiaoshuo288.com/book/dm1hur/)
 - [[综崩铁]谁家小鸟掉冥河了](https://www.xiaoshuo288.com/book/dm1hpr/)
 - [妖怪崽崽种田日常](https://www.xiaoshuo288.com/book/dm1h8o/)
-- [咸鱼受只想摆烂](https://www.xiaoshuo288.com/book/dm1h18/)
 - [长公主的六零年代](https://www.xiaoshuo288.com/book/dm1h0g/)
 - [我不可能舔一个漂亮捞子](https://www.xiaoshuo288.com/book/dm1gtt/)
 - [巨星渡灵师](https://www.xiaoshuo288.com/book/dm1gs0/)
@@ -422,7 +421,6 @@
 - [在重男兄弟间夹缝求生](https://www.xiaoshuo288.com/book/dm0f1c/)
 - [某柯学的正义伙伴](https://www.xiaoshuo288.com/book/dm0f04/)
 - [请问夫君你哪位](https://www.xiaoshuo288.com/book/dm0ev4/)
-- [在狗血文里躺平[人外]](https://www.xiaoshuo288.com/book/dm0d2l/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.xiaoshuo288.com/book/dm0bs4/)
 - [求生游戏：当邪神成为生活玩家后](https://www.xiaoshuo288.com/book/dm0b7t/)
 - [我最讨厌打球了！](https://www.xiaoshuo288.com/book/dm09rc/)
@@ -431,6 +429,7 @@
 - [幼崽假少爷选择回归寒门](https://www.xiaoshuo288.com/book/dm04sq/)
 - [[足球]小小鸟堂堂来袭](https://www.xiaoshuo288.com/book/dm03uc/)
 - [青城玩家明明超强却过分谨慎](https://www.xiaoshuo288.com/book/dm01s4/)
+- [好巧，你也是妹控？[综崩铁]](https://www.xiaoshuo288.com/book/dm014c/)
 - [暴君偏头痛](https://www.xiaoshuo288.com/book/dlvvdh/)
 - [自大狂](https://www.xiaoshuo288.com/book/dlvurq/)
 - [侯府打工人](https://www.xiaoshuo288.com/book/dlvtp8/)

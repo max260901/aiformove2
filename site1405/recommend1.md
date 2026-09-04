@@ -1,7 +1,7 @@
 
 # 耽美小说 - 最新全本免费手机小说阅读推荐
 
-更新时间：2026-09-04 03:35:53
+更新时间：2026-09-05 03:36:55
 
 耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！
 
@@ -87,7 +87,7 @@
 - [[足球]我的游戏存档成真了？！](https://www.shgifts8.com/book/32ugq1v/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.shgifts8.com/book/32ugq1n/)
 - [如何正确哄睡暴君](https://www.shgifts8.com/book/32ugptj/)
-- [枕边热吻](https://www.shgifts8.com/book/32ugnoo/)
+- [怀了前任大哥的崽后](https://www.shgifts8.com/book/32ugnoo/)
 - [摄政王家的咸鱼夫郎](https://www.shgifts8.com/book/32ugnd2/)
 - [社畜Beta也能被顶A觊觎吗](https://www.shgifts8.com/book/32ugmt5/)
 - [让你们无剧本可走（快穿）](https://www.shgifts8.com/book/32uglu6/)

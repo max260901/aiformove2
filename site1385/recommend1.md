@@ -1,7 +1,7 @@
 
 # 宁波慈绿农垦小说-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-04 03:32:15
+更新时间：2026-09-05 03:33:15
 
 宁波慈绿农垦小说提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
@@ -88,7 +88,7 @@
 - [摄政王家的咸鱼夫郎](https://www.nbcxnk.com/book/2srv6fo/)
 - [我与龙傲天寿命共享](https://www.nbcxnk.com/book/2srv5k6/)
 - [[足球]我的游戏存档成真了？！](https://www.nbcxnk.com/book/2srv5g6/)
-- [枕边热吻](https://www.nbcxnk.com/book/2srv4e0/)
+- [怀了前任大哥的崽后](https://www.nbcxnk.com/book/2srv4e0/)
 - [死遁的亡夫们都回来了](https://www.nbcxnk.com/book/2srv3q2/)
 - [社畜Beta也能被顶A觊觎吗](https://www.nbcxnk.com/book/2srv2cg/)
 - [如何正确哄睡暴君](https://www.nbcxnk.com/book/2srv1s2/)

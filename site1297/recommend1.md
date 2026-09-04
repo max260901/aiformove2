@@ -1,7 +1,7 @@
 
 # 笔趣阁_书友最值得收藏的网络小说阅读网_新笔趣阁5200
 
-更新时间：2026-09-04 03:28:23
+更新时间：2026-09-05 03:29:24
 
 笔趣阁是广大书友最值得收藏的网络小说阅读网，新笔趣阁网站收录了当前最火热的网络小说，笔趣阁5200免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -122,7 +122,7 @@
 - [摄政王家的咸鱼夫郎](https://www.kangrunwangye.com/book/1o9iuec/)
 - [死遁的亡夫们都回来了](https://www.kangrunwangye.com/book/5k7mki/)
 - [沈助理又在隐藏他的超能力](https://www.kangrunwangye.com/book/5k7iof/)
-- [枕边热吻](https://www.kangrunwangye.com/book/5k7iga/)
+- [怀了前任大哥的崽后](https://www.kangrunwangye.com/book/5k7iga/)
 - [假金丝雀深陷修罗场](https://www.kangrunwangye.com/book/5k7evu/)
 - [美貌单出，杀穿港娱［八零］](https://www.kangrunwangye.com/book/5k7e5l/)
 - [死对头又在挑衅我](https://www.kangrunwangye.com/book/5k7d3m/)

@@ -1,7 +1,7 @@
 
 # 科幻188文学网-最新章节全文小说免费阅读
 
-更新时间：2026-09-04 03:29:30
+更新时间：2026-09-05 03:30:30
 
 科幻188文学网给广大网友提供最好的小说阅读服务，全站小说均可免费阅读且无任何弹窗干扰。这里是你寻找最新最全小说内容的理想之地。
 
@@ -103,7 +103,7 @@
 - [九零首富的替嫁小媳妇](https://www.kehuan188.com/book/56q0u8u/)
 - [我骗家里的钱养你啊](https://www.kehuan188.com/book/56q0t7p/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.kehuan188.com/book/56q0t0q/)
-- [枕边热吻](https://www.kehuan188.com/book/56q0ssm/)
+- [怀了前任大哥的崽后](https://www.kehuan188.com/book/56q0ssm/)
 - [死遁的亡夫们都回来了](https://www.kehuan188.com/book/56q0sjm/)
 - [死对头又在挑衅我](https://www.kehuan188.com/book/56q0lc3/)
 - [在民俗惊悚片被诸神庇护](https://www.kehuan188.com/book/56q0kg4/)

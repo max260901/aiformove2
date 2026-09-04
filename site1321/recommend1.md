@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-09-04 03:24:36
+更新时间：2026-09-05 03:25:41
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -120,7 +120,7 @@
 - [社畜Beta也能被顶A觊觎吗](https://www.duzhe888.com/book/2kobcrl/)
 - [摄政王家的咸鱼夫郎](https://www.duzhe888.com/book/2kob7dg/)
 - [起初，我只是想找个冤大头](https://www.duzhe888.com/book/2kob6mg/)
-- [枕边热吻](https://www.duzhe888.com/book/8fa29p/)
+- [怀了前任大哥的崽后](https://www.duzhe888.com/book/8fa29p/)
 - [死遁的亡夫们都回来了](https://www.duzhe888.com/book/8fa1d6/)
 - [沈助理又在隐藏他的超能力](https://www.duzhe888.com/book/8f9v0q/)
 - [成为养成系练习生后](https://www.duzhe888.com/book/8f9ts8/)
