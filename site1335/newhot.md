@@ -1,7 +1,7 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-09-04 03:28:07
+更新时间：2026-09-05 03:29:09
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。
 
@@ -19,8 +19,8 @@
 - [全世界名为爱的恶意](https://www.jxbfsz.com/book/29i1p8n/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.jxbfsz.com/book/29i1p7o/)
 - [禁止继承限制级雌君](https://www.jxbfsz.com/book/29i1p6o/)
+- [渡鬼](https://www.jxbfsz.com/book/29i1oci/)
 - [暴君偏头痛](https://www.jxbfsz.com/book/29i1ob8/)
-- [阿竹与野桃](https://www.jxbfsz.com/book/29i1oa4/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.jxbfsz.com/book/29i1o9t/)
 - [我的烧烤摊超美味[美食]](https://www.jxbfsz.com/book/29i1o99/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.jxbfsz.com/book/29i1mvm/)
@@ -153,7 +153,6 @@
 - [寻真](https://www.jxbfsz.com/book/29hv8uo/)
 - [带着刀剑穿越伟大航路后，你当上了五皇](https://www.jxbfsz.com/book/29hv8lo/)
 - [若清晨所见之蓝](https://www.jxbfsz.com/book/29hv8kf/)
-- [咸鱼受只想摆烂](https://www.jxbfsz.com/book/29hv8he/)
 - [[综武侠]换装之江湖遍地是小号](https://www.jxbfsz.com/book/29hv8gr/)
 - [攻五是来拆散这个家的［穿书］](https://www.jxbfsz.com/book/29hv83v/)
 - [恋爱脑他重生了](https://www.jxbfsz.com/book/29hv82h/)
@@ -420,7 +419,6 @@
 - [神之子与排球的适配性](https://www.jxbfsz.com/book/29hu8o3/)
 - [[封神]圣人生欲](https://www.jxbfsz.com/book/29hu85n/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.jxbfsz.com/book/29hu6of/)
-- [在狗血文里躺平[人外]](https://www.jxbfsz.com/book/29hu6fj/)
 - [某柯学的正义伙伴](https://www.jxbfsz.com/book/29hu68r/)
 - [青空来信](https://www.jxbfsz.com/book/29hu63l/)
 - [老公是松散生命体](https://www.jxbfsz.com/book/29hu5mg/)
@@ -433,6 +431,7 @@
 - [刀子精手心的人偶崽崽](https://www.jxbfsz.com/book/29htqbe/)
 - [[综英美]让我统治哥谭！！！](https://www.jxbfsz.com/book/29htq00/)
 - [盛夏晴浓](https://www.jxbfsz.com/book/29htpei/)
+- [好巧，你也是妹控？[综崩铁]](https://www.jxbfsz.com/book/29htlit/)
 - [好兄弟暴富后非要跟我结婚](https://www.jxbfsz.com/book/29htjav/)
 - [关于我虚构了一个男友这件事](https://www.jxbfsz.com/book/29htit1/)
 - [求生游戏：当邪神成为生活玩家后](https://www.jxbfsz.com/book/29htio9/)

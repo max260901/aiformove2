@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-04 03:40:58
+更新时间：2026-09-05 03:42:02
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
@@ -121,7 +121,7 @@
 - [起初，我只是想找个冤大头](https://www.wsfsx.com/book/5trum6u/)
 - [摄政王家的咸鱼夫郎](https://www.wsfsx.com/book/5trulcd/)
 - [死遁的亡夫们都回来了](https://www.wsfsx.com/book/ivlnh0/)
-- [枕边热吻](https://www.wsfsx.com/book/ivljh8/)
+- [怀了前任大哥的崽后](https://www.wsfsx.com/book/ivljh8/)
 - [沈助理又在隐藏他的超能力](https://www.wsfsx.com/book/ivli57/)
 - [美貌单出，杀穿港娱［八零］](https://www.wsfsx.com/book/ivlde4/)
 - [死对头又在挑衅我](https://www.wsfsx.com/book/ivld52/)

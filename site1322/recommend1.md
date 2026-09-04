@@ -1,7 +1,7 @@
 
 # 文学小说网手机版_好看的文学小说TXT下载,无弹窗手机小说网
 
-更新时间：2026-09-04 03:39:40
+更新时间：2026-09-05 03:40:43
 
 文学小说网收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者最值得收藏的网络小说阅读网,精彩小说尽在文学小说网(无弹窗小说网)。
 
@@ -122,7 +122,7 @@
 - [摄政王家的咸鱼夫郎](https://www.wenxue521.com/book/93oi8no/)
 - [死遁的亡夫们都回来了](https://www.wenxue521.com/book/t5nj9p/)
 - [沈助理又在隐藏他的超能力](https://www.wenxue521.com/book/t5nj0r/)
-- [枕边热吻](https://www.wenxue521.com/book/t5nh7q/)
+- [怀了前任大哥的崽后](https://www.wenxue521.com/book/t5nh7q/)
 - [美貌单出，杀穿港娱［八零］](https://www.wenxue521.com/book/t5nd6f/)
 - [死对头又在挑衅我](https://www.wenxue521.com/book/t5nbth/)
 - [假金丝雀深陷修罗场](https://www.wenxue521.com/book/t5nbk8/)

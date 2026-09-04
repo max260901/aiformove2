@@ -1,7 +1,7 @@
 
 # 文学小说668 - 全球最新最热的小说阅读平台
 
-更新时间：2026-09-04 03:39:58
+更新时间：2026-09-05 03:41:01
 
 文学小说668是全球最新、最热的小说阅读网站之一，汇集了包括言情小说、玄幻小说、穿越小说在内的各类优质小说资源，让读者能够尽情享受阅读的乐趣。
 
@@ -30,9 +30,9 @@
 - [渣攻他疯了［快穿］](https://www.wenxue668.com/book/44feo2r/)
 - [[足球]番外乐子集](https://www.wenxue668.com/book/44fenvo/)
 - [我超凶的！[快穿]](https://www.wenxue668.com/book/44fem2u/)
-- [阿竹与野桃](https://www.wenxue668.com/book/44felaj/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wenxue668.com/book/44fel8m/)
 - [我的烧烤摊超美味[美食]](https://www.wenxue668.com/book/44fel8l/)
+- [渡鬼](https://www.wenxue668.com/book/44fel8g/)
 - [我比反派先崩坏[快穿]](https://www.wenxue668.com/book/44fel76/)
 - [cos温迪后玩到真崩铁了](https://www.wenxue668.com/book/44fegt0/)
 - [从异世界穿回来后](https://www.wenxue668.com/book/44fegkr/)
@@ -136,7 +136,6 @@
 - [长公主的六零年代](https://www.wenxue668.com/book/44fcjn3/)
 - [寻真](https://www.wenxue668.com/book/44fcjk8/)
 - [逝水](https://www.wenxue668.com/book/44fcjif/)
-- [咸鱼受只想摆烂](https://www.wenxue668.com/book/44fcjgu/)
 - [可怜的天然呆直男[快穿]](https://www.wenxue668.com/book/44fcjf2/)
 - [你也没死？](https://www.wenxue668.com/book/44fcj4g/)
 - [[综崩铁]谁家小鸟掉冥河了](https://www.wenxue668.com/book/44fcivv/)
@@ -423,13 +422,13 @@
 - [高冷影后逼我标记她](https://www.wenxue668.com/book/44fbh0t/)
 - [虫族治愈师，但恐虫](https://www.wenxue668.com/book/44fbgu5/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.wenxue668.com/book/44fbft4/)
-- [在狗血文里躺平[人外]](https://www.wenxue668.com/book/44fbeuf/)
 - [我最讨厌打球了！](https://www.wenxue668.com/book/44fbd6l/)
 - [刀子精手心的人偶崽崽](https://www.wenxue668.com/book/44fbcnp/)
 - [求生游戏：当邪神成为生活玩家后](https://www.wenxue668.com/book/44fbbau/)
 - [盛夏晴浓](https://www.wenxue668.com/book/44fb82k/)
 - [[足球]小小鸟堂堂来袭](https://www.wenxue668.com/book/44fb7i3/)
 - [幼崽假少爷选择回归寒门](https://www.wenxue668.com/book/44fb6jq/)
+- [好巧，你也是妹控？[综崩铁]](https://www.wenxue668.com/book/44fb4u7/)
 - [青城玩家明明超强却过分谨慎](https://www.wenxue668.com/book/44fb3jh/)
 - [暴君偏头痛](https://www.wenxue668.com/book/44fb1il/)
 - [好兄弟暴富后非要跟我结婚](https://www.wenxue668.com/book/44fb0h6/)

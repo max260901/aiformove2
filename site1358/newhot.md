@@ -1,7 +1,7 @@
 
 # 哲理书客吧-全本小说免费阅读及txt下载,最新章节无弹窗
 
-更新时间：2026-09-04 03:45:30
+更新时间：2026-09-05 03:46:34
 
 哲理书客吧提供最快更新的热门网络小说最新章节，支持全本小说在线免费阅读与txt电子书打包下载服务。收录多本经典好看的小说，并承诺无广告弹窗清爽阅读体验，是小说爱好者的理想选择。
 
@@ -32,8 +32,8 @@
 - [我超凶的！[快穿]](https://www.zheli518.com/book/4taqb7e/)
 - [我比反派先崩坏[快穿]](https://www.zheli518.com/book/4taqad8/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.zheli518.com/book/4taqa6q/)
-- [阿竹与野桃](https://www.zheli518.com/book/4taqa6c/)
 - [我的烧烤摊超美味[美食]](https://www.zheli518.com/book/4taqa5u/)
+- [渡鬼](https://www.zheli518.com/book/4taqa28/)
 - [cos温迪后玩到真崩铁了](https://www.zheli518.com/book/4taq614/)
 - [从异世界穿回来后](https://www.zheli518.com/book/4taq5pu/)
 - [我有嘉宾](https://www.zheli518.com/book/4taq5hf/)
@@ -148,7 +148,6 @@
 - [歪剧情我是专业的[快穿]](https://www.zheli518.com/book/4tao6vh/)
 - [逝水](https://www.zheli518.com/book/4tao6pg/)
 - [首辅大人怀中娇（重生）](https://www.zheli518.com/book/4tao6nh/)
-- [咸鱼受只想摆烂](https://www.zheli518.com/book/4tao6km/)
 - [七零知青有空间](https://www.zheli518.com/book/4tao65c/)
 - [ƽ��С����(�崩)](https://www.zheli518.com/book/4tao5or/)
 - [攻五是来拆散这个家的［穿书］](https://www.zheli518.com/book/4tao5i4/)
@@ -422,7 +421,6 @@
 - [末世山居日常](https://www.zheli518.com/book/4tan67a/)
 - [举朝上下为我的神仙人设头疼中](https://www.zheli518.com/book/4tan66m/)
 - [司寝宫女](https://www.zheli518.com/book/4tan65p/)
-- [在狗血文里躺平[人外]](https://www.zheli518.com/book/4tan4h0/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.zheli518.com/book/4tan41k/)
 - [我最讨厌打球了！](https://www.zheli518.com/book/4tan345/)
 - [刀子精手心的人偶崽崽](https://www.zheli518.com/book/4tan23b/)
@@ -430,6 +428,7 @@
 - [幼崽假少爷选择回归寒门](https://www.zheli518.com/book/4tamst4/)
 - [[足球]小小鸟堂堂来袭](https://www.zheli518.com/book/4tamr7j/)
 - [盛夏晴浓](https://www.zheli518.com/book/4tamqk6/)
+- [好巧，你也是妹控？[综崩铁]](https://www.zheli518.com/book/4tamp9q/)
 - [青城玩家明明超强却过分谨慎](https://www.zheli518.com/book/4tamnvr/)
 - [侯府打工人](https://www.zheli518.com/book/4tamn5j/)
 - [矩阵干扰](https://www.zheli518.com/book/4tammkm/)

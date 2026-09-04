@@ -1,7 +1,7 @@
 
 # 故事来书吧-免费阅读全网最新最热小说
 
-更新时间：2026-09-04 03:26:43
+更新时间：2026-09-05 03:27:46
 
 故事来书吧提供海量免费无弹窗小说在线阅读服务，涵盖言情、都市、玄幻、武侠等多种类型，让你随时随地享受阅读的乐趣。
 
@@ -102,7 +102,7 @@
 - [如何正确哄睡暴君](https://www.gushi688.com/book/511v6it/)
 - [死遁的亡夫们都回来了](https://www.gushi688.com/book/511v2ce/)
 - [我骗家里的钱养你啊](https://www.gushi688.com/book/511v1si/)
-- [枕边热吻](https://www.gushi688.com/book/511v1kp/)
+- [怀了前任大哥的崽后](https://www.gushi688.com/book/511v1kp/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.gushi688.com/book/511v1k5/)
 - [九零首富的替嫁小媳妇](https://www.gushi688.com/book/511v17b/)
 - [沈助理又在隐藏他的超能力](https://www.gushi688.com/book/511un2e/)

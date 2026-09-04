@@ -1,7 +1,7 @@
 
 # 看居中文网_免费小说在线阅读|无弹窗广告值得收藏
 
-更新时间：2026-09-04 03:28:41
+更新时间：2026-09-05 03:29:42
 
 看居中文网是最热门的免费小说网站，提供包括但不限于玄幻、都市、言情等多种类型的小说在线阅读服务。本站实时更新小说最新章节列表，拥有全面的小说排行榜，致力于为读者提供一个干净舒适的阅读环境，无弹窗广告干扰，是您寻找好书的理想之地。
 
@@ -31,7 +31,7 @@
 - [[足球]番外乐子集](https://www.kanju688.com/book/pb01nq/)
 - [我超凶的！[快穿]](https://www.kanju688.com/book/pavvur/)
 - [我比反派先崩坏[快穿]](https://www.kanju688.com/book/pavv69/)
-- [阿竹与野桃](https://www.kanju688.com/book/pavura/)
+- [渡鬼](https://www.kanju688.com/book/pavus0/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kanju688.com/book/pavur9/)
 - [我的烧烤摊超美味[美食]](https://www.kanju688.com/book/pavupj/)
 - [cos温迪后玩到真崩铁了](https://www.kanju688.com/book/pavqn8/)
@@ -141,7 +141,6 @@
 - [被子同学](https://www.kanju688.com/book/patsnh/)
 - [我不可能舔一个漂亮捞子](https://www.kanju688.com/book/patsgp/)
 - [歪剧情我是专业的[快穿]](https://www.kanju688.com/book/patsgo/)
-- [咸鱼受只想摆烂](https://www.kanju688.com/book/patsg4/)
 - [逝水](https://www.kanju688.com/book/pats28/)
 - [寻真](https://www.kanju688.com/book/patrrl/)
 - [长公主的六零年代](https://www.kanju688.com/book/patrq7/)
@@ -422,7 +421,6 @@
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.kanju688.com/book/pasrc0/)
 - [某柯学的正义伙伴](https://www.kanju688.com/book/pasr9i/)
 - [穿成影后的作死前妻](https://www.kanju688.com/book/pasquh/)
-- [在狗血文里躺平[人外]](https://www.kanju688.com/book/pasp94/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.kanju688.com/book/pasns4/)
 - [刀子精手心的人偶崽崽](https://www.kanju688.com/book/pasnap/)
 - [我最讨厌打球了！](https://www.kanju688.com/book/pasls1/)
@@ -430,6 +428,7 @@
 - [盛夏晴浓](https://www.kanju688.com/book/pashjh/)
 - [幼崽假少爷选择回归寒门](https://www.kanju688.com/book/pasfis/)
 - [[足球]小小鸟堂堂来袭](https://www.kanju688.com/book/pasfg0/)
+- [好巧，你也是妹控？[综崩铁]](https://www.kanju688.com/book/pase4e/)
 - [青城玩家明明超强却过分谨慎](https://www.kanju688.com/book/pascks/)
 - [好兄弟暴富后非要跟我结婚](https://www.kanju688.com/book/pasbtr/)
 - [侯府打工人](https://www.kanju688.com/book/pasbd9/)

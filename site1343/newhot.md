@@ -1,7 +1,7 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-04 03:33:14
+更新时间：2026-09-05 03:34:15
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。
 
@@ -19,10 +19,10 @@
 - [这个替嫁让我来！](https://www.pusytgp.com/book/7pbovf5/)
 - [等我吃腻了再倒闭可以吗](https://www.pusytgp.com/book/7pbovd5/)
 - [全世界名为爱的恶意](https://www.pusytgp.com/book/7pbovcj/)
-- [阿竹与野桃](https://www.pusytgp.com/book/7pbouiv/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.pusytgp.com/book/7pbouif/)
 - [暴君偏头痛](https://www.pusytgp.com/book/7pbouic/)
 - [我的烧烤摊超美味[美食]](https://www.pusytgp.com/book/7pboui3/)
+- [渡鬼](https://www.pusytgp.com/book/7pbouh6/)
 - [修仙界都为我神魂颠倒](https://www.pusytgp.com/book/7pbot7p/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.pusytgp.com/book/7pbot66/)
 - [穿成年代文奇葩前妻](https://www.pusytgp.com/book/7pbosvl/)
@@ -155,7 +155,6 @@
 - [绑定惊吓系统但对象狂涨好感有救吗](https://www.pusytgp.com/book/7pbmen9/)
 - [恋爱脑他重生了](https://www.pusytgp.com/book/7pbmemc/)
 - [ƽ��С����(�崩)](https://www.pusytgp.com/book/7pbmejk/)
-- [咸鱼受只想摆烂](https://www.pusytgp.com/book/7pbmeie/)
 - [被迫跟死对头结婚后](https://www.pusytgp.com/book/7pbmdl3/)
 - [攻五是来拆散这个家的［穿书］](https://www.pusytgp.com/book/7pbmdjj/)
 - [穿书后，导师成了师尊](https://www.pusytgp.com/book/7pbmdhg/)
@@ -420,7 +419,6 @@
 - [转生成为伊路米的双生姐姐](https://www.pusytgp.com/book/7pblf13/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.pusytgp.com/book/7pbledd/)
 - [[封神]圣人生欲](https://www.pusytgp.com/book/7pblds0/)
-- [在狗血文里躺平[人外]](https://www.pusytgp.com/book/7pblcf1/)
 - [青空来信](https://www.pusytgp.com/book/7pblcej/)
 - [某柯学的正义伙伴](https://www.pusytgp.com/book/7pblc0i/)
 - [纯爱宇智波基本恋爱法](https://www.pusytgp.com/book/7pblbln/)
@@ -433,6 +431,7 @@
 - [刀子精手心的人偶崽崽](https://www.pusytgp.com/book/7pbl0kn/)
 - [盛夏晴浓](https://www.pusytgp.com/book/7pbl05o/)
 - [[综英美]让我统治哥谭！！！](https://www.pusytgp.com/book/7pbkumb/)
+- [好巧，你也是妹控？[综崩铁]](https://www.pusytgp.com/book/7pbksfn/)
 - [求生游戏：当邪神成为生活玩家后](https://www.pusytgp.com/book/7pbkpma/)
 - [关于我虚构了一个男友这件事](https://www.pusytgp.com/book/7pbkpie/)
 - [好兄弟暴富后非要跟我结婚](https://www.pusytgp.com/book/7pbko4m/)

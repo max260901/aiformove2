@@ -1,7 +1,7 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-09-04 03:31:27
+更新时间：2026-09-05 03:32:27
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
@@ -20,6 +20,7 @@
 - [咦？我爸爸复活啦](https://www.longjiangstone.com/book/34b4ol/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.longjiangstone.com/book/34b4oi/)
 - [禁止继承限制级雌君](https://www.longjiangstone.com/book/34b4ob/)
+- [渡鬼](https://www.longjiangstone.com/book/34b4nt/)
 - [[综英美]让我统治哥谭！！！](https://www.longjiangstone.com/book/34b4np/)
 - [躲避原书剧情五年后](https://www.longjiangstone.com/book/34b4m9/)
 - [暴君偏头痛](https://www.longjiangstone.com/book/34b4m4/)
@@ -28,7 +29,6 @@
 - [青城玩家明明超强却过分谨慎](https://www.longjiangstone.com/book/34b4ki/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.longjiangstone.com/book/34b4kh/)
 - [失而复得的白月光[快穿]](https://www.longjiangstone.com/book/34b4jc/)
-- [阿竹与野桃](https://www.longjiangstone.com/book/34b4j4/)
 - [星际团宠小人鱼](https://www.longjiangstone.com/book/34b4hq/)
 - [你，后室管理员](https://www.longjiangstone.com/book/34b4hl/)
 - [[封神]圣人生欲](https://www.longjiangstone.com/book/34b4ha/)
@@ -233,7 +233,6 @@
 - [作为死对头的男朋友](https://www.longjiangstone.com/book/a33m2/)
 - [七十年代娇美人](https://www.longjiangstone.com/book/a33kl/)
 - [和灵异片boss谈恋爱](https://www.longjiangstone.com/book/a33g0/)
-- [咸鱼受只想摆烂](https://www.longjiangstone.com/book/a33dr/)
 - [我的爸爸不可能叛变](https://www.longjiangstone.com/book/a33dd/)
 - [请别摘下超能力社恐的耳机](https://www.longjiangstone.com/book/a32ob/)
 - [父皇，我是gay](https://www.longjiangstone.com/book/a32iq/)
@@ -409,7 +408,6 @@
 - [吐槽役审神者会爆改幕后大boss吗](https://www.longjiangstone.com/book/a2get/)
 - [当了卧底的我发现遍地熟人](https://www.longjiangstone.com/book/a2gd5/)
 - [作家与读者](https://www.longjiangstone.com/book/a2fk4/)
-- [在狗血文里躺平[人外]](https://www.longjiangstone.com/book/a2fhv/)
 - [你也没死？](https://www.longjiangstone.com/book/a2e9u/)
 - [这谁的沙雕二次元心声！](https://www.longjiangstone.com/book/a2c9m/)
 - [青空来信](https://www.longjiangstone.com/book/a2av6/)

@@ -1,13 +1,15 @@
 
 # 耽美小说 - 最新全本免费手机小说阅读推荐
 
-更新时间：2026-09-04 03:35:53
+更新时间：2026-09-05 03:36:55
 
 耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！
 
 - [耽美小说](https://www.shgifts8.com/)
 
 ## 最新小说
+- [cos温迪后玩到真崩铁了](https://www.shgifts8.com/book/32ui855/)
+- [躲避原书剧情五年后](https://www.shgifts8.com/book/32ui845/)
 - [自知之明](https://www.shgifts8.com/book/32ui7ua/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.shgifts8.com/book/32ui7u2/)
 - [禁止继承限制级雌君](https://www.shgifts8.com/book/32ui7th/)
@@ -50,10 +52,10 @@
 - [渣过我的主角全都重生了[快穿]](https://www.shgifts8.com/book/32ugt3d/)
 - [全天下都在求太子殿下别死！](https://www.shgifts8.com/book/32ugsil/)
 - [女装生崽，娃爹宇智波](https://www.shgifts8.com/book/32ugs9m/)
+- [渡鬼](https://www.shgifts8.com/book/32ugs9j/)
 - [五美元在哥谭活一月](https://www.shgifts8.com/book/32ugs2q/)
 - [暗堕本丸，在线直播](https://www.shgifts8.com/book/32ugreq/)
 - [我当县令那些年](https://www.shgifts8.com/book/32ugrct/)
-- [阿竹与野桃](https://www.shgifts8.com/book/32ugqo2/)
 - [优质攻不做恋爱脑[快穿]](https://www.shgifts8.com/book/32ugqd7/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shgifts8.com/book/32ugqb1/)
 - [可怜的天然呆直男[快穿]](https://www.shgifts8.com/book/32ugq70/)
@@ -125,7 +127,6 @@
 - [巨星渡灵师](https://www.shgifts8.com/book/32ugai0/)
 - [[清]给太子当姐姐那些年](https://www.shgifts8.com/book/32ugahf/)
 - [黑莲花在线演我](https://www.shgifts8.com/book/32uga9j/)
-- [咸鱼受只想摆烂](https://www.shgifts8.com/book/32uga7c/)
 - [灰墙之下](https://www.shgifts8.com/book/32uga1r/)
 - [首辅大人怀中娇（重生）](https://www.shgifts8.com/book/32ug9u9/)
 - [京秋婚约](https://www.shgifts8.com/book/32ug9s8/)
@@ -234,7 +235,6 @@
 - [摆烂后我成了邪神学院大佬](https://www.shgifts8.com/book/32ufof8/)
 - [请别摘下超能力社恐的耳机](https://www.shgifts8.com/book/32ufod7/)
 - [反派的病弱白月光重生了](https://www.shgifts8.com/book/32ufo8e/)
-- [穿为清冷影后的污点A](https://www.shgifts8.com/book/32ufo4b/)
 - [都说了我很娇纵了](https://www.shgifts8.com/book/32ufnt0/)
 - [强爱清冷O后她上瘾了[快穿]](https://www.shgifts8.com/book/32ufnlc/)
 - [和灵异片boss谈恋爱](https://www.shgifts8.com/book/32ufnjg/)
@@ -407,7 +407,6 @@
 - [癫骨](https://www.shgifts8.com/book/32uf9qh/)
 - [顶流他姐有神豪系统](https://www.shgifts8.com/book/32uf9kh/)
 - [让我再吃一口](https://www.shgifts8.com/book/32uf9js/)
-- [在狗血文里躺平[人外]](https://www.shgifts8.com/book/32uf9jq/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.shgifts8.com/book/32uf9je/)
 - [求生游戏：当邪神成为生活玩家后](https://www.shgifts8.com/book/32uf9j9/)
 - [好兄弟暴富后非要跟我结婚](https://www.shgifts8.com/book/32uf9hk/)
@@ -424,6 +423,7 @@
 - [失忆后，和五条激情互演](https://www.shgifts8.com/book/32uf8eu/)
 - [国舅太难追了](https://www.shgifts8.com/book/32uf8e6/)
 - [柯学剧本杀，但恋爱流打法](https://www.shgifts8.com/book/32uf6uv/)
+- [好巧，你也是妹控？[综崩铁]](https://www.shgifts8.com/book/32uf67n/)
 - [李玉灯](https://www.shgifts8.com/book/32uf626/)
 - [我，剑圣，养生中，勿扰](https://www.shgifts8.com/book/32uf5t3/)
 - [等我吃腻了再倒闭可以吗](https://www.shgifts8.com/book/32uf3ug/)

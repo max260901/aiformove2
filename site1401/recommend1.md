@@ -1,7 +1,7 @@
 
 # 曹操SPA小说 - 小说的海洋，文学的殿堂 | 在线阅读与下载原创小说
 
-更新时间：2026-09-04 03:22:27
+更新时间：2026-09-05 03:23:35
 
 曹操SPA小说是一个专注于优质小说和文学创作的网站，这里是书迷们的天堂，提供丰富的原创网络小说、经典文学作品在线阅读与下载，致力于打造一个充满灵感与创意的文学世界。
 
@@ -86,7 +86,7 @@
 - [我们生活玩家是这样的](https://www.caocaospa.com/book/8q1sq6r/)
 - [[足球]我的游戏存档成真了？！](https://www.caocaospa.com/book/8q1sov2/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.caocaospa.com/book/8q1soe8/)
-- [枕边热吻](https://www.caocaospa.com/book/8q1soa0/)
+- [怀了前任大哥的崽后](https://www.caocaospa.com/book/8q1soa0/)
 - [摄政王家的咸鱼夫郎](https://www.caocaospa.com/book/8q1so8g/)
 - [如何正确哄睡暴君](https://www.caocaospa.com/book/8q1snkf/)
 - [死遁的亡夫们都回来了](https://www.caocaospa.com/book/8q1smoe/)

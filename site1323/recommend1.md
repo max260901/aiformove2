@@ -1,7 +1,7 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-09-04 03:44:21
+更新时间：2026-09-05 03:45:26
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
@@ -121,7 +121,7 @@
 - [起初，我只是想找个冤大头](https://www.yuedu687.com/book/2bu216a/)
 - [摄政王家的咸鱼夫郎](https://www.yuedu687.com/book/2bu213o/)
 - [死遁的亡夫们都回来了](https://www.yuedu687.com/book/7j2q2o/)
-- [枕边热吻](https://www.yuedu687.com/book/7j2nok/)
+- [怀了前任大哥的崽后](https://www.yuedu687.com/book/7j2nok/)
 - [沈助理又在隐藏他的超能力](https://www.yuedu687.com/book/7j2na0/)
 - [美貌单出，杀穿港娱［八零］](https://www.yuedu687.com/book/7j2ij6/)
 - [死对头又在挑衅我](https://www.yuedu687.com/book/7j2ic0/)

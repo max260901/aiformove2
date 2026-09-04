@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-04 03:22:41
+更新时间：2026-09-05 03:23:50
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
@@ -121,7 +121,7 @@
 - [起初，我只是想找个冤大头](https://www.ccccenergy.com/book/7cankmh/)
 - [摄政王家的咸鱼夫郎](https://www.ccccenergy.com/book/7cani3d/)
 - [死遁的亡夫们都回来了](https://www.ccccenergy.com/book/nkbacu/)
-- [枕边热吻](https://www.ccccenergy.com/book/nkb93u/)
+- [怀了前任大哥的崽后](https://www.ccccenergy.com/book/nkb93u/)
 - [沈助理又在隐藏他的超能力](https://www.ccccenergy.com/book/nkb70f/)
 - [成为养成系练习生后](https://www.ccccenergy.com/book/nkb2ol/)
 - [美貌单出，杀穿港娱［八零］](https://www.ccccenergy.com/book/nkb2k1/)

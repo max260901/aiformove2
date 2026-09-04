@@ -1,7 +1,7 @@
 
 # 探秘书院-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-04 03:38:24
+更新时间：2026-09-05 03:39:27
 
 探秘书院提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
@@ -32,7 +32,7 @@
 - [我超凶的！[快穿]](https://www.tanmi918.com/book/80r4hd7/)
 - [我比反派先崩坏[快穿]](https://www.tanmi918.com/book/80r4gj8/)
 - [我的烧烤摊超美味[美食]](https://www.tanmi918.com/book/80r4gc6/)
-- [阿竹与野桃](https://www.tanmi918.com/book/80r4gc5/)
+- [渡鬼](https://www.tanmi918.com/book/80r4gb8/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.tanmi918.com/book/80r4g9o/)
 - [cos温迪后玩到真崩铁了](https://www.tanmi918.com/book/80r4c7c/)
 - [从异世界穿回来后](https://www.tanmi918.com/book/80r4c0l/)
@@ -140,7 +140,6 @@
 - [我绝不可能是只NPC](https://www.tanmi918.com/book/80r2egs/)
 - [长公主的六零年代](https://www.tanmi918.com/book/80r2eg9/)
 - [巨星渡灵师](https://www.tanmi918.com/book/80r2e5r/)
-- [咸鱼受只想摆烂](https://www.tanmi918.com/book/80r2e4r/)
 - [歪剧情我是专业的[快穿]](https://www.tanmi918.com/book/80r2e4q/)
 - [我不可能舔一个漂亮捞子](https://www.tanmi918.com/book/80r2e47/)
 - [首辅大人怀中娇（重生）](https://www.tanmi918.com/book/80r2e39/)
@@ -422,7 +421,6 @@
 - [普通高中生，但兼职咒术师](https://www.tanmi918.com/book/80r1cia/)
 - [举朝上下为我的神仙人设头疼中](https://www.tanmi918.com/book/80r1cd5/)
 - [某柯学的正义伙伴](https://www.tanmi918.com/book/80r1ccn/)
-- [在狗血文里躺平[人外]](https://www.tanmi918.com/book/80r1c05/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.tanmi918.com/book/80r1apc/)
 - [刀子精手心的人偶崽崽](https://www.tanmi918.com/book/80r17dj/)
 - [我最讨厌打球了！](https://www.tanmi918.com/book/80r172l/)
@@ -430,6 +428,7 @@
 - [盛夏晴浓](https://www.tanmi918.com/book/80r128h/)
 - [幼崽假少爷选择回归寒门](https://www.tanmi918.com/book/80r11vk/)
 - [[足球]小小鸟堂堂来袭](https://www.tanmi918.com/book/80r114k/)
+- [好巧，你也是妹控？[综崩铁]](https://www.tanmi918.com/book/80r107t/)
 - [青城玩家明明超强却过分谨慎](https://www.tanmi918.com/book/80r0tjc/)
 - [矩阵干扰](https://www.tanmi918.com/book/80r0t8r/)
 - [法外狂猫](https://www.tanmi918.com/book/80r0sdq/)

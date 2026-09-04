@@ -1,7 +1,7 @@
 
 # 唯我小说网-最新小说在线阅读,好看小说全文阅读
 
-更新时间：2026-09-04 03:26:58
+更新时间：2026-09-05 03:28:01
 
 唯我小说网提供最新最热门的小说在线阅读服务，包括但不限于各类好看的小说全文内容，满足广大读者的需求。
 
@@ -20,7 +20,7 @@
 - [[足球]小小鸟堂堂来袭](https://www.hkffbw.com/book/4nr5rkg/)
 - [禁止继承限制级雌君](https://www.hkffbw.com/book/4nr5rkc/)
 - [清穿女回来后[天幕]](https://www.hkffbw.com/book/4nr5rk9/)
-- [阿竹与野桃](https://www.hkffbw.com/book/4nr5rj0/)
+- [渡鬼](https://www.hkffbw.com/book/4nr5rii/)
 - [暴君偏头痛](https://www.hkffbw.com/book/4nr5rif/)
 - [躲避原书剧情五年后](https://www.hkffbw.com/book/4nr5rhn/)
 - [青城玩家明明超强却过分谨慎](https://www.hkffbw.com/book/4nr5rh8/)
@@ -249,7 +249,6 @@
 - [蜜蜂膝盖银子弹](https://www.hkffbw.com/book/f5va21/)
 - [都说了我很娇纵了](https://www.hkffbw.com/book/f5v95a/)
 - [和灵异片boss谈恋爱](https://www.hkffbw.com/book/f5v8nb/)
-- [咸鱼受只想摆烂](https://www.hkffbw.com/book/f5v8k2/)
 - [假如樱是砂忍](https://www.hkffbw.com/book/f5v8ee/)
 - [父皇，我是gay](https://www.hkffbw.com/book/f5v8c4/)
 - [掉马后成了奥特带恶人](https://www.hkffbw.com/book/f5v89o/)
@@ -406,7 +405,6 @@
 - [我靠玛丽苏系统伪装神女](https://www.hkffbw.com/book/f5upnq/)
 - [救命！猫尾巴藏不住了](https://www.hkffbw.com/book/f5upjq/)
 - [普通高中生，但兼职咒术师](https://www.hkffbw.com/book/f5upgq/)
-- [在狗血文里躺平[人外]](https://www.hkffbw.com/book/f5uorn/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.hkffbw.com/book/f5uoie/)
 - [青空来信](https://www.hkffbw.com/book/f5uk8b/)
 - [这谁的沙雕二次元心声！](https://www.hkffbw.com/book/f5uk4n/)
