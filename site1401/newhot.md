@@ -1,13 +1,15 @@
 
 # 曹操SPA小说 - 小说的海洋，文学的殿堂 | 在线阅读与下载原创小说
 
-更新时间：2026-09-04 03:22:27
+更新时间：2026-09-05 03:23:35
 
 曹操SPA小说是一个专注于优质小说和文学创作的网站，这里是书迷们的天堂，提供丰富的原创网络小说、经典文学作品在线阅读与下载，致力于打造一个充满灵感与创意的文学世界。
 
 - [曹操SPA小说](https://www.caocaospa.com/)
 
 ## 最新小说
+- [cos温迪后玩到真崩铁了](https://www.caocaospa.com/book/8q1u86q/)
+- [躲避原书剧情五年后](https://www.caocaospa.com/book/8q1u846/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.caocaospa.com/book/8q1u7to/)
 - [禁止继承限制级雌君](https://www.caocaospa.com/book/8q1u7th/)
 - [自知之明](https://www.caocaospa.com/book/8q1u7q8/)
@@ -56,8 +58,8 @@
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.caocaospa.com/book/8q1sro8/)
 - [优质攻不做恋爱脑[快穿]](https://www.caocaospa.com/book/8q1srnu/)
 - [我当县令那些年](https://www.caocaospa.com/book/8q1sqqc/)
-- [阿竹与野桃](https://www.caocaospa.com/book/8q1sqn0/)
 - [我的烧烤摊超美味[美食]](https://www.caocaospa.com/book/8q1sqli/)
+- [渡鬼](https://www.caocaospa.com/book/8q1sq3e/)
 - [[足球]听克圣的话，成了米兰金童](https://www.caocaospa.com/book/8q1sq1r/)
 - [超A奶龙饲养指南](https://www.caocaospa.com/book/8q1spl0/)
 - [我有一座城](https://www.caocaospa.com/book/8q1spik/)
@@ -125,7 +127,6 @@
 - [咦？我爸爸复活啦](https://www.caocaospa.com/book/8q1sahp/)
 - [巨星渡灵师](https://www.caocaospa.com/book/8q1saev/)
 - [京秋婚约](https://www.caocaospa.com/book/8q1sach/)
-- [咸鱼受只想摆烂](https://www.caocaospa.com/book/8q1s9uv/)
 - [首辅大人怀中娇（重生）](https://www.caocaospa.com/book/8q1s9pd/)
 - [寻真](https://www.caocaospa.com/book/8q1s9gl/)
 - [[清]给太子当姐姐那些年](https://www.caocaospa.com/book/8q1s9el/)
@@ -238,7 +239,6 @@
 - [在立海大玩网球模拟器](https://www.caocaospa.com/book/8q1rnte/)
 - [与清冷O协议结婚后她失忆了](https://www.caocaospa.com/book/8q1rnrb/)
 - [多梦你一会儿](https://www.caocaospa.com/book/8q1rnp6/)
-- [穿为清冷影后的污点A](https://www.caocaospa.com/book/8q1rnld/)
 - [都说了我很娇纵了](https://www.caocaospa.com/book/8q1rngv/)
 - [强爱清冷O后她上瘾了[快穿]](https://www.caocaospa.com/book/8q1rndo/)
 - [[足球]职业模拟器但足坛](https://www.caocaospa.com/book/8q1rn6d/)
@@ -412,7 +412,6 @@
 - [在重男兄弟间夹缝求生](https://www.caocaospa.com/book/8q1r9bc/)
 - [刀子精手心的人偶崽崽](https://www.caocaospa.com/book/8q1r941/)
 - [顶流他姐有神豪系统](https://www.caocaospa.com/book/8q1r92s/)
-- [在狗血文里躺平[人外]](https://www.caocaospa.com/book/8q1r90c/)
 - [直播捏玩具被榜一大哥撅了](https://www.caocaospa.com/book/8q1r8sa/)
 - [我靠玛丽苏系统伪装神女](https://www.caocaospa.com/book/8q1r8p8/)
 - [青山不渡](https://www.caocaospa.com/book/8q1r8on/)
@@ -425,6 +424,7 @@
 - [咒术师，但队友是侦探](https://www.caocaospa.com/book/8q1r88f/)
 - [柯学剧本杀，但恋爱流打法](https://www.caocaospa.com/book/8q1r7jv/)
 - [李玉灯](https://www.caocaospa.com/book/8q1r6kb/)
+- [好巧，你也是妹控？[综崩铁]](https://www.caocaospa.com/book/8q1r6jk/)
 - [我，剑圣，养生中，勿扰](https://www.caocaospa.com/book/8q1r5gq/)
 - [盛夏晴浓](https://www.caocaospa.com/book/8q1r49s/)
 - [等我吃腻了再倒闭可以吗](https://www.caocaospa.com/book/8q1r2lc/)

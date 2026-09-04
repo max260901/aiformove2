@@ -1,7 +1,7 @@
 
 # 紫玉海小说 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-09-04 03:45:45
+更新时间：2026-09-05 03:46:49
 
 紫玉海小说网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
@@ -121,7 +121,7 @@
 - [起初，我只是想找个冤大头](https://www.ziyuhai.com/book/84rjm70/)
 - [摄政王家的咸鱼夫郎](https://www.ziyuhai.com/book/84rjiap/)
 - [死遁的亡夫们都回来了](https://www.ziyuhai.com/book/q2quoc/)
-- [枕边热吻](https://www.ziyuhai.com/book/q2qt8m/)
+- [怀了前任大哥的崽后](https://www.ziyuhai.com/book/q2qt8m/)
 - [沈助理又在隐藏他的超能力](https://www.ziyuhai.com/book/q2qrpa/)
 - [假金丝雀深陷修罗场](https://www.ziyuhai.com/book/q2qne9/)
 - [死对头又在挑衅我](https://www.ziyuhai.com/book/q2qm22/)

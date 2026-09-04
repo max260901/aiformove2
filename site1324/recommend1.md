@@ -1,7 +1,7 @@
 
 # 笔趣阁小说网 - 免费在线阅读百万小说
 
-更新时间：2026-09-04 03:42:15
+更新时间：2026-09-05 03:43:18
 
 笔趣阁小说网提供免费的小说在线阅读服务，包括但不限于各类热门小说、经典文学等。网站支持书架同步功能，确保用户阅读进度永不丢失。快来加入我们，享受无障碍、无广告的纯净阅读体验吧！
 
@@ -121,7 +121,7 @@
 - [起初，我只是想找个冤大头](https://www.xiaoshuo139.com/book/2ch4du6/)
 - [摄政王家的咸鱼夫郎](https://www.xiaoshuo139.com/book/2ch49o6/)
 - [死遁的亡夫们都回来了](https://www.xiaoshuo139.com/book/7kvqpl/)
-- [枕边热吻](https://www.xiaoshuo139.com/book/7kvp12/)
+- [怀了前任大哥的崽后](https://www.xiaoshuo139.com/book/7kvp12/)
 - [沈助理又在隐藏他的超能力](https://www.xiaoshuo139.com/book/7kvohr/)
 - [假金丝雀深陷修罗场](https://www.xiaoshuo139.com/book/7kvijj/)
 - [死对头又在挑衅我](https://www.xiaoshuo139.com/book/7kviii/)

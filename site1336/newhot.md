@@ -1,7 +1,7 @@
 
 # 笔看阁-最热门的免费小说网 | 玄幻、网游、言情、穿越、都市全本小说在线阅读
 
-更新时间：2026-09-04 03:24:05
+更新时间：2026-09-05 03:25:12
 
 笔看阁是最热门的免费小说网站之一，专注于提供包括玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读服务。本站承诺不设任何弹窗广告，页面简洁易用，为读者创造一个纯净舒适的阅读环境。
 
@@ -20,9 +20,9 @@
 - [咦？我爸爸复活啦](https://www.dasenluan.com/book/3jmhkjb/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.dasenluan.com/book/3jmhkie/)
 - [暴君偏头痛](https://www.dasenluan.com/book/3jmhjo7/)
-- [阿竹与野桃](https://www.dasenluan.com/book/3jmhjo3/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.dasenluan.com/book/3jmhjns/)
 - [我的烧烤摊超美味[美食]](https://www.dasenluan.com/book/3jmhjm1/)
+- [渡鬼](https://www.dasenluan.com/book/3jmhjkt/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.dasenluan.com/book/3jmhie0/)
 - [修仙界都为我神魂颠倒](https://www.dasenluan.com/book/3jmhic6/)
 - [穿成年代文奇葩前妻](https://www.dasenluan.com/book/3jmhi5n/)
@@ -157,7 +157,6 @@
 - [七零知青有空间](https://www.dasenluan.com/book/3jmf3qu/)
 - [若清晨所见之蓝](https://www.dasenluan.com/book/3jmf3kb/)
 - [灰墙之下](https://www.dasenluan.com/book/3jmf3jm/)
-- [咸鱼受只想摆烂](https://www.dasenluan.com/book/3jmf3in/)
 - [被子同学](https://www.dasenluan.com/book/3jmf3a0/)
 - [ƽ��С����(�崩)](https://www.dasenluan.com/book/3jmf370/)
 - [被迫跟死对头结婚后](https://www.dasenluan.com/book/3jmf342/)
@@ -421,7 +420,6 @@
 - [[封神]圣人生欲](https://www.dasenluan.com/book/3jme377/)
 - [某柯学的正义伙伴](https://www.dasenluan.com/book/3jme2fo/)
 - [青空来信](https://www.dasenluan.com/book/3jme28n/)
-- [在狗血文里躺平[人外]](https://www.dasenluan.com/book/3jme286/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.dasenluan.com/book/3jme256/)
 - [老公是松散生命体](https://www.dasenluan.com/book/3jme0ts/)
 - [善逸拒绝成为咒术师](https://www.dasenluan.com/book/3jme0bq/)
@@ -433,6 +431,7 @@
 - [战死的阿爹回来了[年代]](https://www.dasenluan.com/book/3jmdlf8/)
 - [[综英美]让我统治哥谭！！！](https://www.dasenluan.com/book/3jmdl2f/)
 - [盛夏晴浓](https://www.dasenluan.com/book/3jmdkj1/)
+- [好巧，你也是妹控？[综崩铁]](https://www.dasenluan.com/book/3jmdgie/)
 - [求生游戏：当邪神成为生活玩家后](https://www.dasenluan.com/book/3jmde9k/)
 - [好兄弟暴富后非要跟我结婚](https://www.dasenluan.com/book/3jmde0k/)
 - [关于我虚构了一个男友这件事](https://www.dasenluan.com/book/3jmddgv/)

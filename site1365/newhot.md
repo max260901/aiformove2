@@ -1,7 +1,7 @@
 
 # 书城读书网_免费小说在线阅读|无弹窗广告
 
-更新时间：2026-09-04 03:36:07
+更新时间：2026-09-05 03:37:10
 
 书城读书网是最热门的免费小说网站，提供包括玄幻、都市、言情等多种类型的小说在线阅读服务。这里不仅有最新章节的实时更新，还有全面的小说排行榜，让您轻松找到喜欢的作品。阅读体验极佳，全程无弹窗广告干扰，值得收藏！
 
@@ -32,8 +32,8 @@
 - [我超凶的！[快穿]](https://www.shucheng168.com/book/47fout1/)
 - [我比反派先崩坏[快穿]](https://www.shucheng168.com/book/47fou4r/)
 - [我的烧烤摊超美味[美食]](https://www.shucheng168.com/book/47fots7/)
-- [阿竹与野桃](https://www.shucheng168.com/book/47fotqn/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shucheng168.com/book/47fotq8/)
+- [渡鬼](https://www.shucheng168.com/book/47fotpn/)
 - [cos温迪后玩到真崩铁了](https://www.shucheng168.com/book/47fopkg/)
 - [从异世界穿回来后](https://www.shucheng168.com/book/47fopfu/)
 - [我有嘉宾](https://www.shucheng168.com/book/47fop7g/)
@@ -132,7 +132,6 @@
 - [在无限世界当晕倒羊](https://www.shucheng168.com/book/47fmu2s/)
 - [备胎的我重生成万人迷](https://www.shucheng168.com/book/47fmtvo/)
 - [我妈是大佬[快穿]](https://www.shucheng168.com/book/47fmti7/)
-- [咸鱼受只想摆烂](https://www.shucheng168.com/book/47fmsga/)
 - [长公主的六零年代](https://www.shucheng168.com/book/47fms4r/)
 - [你也没死？](https://www.shucheng168.com/book/47fms0h/)
 - [逝水](https://www.shucheng168.com/book/47fmrss/)
@@ -423,13 +422,13 @@
 - [虫族治愈师，但恐虫](https://www.shucheng168.com/book/47flpt7/)
 - [请问夫君你哪位](https://www.shucheng168.com/book/47flpo0/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.shucheng168.com/book/47flok3/)
-- [在狗血文里躺平[人外]](https://www.shucheng168.com/book/47fln03/)
 - [求生游戏：当邪神成为生活玩家后](https://www.shucheng168.com/book/47flmfj/)
 - [我最讨厌打球了！](https://www.shucheng168.com/book/47flmei/)
 - [刀子精手心的人偶崽崽](https://www.shucheng168.com/book/47flkbb/)
 - [盛夏晴浓](https://www.shucheng168.com/book/47flet7/)
 - [[足球]小小鸟堂堂来袭](https://www.shucheng168.com/book/47fleov/)
 - [幼崽假少爷选择回归寒门](https://www.shucheng168.com/book/47fleel/)
+- [好巧，你也是妹控？[综崩铁]](https://www.shucheng168.com/book/47flcgh/)
 - [青城玩家明明超强却过分谨慎](https://www.shucheng168.com/book/47flcbj/)
 - [矩阵干扰](https://www.shucheng168.com/book/47fla1o/)
 - [好兄弟暴富后非要跟我结婚](https://www.shucheng168.com/book/47fl97c/)

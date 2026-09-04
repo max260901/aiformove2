@@ -1,7 +1,7 @@
 
 # 探秘笔神阁小说-好看小说快速更新,页面清新流畅的免费小说网
 
-更新时间：2026-09-04 03:38:09
+更新时间：2026-09-05 03:39:12
 
 探秘笔神阁小说收录了大量受欢迎的小说作品，以极快的速度进行更新，并且保证用户在阅读时能够享受到清新流畅的页面体验。作为一个完全免费的小说网站，它深受广大网友的喜爱。
 
@@ -30,9 +30,9 @@
 - [渣攻他疯了［快穿］](https://www.tanmi818.com/book/977f7sn/)
 - [[足球]番外乐子集](https://www.tanmi818.com/book/977f7od/)
 - [我超凶的！[快穿]](https://www.tanmi818.com/book/977f5th/)
-- [阿竹与野桃](https://www.tanmi818.com/book/977f54s/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.tanmi818.com/book/977f54c/)
 - [我比反派先崩坏[快穿]](https://www.tanmi818.com/book/977f54b/)
+- [渡鬼](https://www.tanmi818.com/book/977f54a/)
 - [我的烧烤摊超美味[美食]](https://www.tanmi818.com/book/977f547/)
 - [cos温迪后玩到真崩铁了](https://www.tanmi818.com/book/977f0lt/)
 - [从异世界穿回来后](https://www.tanmi818.com/book/977f0f4/)
@@ -141,7 +141,6 @@
 - [逝水](https://www.tanmi818.com/book/977d24k/)
 - [首辅大人怀中娇（重生）](https://www.tanmi818.com/book/977d1ub/)
 - [被子同学](https://www.tanmi818.com/book/977d1o4/)
-- [咸鱼受只想摆烂](https://www.tanmi818.com/book/977d1ko/)
 - [黑莲花在线演我](https://www.tanmi818.com/book/977d1k1/)
 - [陛下今天怼人了吗［快穿］](https://www.tanmi818.com/book/977d1j5/)
 - [歪剧情我是专业的[快穿]](https://www.tanmi818.com/book/977d1ev/)
@@ -423,7 +422,6 @@
 - [神之子与排球的适配性](https://www.tanmi818.com/book/977c0pn/)
 - [直播捏玩具被榜一大哥撅了](https://www.tanmi818.com/book/977c0o0/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.tanmi818.com/book/977bvdr/)
-- [在狗血文里躺平[人外]](https://www.tanmi818.com/book/977bv6r/)
 - [刀子精手心的人偶崽崽](https://www.tanmi818.com/book/977bto9/)
 - [我最讨厌打球了！](https://www.tanmi818.com/book/977bt6p/)
 - [求生游戏：当邪神成为生活玩家后](https://www.tanmi818.com/book/977bt14/)
@@ -431,6 +429,7 @@
 - [盛夏晴浓](https://www.tanmi818.com/book/977bmgc/)
 - [幼崽假少爷选择回归寒门](https://www.tanmi818.com/book/977bm42/)
 - [青城玩家明明超强却过分谨慎](https://www.tanmi818.com/book/977bjb0/)
+- [好巧，你也是妹控？[综崩铁]](https://www.tanmi818.com/book/977biva/)
 - [侯府打工人](https://www.tanmi818.com/book/977bh7t/)
 - [好兄弟暴富后非要跟我结婚](https://www.tanmi818.com/book/977bh0u/)
 - [自大狂](https://www.tanmi818.com/book/977bgvq/)

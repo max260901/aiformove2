@@ -1,7 +1,7 @@
 
 # 燃文故事小说网 - 无弹窗全本小说免费阅读
 
-更新时间：2026-09-04 03:26:27
+更新时间：2026-09-05 03:27:31
 
 燃文故事小说网提供无弹窗干扰的小说阅读体验，支持全本小说在线免费阅读。
 
@@ -31,7 +31,7 @@
 - [[足球]番外乐子集](https://www.gushi687.com/book/63qv3rr/)
 - [我超凶的！[快穿]](https://www.gushi687.com/book/63qv1v6/)
 - [我比反派先崩坏[快穿]](https://www.gushi687.com/book/63qv16q/)
-- [阿竹与野桃](https://www.gushi687.com/book/63qv0t2/)
+- [渡鬼](https://www.gushi687.com/book/63qv0to/)
 - [我的烧烤摊超美味[美食]](https://www.gushi687.com/book/63qv0rb/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.gushi687.com/book/63qv0qq/)
 - [cos温迪后玩到真崩铁了](https://www.gushi687.com/book/63qusn6/)
@@ -148,7 +148,6 @@
 - [巨星渡灵师](https://www.gushi687.com/book/63qsu18/)
 - [首辅大人怀中娇（重生）](https://www.gushi687.com/book/63qsu0l/)
 - [陛下今天怼人了吗［快穿］](https://www.gushi687.com/book/63qstge/)
-- [咸鱼受只想摆烂](https://www.gushi687.com/book/63qst4q/)
 - [ƽ��С����(�崩)](https://www.gushi687.com/book/63qsslm/)
 - [[综武侠]换装之江湖遍地是小号](https://www.gushi687.com/book/63qssds/)
 - [灰墙之下](https://www.gushi687.com/book/63qssb5/)
@@ -422,7 +421,6 @@
 - [司寝宫女](https://www.gushi687.com/book/63qrssj/)
 - [无能的丈夫们](https://www.gushi687.com/book/63qrsse/)
 - [失忆后，和五条激情互演](https://www.gushi687.com/book/63qrspo/)
-- [在狗血文里躺平[人外]](https://www.gushi687.com/book/63qrqgb/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.gushi687.com/book/63qrps8/)
 - [我最讨厌打球了！](https://www.gushi687.com/book/63qrp49/)
 - [刀子精手心的人偶崽崽](https://www.gushi687.com/book/63qro9r/)
@@ -430,6 +428,7 @@
 - [幼崽假少爷选择回归寒门](https://www.gushi687.com/book/63qrjfk/)
 - [[足球]小小鸟堂堂来袭](https://www.gushi687.com/book/63qribj/)
 - [盛夏晴浓](https://www.gushi687.com/book/63qrhai/)
+- [好巧，你也是妹控？[综崩铁]](https://www.gushi687.com/book/63qrg73/)
 - [青城玩家明明超强却过分谨慎](https://www.gushi687.com/book/63qre7i/)
 - [法外狂猫](https://www.gushi687.com/book/63qrdlo/)
 - [侯府打工人](https://www.gushi687.com/book/63qrdlk/)

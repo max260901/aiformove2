@@ -1,13 +1,15 @@
 
 # 微雨数据小说,新笔趣小说阅读网,顶点小说网备份-热门小说大全
 
-更新时间：2026-09-04 03:39:11
+更新时间：2026-09-05 03:40:14
 
 微雨数据小说网作为广大书友喜爱的平台之一，同时也是顶点小说阅读网的官方备份网站，汇集了当前最受欢迎和最火热的小说资源。当遇到顶点小说网无法访问时，请访问笔趣看小说网继续享受精彩内容！
 
 - [微雨数据小说](https://www.weiyushuju.com/)
 
 ## 最新小说
+- [cos温迪后玩到真崩铁了](https://www.weiyushuju.com/book/6rf7au0/)
+- [躲避原书剧情五年后](https://www.weiyushuju.com/book/6rf7aqv/)
 - [自知之明](https://www.weiyushuju.com/book/6rf7ako/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.weiyushuju.com/book/6rf7ajs/)
 - [禁止继承限制级雌君](https://www.weiyushuju.com/book/6rf7ajl/)
@@ -56,8 +58,8 @@
 - [可怜的天然呆直男[快穿]](https://www.weiyushuju.com/book/6rf5tet/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.weiyushuju.com/book/6rf5tba/)
 - [暗堕本丸，在线直播](https://www.weiyushuju.com/book/6rf5tb7/)
+- [渡鬼](https://www.weiyushuju.com/book/6rf5t58/)
 - [我的烧烤摊超美味[美食]](https://www.weiyushuju.com/book/6rf5t1e/)
-- [阿竹与野桃](https://www.weiyushuju.com/book/6rf5srv/)
 - [[足球]听克圣的话，成了米兰金童](https://www.weiyushuju.com/book/6rf5smk/)
 - [我有一座城](https://www.weiyushuju.com/book/6rf5s4u/)
 - [bl世界的路人不想被掰弯](https://www.weiyushuju.com/book/6rf5rj7/)
@@ -119,7 +121,6 @@
 - [当小狗炮灰分手后](https://www.weiyushuju.com/book/6rf5ep3/)
 - [备胎的我重生成万人迷](https://www.weiyushuju.com/book/6rf5enr/)
 - [忍界修罗带球跑](https://www.weiyushuju.com/book/6rf5e8i/)
-- [咸鱼受只想摆烂](https://www.weiyushuju.com/book/6rf5e3p/)
 - [灰墙之下](https://www.weiyushuju.com/book/6rf5e17/)
 - [若清晨所见之蓝](https://www.weiyushuju.com/book/6rf5dqe/)
 - [[清]给太子当姐姐那些年](https://www.weiyushuju.com/book/6rf5dpl/)
@@ -238,7 +239,6 @@
 - [强爱清冷O后她上瘾了[快穿]](https://www.weiyushuju.com/book/6rf4qlo/)
 - [吃瓜也能整顿豪门？](https://www.weiyushuju.com/book/6rf4qk0/)
 - [人外收集录［快穿］](https://www.weiyushuju.com/book/6rf4qjs/)
-- [穿为清冷影后的污点A](https://www.weiyushuju.com/book/6rf4qev/)
 - [少女妄想症](https://www.weiyushuju.com/book/6rf4qad/)
 - [与清冷O协议结婚后她失忆了](https://www.weiyushuju.com/book/6rf4q9p/)
 - [[足球]职业模拟器但足坛](https://www.weiyushuju.com/book/6rf4q8l/)
@@ -405,7 +405,6 @@
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.weiyushuju.com/book/6rf4ce8/)
 - [顶流他姐有神豪系统](https://www.weiyushuju.com/book/6rf4cd7/)
 - [好兄弟暴富后非要跟我结婚](https://www.weiyushuju.com/book/6rf4ccf/)
-- [在狗血文里躺平[人外]](https://www.weiyushuju.com/book/6rf4car/)
 - [青山不渡](https://www.weiyushuju.com/book/6rf4c92/)
 - [我靠玛丽苏系统伪装神女](https://www.weiyushuju.com/book/6rf4c7u/)
 - [让我再吃一口](https://www.weiyushuju.com/book/6rf4c6u/)
@@ -423,6 +422,7 @@
 - [普通高中生，但兼职咒术师](https://www.weiyushuju.com/book/6rf4be1/)
 - [直播捏玩具被榜一大哥撅了](https://www.weiyushuju.com/book/6rf4bbe/)
 - [救命！猫尾巴藏不住了](https://www.weiyushuju.com/book/6rf4b38/)
+- [好巧，你也是妹控？[综崩铁]](https://www.weiyushuju.com/book/6rf4atq/)
 - [我，剑圣，养生中，勿扰](https://www.weiyushuju.com/book/6rf4as9/)
 - [柯学剧本杀，但恋爱流打法](https://www.weiyushuju.com/book/6rf4aru/)
 - [李玉灯](https://www.weiyushuju.com/book/6rf4876/)

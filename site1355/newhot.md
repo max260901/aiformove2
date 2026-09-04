@@ -1,7 +1,7 @@
 
 # 梦翔橙子小说网-全本小说最值得收藏的在线阅读平台
 
-更新时间：2026-09-04 03:32:00
+更新时间：2026-09-05 03:33:00
 
 梦翔橙子小说网为您提供最新、最热门的小说资源，拥有全网最全面的小说库。无论是全本还是连载中，都能在这里找到。是解决书荒问题的理想选择，让您的阅读体验更加流畅愉快。
 
@@ -33,7 +33,7 @@
 - [我比反派先崩坏[快穿]](https://www.mengxiang668.com/book/2nrpr9q/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.mengxiang668.com/book/2nrpr0c/)
 - [我的烧烤摊超美味[美食]](https://www.mengxiang668.com/book/2nrpqtd/)
-- [阿竹与野桃](https://www.mengxiang668.com/book/2nrpqsi/)
+- [渡鬼](https://www.mengxiang668.com/book/2nrpqt5/)
 - [cos温迪后玩到真崩铁了](https://www.mengxiang668.com/book/2nrpmqu/)
 - [从异世界穿回来后](https://www.mengxiang668.com/book/2nrpmkj/)
 - [我有嘉宾](https://www.mengxiang668.com/book/2nrpm9k/)
@@ -139,7 +139,6 @@
 - [歪剧情我是专业的[快穿]](https://www.mengxiang668.com/book/2nrnp99/)
 - [可怜的天然呆直男[快穿]](https://www.mengxiang668.com/book/2nrnp7v/)
 - [我不可能舔一个漂亮捞子](https://www.mengxiang668.com/book/2nrnp5u/)
-- [咸鱼受只想摆烂](https://www.mengxiang668.com/book/2nrnorn/)
 - [寻真](https://www.mengxiang668.com/book/2nrnolk/)
 - [你也没死？](https://www.mengxiang668.com/book/2nrnol1/)
 - [巨星渡灵师](https://www.mengxiang668.com/book/2nrnojd/)
@@ -423,7 +422,6 @@
 - [青空来信](https://www.mengxiang668.com/book/2nrmn3m/)
 - [举朝上下为我的神仙人设头疼中](https://www.mengxiang668.com/book/2nrmmvi/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.mengxiang668.com/book/2nrmlka/)
-- [在狗血文里躺平[人外]](https://www.mengxiang668.com/book/2nrmkol/)
 - [我最讨厌打球了！](https://www.mengxiang668.com/book/2nrmj4m/)
 - [求生游戏：当邪神成为生活玩家后](https://www.mengxiang668.com/book/2nrmis8/)
 - [刀子精手心的人偶崽崽](https://www.mengxiang668.com/book/2nrmi4t/)
@@ -431,6 +429,7 @@
 - [盛夏晴浓](https://www.mengxiang668.com/book/2nrmbg1/)
 - [[足球]小小鸟堂堂来袭](https://www.mengxiang668.com/book/2nrmbe3/)
 - [青城玩家明明超强却过分谨慎](https://www.mengxiang668.com/book/2nrm911/)
+- [好巧，你也是妹控？[综崩铁]](https://www.mengxiang668.com/book/2nrm89k/)
 - [矩阵干扰](https://www.mengxiang668.com/book/2nrm7ln/)
 - [法外狂猫](https://www.mengxiang668.com/book/2nrm7a6/)
 - [侯府打工人](https://www.mengxiang668.com/book/2nrm725/)

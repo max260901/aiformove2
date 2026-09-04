@@ -1,7 +1,7 @@
 
 # 情感小说-精彩小说推荐网,涵盖言情都市历史科幻等多种类型
 
-更新时间：2026-09-04 03:34:14
+更新时间：2026-09-05 03:35:16
 
 情感小说致力于为广大书友推荐各种类型好看的小说，包括但不限于言情、都市、历史、科幻、灵异、军事、悬疑、玄幻、武侠、末世等。看小说，找小说就上书格格小说推荐网！
 
@@ -104,7 +104,7 @@
 - [九零首富的替嫁小媳妇](https://www.qinggan1687.com/book/3qc36so/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.qinggan1687.com/book/3qc3663/)
 - [我骗家里的钱养你啊](https://www.qinggan1687.com/book/3qc35lr/)
-- [枕边热吻](https://www.qinggan1687.com/book/3qc35ef/)
+- [怀了前任大哥的崽后](https://www.qinggan1687.com/book/3qc35ef/)
 - [沈助理又在隐藏他的超能力](https://www.qinggan1687.com/book/3qc2va3/)
 - [死对头又在挑衅我](https://www.qinggan1687.com/book/3qc2v19/)
 - [在民俗惊悚片被诸神庇护](https://www.qinggan1687.com/book/3qc2tau/)

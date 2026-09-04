@@ -1,13 +1,15 @@
 
 # 小顽童寻书网-最热门的免费小说阅读平台|全本玄幻言情网游穿越都市小说在线阅读
 
-更新时间：2026-09-04 03:43:06
+更新时间：2026-09-05 03:44:09
 
 小顽童寻书网提供一个无广告、无弹窗干扰的环境，让您享受纯净的小说阅读体验。涵盖玄幻、网游、言情、穿越、都市等多种类型的小说资源，在这里可以找到最新的章节更新以及完整的书籍内容。
 
 - [小顽童寻书网](https://www.xwt999.com/)
 
 ## 最新小说
+- [cos温迪后玩到真崩铁了](https://www.xwt999.com/book/1u5ni3h/)
+- [躲避原书剧情五年后](https://www.xwt999.com/book/1u5nhvq/)
 - [自知之明](https://www.xwt999.com/book/1u5nhr0/)
 - [清穿女回来后[天幕]](https://www.xwt999.com/book/1u5nhqt/)
 - [禁止继承限制级雌君](https://www.xwt999.com/book/1u5nhor/)
@@ -54,8 +56,8 @@
 - [我的烧烤摊超美味[美食]](https://www.xwt999.com/book/1u5m5er/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xwt999.com/book/1u5m5df/)
 - [全天下都在求太子殿下别死！](https://www.xwt999.com/book/1u5m4rn/)
-- [阿竹与野桃](https://www.xwt999.com/book/1u5m4d6/)
 - [我当县令那些年](https://www.xwt999.com/book/1u5m48u/)
+- [渡鬼](https://www.xwt999.com/book/1u5m450/)
 - [五美元在哥谭活一月](https://www.xwt999.com/book/1u5m40p/)
 - [优质攻不做恋爱脑[快穿]](https://www.xwt999.com/book/1u5m408/)
 - [bl世界的路人不想被掰弯](https://www.xwt999.com/book/1u5m3ao/)
@@ -121,7 +123,6 @@
 - [来自深渊的救世者](https://www.xwt999.com/book/1u5lle8/)
 - [[综崩铁]谁家小鸟掉冥河了](https://www.xwt999.com/book/1u5llae/)
 - [被子同学](https://www.xwt999.com/book/1u5ll84/)
-- [咸鱼受只想摆烂](https://www.xwt999.com/book/1u5ll2a/)
 - [妖怪崽崽种田日常](https://www.xwt999.com/book/1u5lkkg/)
 - [首辅大人怀中娇（重生）](https://www.xwt999.com/book/1u5lkgs/)
 - [歪剧情我是专业的[快穿]](https://www.xwt999.com/book/1u5lkgr/)
@@ -242,7 +243,6 @@
 - [都说了我很娇纵了](https://www.xwt999.com/book/1u5l13c/)
 - [[足球]职业模拟器但足坛](https://www.xwt999.com/book/1u5l10q/)
 - [挚友和我穿越后分了阵营](https://www.xwt999.com/book/1u5l0vv/)
-- [穿为清冷影后的污点A](https://www.xwt999.com/book/1u5l0vs/)
 - [反派的病弱白月光重生了](https://www.xwt999.com/book/1u5l0vc/)
 - [退圈后，我靠职场综艺火爆全网](https://www.xwt999.com/book/1u5l0ok/)
 - [娇气包在无限游戏被坏男人骗](https://www.xwt999.com/book/1u5l0l1/)
@@ -413,7 +413,6 @@
 - [无能的丈夫们](https://www.xwt999.com/book/1u5kjl7/)
 - [每天都在和太宰互换身体](https://www.xwt999.com/book/1u5kjib/)
 - [顶流他姐有神豪系统](https://www.xwt999.com/book/1u5kjd6/)
-- [在狗血文里躺平[人外]](https://www.xwt999.com/book/1u5kj6t/)
 - [神之子与排球的适配性](https://www.xwt999.com/book/1u5kj15/)
 - [青城玩家明明超强却过分谨慎](https://www.xwt999.com/book/1u5kimp/)
 - [癫骨](https://www.xwt999.com/book/1u5kilr/)
@@ -425,6 +424,7 @@
 - [青山不渡](https://www.xwt999.com/book/1u5ki8c/)
 - [我，剑圣，养生中，勿扰](https://www.xwt999.com/book/1u5ki4q/)
 - [柯学剧本杀，但恋爱流打法](https://www.xwt999.com/book/1u5khsg/)
+- [好巧，你也是妹控？[综崩铁]](https://www.xwt999.com/book/1u5kgm6/)
 - [李玉灯](https://www.xwt999.com/book/1u5kgg6/)
 - [等我吃腻了再倒闭可以吗](https://www.xwt999.com/book/1u5keds/)
 - [盛夏晴浓](https://www.xwt999.com/book/1u5kcs1/)

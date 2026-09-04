@@ -1,7 +1,7 @@
 
 # 灌南华侨小说网笔趣阁_书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-04 03:25:39
+更新时间：2026-09-05 03:26:43
 
 灌南华侨小说网笔趣阁海量免费小说在线阅读平台，汇聚玄幻、都市、言情、科幻、悬疑等全品类热门小说，实时更新全网爆款佳作。无广告干扰，支持缓存离线看，让你随时随地沉浸阅读世界，找书看书就来笔趣阁，满足你的所有阅读渴望。
 
@@ -15,7 +15,7 @@
 - [禁止继承限制级雌君](https://www.gnhqbs.com/book/1cqms1r/)
 - [我的烧烤摊超美味[美食]](https://www.gnhqbs.com/book/1cqms1a/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.gnhqbs.com/book/1cqms13/)
-- [阿竹与野桃](https://www.gnhqbs.com/book/1cqms0v/)
+- [渡鬼](https://www.gnhqbs.com/book/1cqms06/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.gnhqbs.com/book/1cqmreh/)
 - [孤独症崽崽穿越到狗血爽文里[穿书]](https://www.gnhqbs.com/book/1cqmqti/)
 - [穿成反派的亡夫后[虫族]](https://www.gnhqbs.com/book/1cqmpm0/)
@@ -152,7 +152,6 @@
 - [歪剧情我是专业的[快穿]](https://www.gnhqbs.com/book/1cqkcaa/)
 - [[清]给太子当姐姐那些年](https://www.gnhqbs.com/book/1cqkc9v/)
 - [我绝不可能是只NPC](https://www.gnhqbs.com/book/1cqkbqu/)
-- [咸鱼受只想摆烂](https://www.gnhqbs.com/book/1cqkbl4/)
 - [长公主的六零年代](https://www.gnhqbs.com/book/1cqkbgg/)
 - [若清晨所见之蓝](https://www.gnhqbs.com/book/1cqkb3f/)
 - [灰墙之下](https://www.gnhqbs.com/book/1cqkavo/)
@@ -274,7 +273,6 @@
 - [这谁的沙雕二次元心声！](https://www.gnhqbs.com/book/1cqjo03/)
 - [当魔修反派穿成治愈系[穿书]](https://www.gnhqbs.com/book/1cqjnqd/)
 - [炮灰的我该如何上位？](https://www.gnhqbs.com/book/1cqjnml/)
-- [穿为清冷影后的污点A](https://www.gnhqbs.com/book/1cqjnlc/)
 - [我被厉鬼盯上了](https://www.gnhqbs.com/book/1cqjni3/)
 - [小亲王他不是吉祥物](https://www.gnhqbs.com/book/1cqjnf1/)
 - [忍界修罗金屋藏娇了？](https://www.gnhqbs.com/book/1cqjncq/)
@@ -432,10 +430,10 @@
 - [刀子精手心的人偶崽崽](https://www.gnhqbs.com/book/1cqj9sj/)
 - [求生游戏：当邪神成为生活玩家后](https://www.gnhqbs.com/book/1cqj9ra/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.gnhqbs.com/book/1cqj94m/)
-- [在狗血文里躺平[人外]](https://www.gnhqbs.com/book/1cqj8it/)
 - [青城玩家明明超强却过分谨慎](https://www.gnhqbs.com/book/1cqj73e/)
 - [[足球]小小鸟堂堂来袭](https://www.gnhqbs.com/book/1cqj6qd/)
 - [撕毁女配剧本的我被神之子读心了](https://www.gnhqbs.com/book/1cqj698/)
+- [好巧，你也是妹控？[综崩铁]](https://www.gnhqbs.com/book/1cqj5u4/)
 - [矩阵干扰](https://www.gnhqbs.com/book/1cqj3ri/)
 - [柯学剧本杀，但恋爱流打法](https://www.gnhqbs.com/book/1cqj3k2/)
 - [盛夏晴浓](https://www.gnhqbs.com/book/1cqj3iq/)

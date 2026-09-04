@@ -1,7 +1,7 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-09-04 03:25:08
+更新时间：2026-09-05 03:26:13
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。
 
@@ -21,8 +21,8 @@
 - [自知之明](https://www.fshxjd.com/book/74i3moa/)
 - [我的烧烤摊超美味[美食]](https://www.fshxjd.com/book/74i3ltr/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.fshxjd.com/book/74i3ltp/)
-- [阿竹与野桃](https://www.fshxjd.com/book/74i3lrb/)
 - [暴君偏头痛](https://www.fshxjd.com/book/74i3lr1/)
+- [渡鬼](https://www.fshxjd.com/book/74i3lqg/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.fshxjd.com/book/74i3kke/)
 - [修仙界都为我神魂颠倒](https://www.fshxjd.com/book/74i3kiv/)
 - [穿成年代文奇葩前妻](https://www.fshxjd.com/book/74i3kbg/)
@@ -151,7 +151,6 @@
 - [[清]给太子当姐姐那些年](https://www.fshxjd.com/book/74i1788/)
 - [长公主的六零年代](https://www.fshxjd.com/book/74i1784/)
 - [巨星渡灵师](https://www.fshxjd.com/book/74i16io/)
-- [咸鱼受只想摆烂](https://www.fshxjd.com/book/74i167e/)
 - [[综武侠]换装之江湖遍地是小号](https://www.fshxjd.com/book/74i1642/)
 - [巨龙宝藏是个小社恐](https://www.fshxjd.com/book/74i163q/)
 - [被迫跟死对头结婚后](https://www.fshxjd.com/book/74i161f/)
@@ -421,7 +420,6 @@
 - [青空来信](https://www.fshxjd.com/book/74i054j/)
 - [[封神]圣人生欲](https://www.fshxjd.com/book/74i053h/)
 - [某柯学的正义伙伴](https://www.fshxjd.com/book/74i04tr/)
-- [在狗血文里躺平[人外]](https://www.fshxjd.com/book/74i03uh/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.fshxjd.com/book/74i03rd/)
 - [善逸拒绝成为咒术师](https://www.fshxjd.com/book/74i02k5/)
 - [老公是松散生命体](https://www.fshxjd.com/book/74i0229/)
@@ -433,6 +431,7 @@
 - [刀子精手心的人偶崽崽](https://www.fshxjd.com/book/74hvptk/)
 - [盛夏晴浓](https://www.fshxjd.com/book/74hvmj8/)
 - [[综英美]让我统治哥谭！！！](https://www.fshxjd.com/book/74hvlbg/)
+- [好巧，你也是妹控？[综崩铁]](https://www.fshxjd.com/book/74hvjcq/)
 - [好兄弟暴富后非要跟我结婚](https://www.fshxjd.com/book/74hvhfr/)
 - [关于我虚构了一个男友这件事](https://www.fshxjd.com/book/74hvhbl/)
 - [求生游戏：当邪神成为生活玩家后](https://www.fshxjd.com/book/74hvgoh/)

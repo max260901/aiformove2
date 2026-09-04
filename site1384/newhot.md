@@ -1,13 +1,16 @@
 
 # 积家健康小说 - 无弹窗无广告小说在线阅读
 
-更新时间：2026-09-04 03:27:35
+更新时间：2026-09-05 03:28:37
 
 积家健康小说提供一个干净简洁的平台让您享受无弹窗无广告的小说在线阅读体验。无论是在线阅读还是下载小说，都是完全免费的。
 
 - [积家健康小说](https://www.jijiajk.com/)
 
 ## 最新小说
+- [节能型社恐靠交友存活打排球](https://www.jijiajk.com/book/3ab2rh0/)
+- [渣攻他疯了［快穿］](https://www.jijiajk.com/book/3ab2qul/)
+- [[足球]番外乐子集](https://www.jijiajk.com/book/3ab2qf2/)
 - [清穿女回来后[天幕]](https://www.jijiajk.com/book/3ab2po9/)
 - [等我吃腻了再倒闭可以吗](https://www.jijiajk.com/book/3ab2pns/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.jijiajk.com/book/3ab2pm8/)
@@ -40,7 +43,7 @@
 - [侦探立于百万生命之上](https://www.jijiajk.com/book/3ab1u12/)
 - [我的烧烤摊超美味[美食]](https://www.jijiajk.com/book/3ab1ttg/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.jijiajk.com/book/3ab1tr2/)
-- [阿竹与野桃](https://www.jijiajk.com/book/3ab1tq7/)
+- [渡鬼](https://www.jijiajk.com/book/3ab1tjk/)
 - [特殊魅力值，已到账](https://www.jijiajk.com/book/3ab1tf6/)
 - [昭暮](https://www.jijiajk.com/book/3ab1q96/)
 - [反派执迷不悟之后（快穿）](https://www.jijiajk.com/book/3ab1b9u/)
@@ -124,7 +127,6 @@
 - [堕魔](https://www.jijiajk.com/book/3ab0n58/)
 - [老公是松散生命体](https://www.jijiajk.com/book/3ab0mu8/)
 - [[综崩铁]谁家小鸟掉冥河了](https://www.jijiajk.com/book/3ab0m7a/)
-- [咸鱼受只想摆烂](https://www.jijiajk.com/book/3ab0m6v/)
 - [长公主的六零年代](https://www.jijiajk.com/book/3ab0lmq/)
 - [黑莲花在线演我](https://www.jijiajk.com/book/3ab0lku/)
 - [[清]给太子当姐姐那些年](https://www.jijiajk.com/book/3ab0lk5/)
@@ -254,7 +256,6 @@
 - [挚友和我穿越后分了阵营](https://www.jijiajk.com/book/3ab01pk/)
 - [退圈后，我靠职场综艺火爆全网](https://www.jijiajk.com/book/3ab01pg/)
 - [与清冷O协议结婚后她失忆了](https://www.jijiajk.com/book/3ab01m6/)
-- [穿为清冷影后的污点A](https://www.jijiajk.com/book/3ab01gf/)
 - [恶毒女配是绝色美人[快穿]](https://www.jijiajk.com/book/3ab01b9/)
 - [就算是龙傲天也不可以[快穿]](https://www.jijiajk.com/book/3ab018b/)
 - [忍界修罗金屋藏娇了？](https://www.jijiajk.com/book/3ab014o/)
@@ -418,7 +419,6 @@
 - [青山不渡](https://www.jijiajk.com/book/3aavjut/)
 - [法外狂猫](https://www.jijiajk.com/book/3aavjto/)
 - [每天都在和太宰互换身体](https://www.jijiajk.com/book/3aavjrf/)
-- [在狗血文里躺平[人外]](https://www.jijiajk.com/book/3aavig9/)
 - [和室友他爸恋爱后](https://www.jijiajk.com/book/3aavie1/)
 - [矩阵干扰](https://www.jijiajk.com/book/3aavhf2/)
 - [青城玩家明明超强却过分谨慎](https://www.jijiajk.com/book/3aavheq/)
@@ -427,6 +427,7 @@
 - [盛夏晴浓](https://www.jijiajk.com/book/3aavg0n/)
 - [和港城大小姐先婚后爱了](https://www.jijiajk.com/book/3aavfsm/)
 - [柯学剧本杀，但恋爱流打法](https://www.jijiajk.com/book/3aavejs/)
+- [好巧，你也是妹控？[综崩铁]](https://www.jijiajk.com/book/3aavegt/)
 - [人偶游戏](https://www.jijiajk.com/book/3aave95/)
 - [好兄弟暴富后非要跟我结婚](https://www.jijiajk.com/book/3aavda1/)
 - [关于我虚构了一个男友这件事](https://www.jijiajk.com/book/3aavckk/)

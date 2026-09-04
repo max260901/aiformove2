@@ -1,7 +1,7 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-09-04 03:40:28
+更新时间：2026-09-05 03:41:31
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。
 
@@ -106,7 +106,7 @@
 - [摄政王家的咸鱼夫郎](https://www.wkntmcb.com/book/48j084o/)
 - [我与龙傲天寿命共享](https://www.wkntmcb.com/book/48j06vj/)
 - [如何正确哄睡暴君](https://www.wkntmcb.com/book/48j036u/)
-- [枕边热吻](https://www.wkntmcb.com/book/48ivu4e/)
+- [怀了前任大哥的崽后](https://www.wkntmcb.com/book/48ivu4e/)
 - [九零首富的替嫁小媳妇](https://www.wkntmcb.com/book/48ivth2/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.wkntmcb.com/book/48ivqiv/)
 - [被天使之王骗婚后[诡秘之主]](https://www.wkntmcb.com/book/48ivooe/)

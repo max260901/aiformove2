@@ -1,7 +1,7 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-04 03:38:40
+更新时间：2026-09-05 03:39:42
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
@@ -23,7 +23,7 @@
 - [暴君偏头痛](https://www.tiananfoundry.com/book/1ol4mun/)
 - [青城玩家明明超强却过分谨慎](https://www.tiananfoundry.com/book/1ol4mu1/)
 - [失而复得的白月光[快穿]](https://www.tiananfoundry.com/book/1ol4mtn/)
-- [阿竹与野桃](https://www.tiananfoundry.com/book/1ol4mtj/)
+- [渡鬼](https://www.tiananfoundry.com/book/1ol4msi/)
 - [躲避原书剧情五年后](https://www.tiananfoundry.com/book/1ol4mrr/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.tiananfoundry.com/book/1ol4mro/)
 - [我的烧烤摊超美味[美食]](https://www.tiananfoundry.com/book/1ol4mri/)
@@ -240,7 +240,6 @@
 - [挚友和我穿越后分了阵营](https://www.tiananfoundry.com/book/5lc129/)
 - [蜜蜂膝盖银子弹](https://www.tiananfoundry.com/book/5lc0o8/)
 - [都说了我很娇纵了](https://www.tiananfoundry.com/book/5lc0k0/)
-- [咸鱼受只想摆烂](https://www.tiananfoundry.com/book/5lc0j3/)
 - [人外收集录［快穿］](https://www.tiananfoundry.com/book/5lc0fe/)
 - [请别摘下超能力社恐的耳机](https://www.tiananfoundry.com/book/5lc0b1/)
 - [吃瓜也能整顿豪门？](https://www.tiananfoundry.com/book/5lc0ai/)
@@ -407,7 +406,6 @@
 - [顶流他姐有神豪系统](https://www.tiananfoundry.com/book/5lbfit/)
 - [请问夫君你哪位](https://www.tiananfoundry.com/book/5lbfik/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.tiananfoundry.com/book/5lbdn5/)
-- [在狗血文里躺平[人外]](https://www.tiananfoundry.com/book/5lbd9f/)
 - [这谁的沙雕二次元心声！](https://www.tiananfoundry.com/book/5lbbn6/)
 - [青空来信](https://www.tiananfoundry.com/book/5lbb0i/)
 - [你也没死？](https://www.tiananfoundry.com/book/5lba0r/)

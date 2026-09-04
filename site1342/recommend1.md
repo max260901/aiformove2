@@ -1,7 +1,7 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-09-04 03:21:25
+更新时间：2026-09-05 03:22:32
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。
 
@@ -106,7 +106,7 @@
 - [摄政王家的咸鱼夫郎](https://www.ashedao.com/book/99d13ku/)
 - [我与龙傲天寿命共享](https://www.ashedao.com/book/99d11lg/)
 - [如何正确哄睡暴君](https://www.ashedao.com/book/99d0t5l/)
-- [枕边热吻](https://www.ashedao.com/book/99d0oh7/)
+- [怀了前任大哥的崽后](https://www.ashedao.com/book/99d0oh7/)
 - [九零首富的替嫁小媳妇](https://www.ashedao.com/book/99d0neg/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.ashedao.com/book/99d0m2e/)
 - [被天使之王骗婚后[诡秘之主]](https://www.ashedao.com/book/99d0irm/)

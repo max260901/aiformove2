@@ -1,7 +1,7 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-09-04 03:44:21
+更新时间：2026-09-05 03:45:26
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
@@ -22,12 +22,12 @@
 - [[足球]小小鸟堂堂来袭](https://www.yuedu687.com/book/2bu5iug/)
 - [失而复得的白月光[快穿]](https://www.yuedu687.com/book/2bu5itf/)
 - [[综英美]让我统治哥谭！！！](https://www.yuedu687.com/book/2bu5it6/)
+- [渡鬼](https://www.yuedu687.com/book/2bu5ist/)
 - [青城玩家明明超强却过分谨慎](https://www.yuedu687.com/book/2bu5is8/)
 - [躲避原书剧情五年后](https://www.yuedu687.com/book/2bu5irs/)
 - [暴君偏头痛](https://www.yuedu687.com/book/2bu5irp/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yuedu687.com/book/2bu5iri/)
 - [我的烧烤摊超美味[美食]](https://www.yuedu687.com/book/2bu5iqe/)
-- [阿竹与野桃](https://www.yuedu687.com/book/2bu5ipe/)
 - [从异世界穿回来后](https://www.yuedu687.com/book/2bu5ipb/)
 - [被四皇错看成小动物后](https://www.yuedu687.com/book/2bu5ip0/)
 - [你，后室管理员](https://www.yuedu687.com/book/2bu5ioo/)
@@ -235,7 +235,6 @@
 - [暗恋你](https://www.yuedu687.com/book/7j2hik/)
 - [难道你也是神经病qwq！](https://www.yuedu687.com/book/7j2hf9/)
 - [一见倾心[快穿]](https://www.yuedu687.com/book/7j2hek/)
-- [咸鱼受只想摆烂](https://www.yuedu687.com/book/7j2h9m/)
 - [掉马后成了奥特带恶人](https://www.yuedu687.com/book/7j2h3d/)
 - [直播表现美强惨的我无欲无求](https://www.yuedu687.com/book/7j2h2l/)
 - [在情敌变情人文里当炮灰](https://www.yuedu687.com/book/7j2h28/)
@@ -409,7 +408,6 @@
 - [直播捏玩具被榜一大哥撅了](https://www.yuedu687.com/book/7j1v02/)
 - [作家与读者](https://www.yuedu687.com/book/7j1uho/)
 - [你也没死？](https://www.yuedu687.com/book/7j1t26/)
-- [在狗血文里躺平[人外]](https://www.yuedu687.com/book/7j1ssf/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.yuedu687.com/book/7j1rdl/)
 - [老公是松散生命体](https://www.yuedu687.com/book/7j1qih/)
 - [这谁的沙雕二次元心声！](https://www.yuedu687.com/book/7j1pb9/)

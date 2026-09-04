@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-04 03:23:50
+更新时间：2026-09-05 03:24:57
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -106,7 +106,7 @@
 - [摄政王家的咸鱼夫郎](https://www.cq082.com/book/1sddbhh/)
 - [我与龙傲天寿命共享](https://www.cq082.com/book/1sdd9h3/)
 - [如何正确哄睡暴君](https://www.cq082.com/book/1sdd5hl/)
-- [枕边热吻](https://www.cq082.com/book/1sdcuvc/)
+- [怀了前任大哥的崽后](https://www.cq082.com/book/1sdcuvc/)
 - [九零首富的替嫁小媳妇](https://www.cq082.com/book/1sdcuia/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.cq082.com/book/1sdctb3/)
 - [被天使之王骗婚后[诡秘之主]](https://www.cq082.com/book/1sdcpol/)
