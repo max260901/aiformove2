@@ -1,7 +1,7 @@
 
 # 奇幻凤影台小说-都市玄幻言情仙侠免费小说在线阅读
 
-更新时间：2026-09-04 03:33:44
+更新时间：2026-09-05 03:34:45
 
 奇幻凤影台小说提供都市玄幻、言情仙侠等类型的小说在线免费阅读服务。让您的通勤路上不再无聊，无论是日常出行还是夜晚静谧时刻，总有一本好书陪伴您度过美好时光。
 
@@ -32,7 +32,7 @@
 - [我超凶的！[快穿]](https://www.qihuan868.com/book/42idi2p/)
 - [我比反派先崩坏[快穿]](https://www.qihuan868.com/book/42idhaj/)
 - [我的烧烤摊超美味[美食]](https://www.qihuan868.com/book/42idh9t/)
-- [阿竹与野桃](https://www.qihuan868.com/book/42idh90/)
+- [渡鬼](https://www.qihuan868.com/book/42idh9f/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.qihuan868.com/book/42idh8v/)
 - [cos温迪后玩到真崩铁了](https://www.qihuan868.com/book/42idcq2/)
 - [从异世界穿回来后](https://www.qihuan868.com/book/42idck7/)
@@ -141,7 +141,6 @@
 - [首辅大人怀中娇（重生）](https://www.qihuan868.com/book/42ibeg8/)
 - [歪剧情我是专业的[快穿]](https://www.qihuan868.com/book/42ibedk/)
 - [我不可能舔一个漂亮捞子](https://www.qihuan868.com/book/42ibedd/)
-- [咸鱼受只想摆烂](https://www.qihuan868.com/book/42ibe9c/)
 - [妖怪崽崽种田日常](https://www.qihuan868.com/book/42ibe6f/)
 - [寻真](https://www.qihuan868.com/book/42ibe18/)
 - [[综崩铁]谁家小鸟掉冥河了](https://www.qihuan868.com/book/42ibe0e/)
@@ -422,7 +421,6 @@
 - [无能的丈夫们](https://www.qihuan868.com/book/42iad0s/)
 - [[足球]罗蜜第一志愿](https://www.qihuan868.com/book/42iad00/)
 - [直播捏玩具被榜一大哥撅了](https://www.qihuan868.com/book/42iacua/)
-- [在狗血文里躺平[人外]](https://www.qihuan868.com/book/42iaci8/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.qihuan868.com/book/42iaa0u/)
 - [求生游戏：当邪神成为生活玩家后](https://www.qihuan868.com/book/42ia9jp/)
 - [刀子精手心的人偶崽崽](https://www.qihuan868.com/book/42ia97g/)
@@ -431,6 +429,7 @@
 - [盛夏晴浓](https://www.qihuan868.com/book/42ia36h/)
 - [幼崽假少爷选择回归寒门](https://www.qihuan868.com/book/42ia2um/)
 - [青城玩家明明超强却过分谨慎](https://www.qihuan868.com/book/42ia128/)
+- [好巧，你也是妹控？[综崩铁]](https://www.qihuan868.com/book/42i9uvg/)
 - [暴君偏头痛](https://www.qihuan868.com/book/42i9t97/)
 - [好兄弟暴富后非要跟我结婚](https://www.qihuan868.com/book/42i9t23/)
 - [侯府打工人](https://www.qihuan868.com/book/42i9s4d/)

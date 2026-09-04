@@ -1,7 +1,7 @@
 
 # 积家健康小说 - 无弹窗无广告小说在线阅读
 
-更新时间：2026-09-04 03:27:35
+更新时间：2026-09-05 03:28:37
 
 积家健康小说提供一个干净简洁的平台让您享受无弹窗无广告的小说在线阅读体验。无论是在线阅读还是下载小说，都是完全免费的。
 
@@ -87,7 +87,7 @@
 - [我骗家里的钱养你啊](https://www.jijiajk.com/book/3ab186m/)
 - [摄政王家的咸鱼夫郎](https://www.jijiajk.com/book/3ab15dt/)
 - [我与龙傲天寿命共享](https://www.jijiajk.com/book/3ab15a5/)
-- [枕边热吻](https://www.jijiajk.com/book/3ab14e4/)
+- [怀了前任大哥的崽后](https://www.jijiajk.com/book/3ab14e4/)
 - [[足球]我的游戏存档成真了？！](https://www.jijiajk.com/book/3ab1439/)
 - [社畜Beta也能被顶A觊觎吗](https://www.jijiajk.com/book/3ab123o/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.jijiajk.com/book/3ab119v/)

@@ -1,7 +1,7 @@
 
 # 耽美小说网 - 最热门的耽美小说在线阅读
 
-更新时间：2026-09-04 03:32:44
+更新时间：2026-09-05 03:33:45
 
 耽美小说网是一个广大书友喜欢的小说网，免费为您提供热门耽美小说、女生小说、都市言情小说无弹窗在线阅读和txt下载。
 
@@ -87,7 +87,7 @@
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.nvwagen.com/book/8u4hmvf/)
 - [[足球]我的游戏存档成真了？！](https://www.nvwagen.com/book/8u4hmbm/)
 - [摄政王家的咸鱼夫郎](https://www.nvwagen.com/book/8u4hkqr/)
-- [枕边热吻](https://www.nvwagen.com/book/8u4hkda/)
+- [怀了前任大哥的崽后](https://www.nvwagen.com/book/8u4hkda/)
 - [如何正确哄睡暴君](https://www.nvwagen.com/book/8u4hkd9/)
 - [社畜Beta也能被顶A觊觎吗](https://www.nvwagen.com/book/8u4hjk2/)
 - [死遁的亡夫们都回来了](https://www.nvwagen.com/book/8u4hjjj/)

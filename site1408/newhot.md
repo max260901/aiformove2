@@ -1,13 +1,15 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-09-04 03:38:57
+更新时间：2026-09-05 03:39:59
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。
 
 - [顶点中文小说](https://www.wangrn.com/)
 
 ## 最新小说
+- [cos温迪后玩到真崩铁了](https://www.wangrn.com/book/4bbo2vp/)
+- [躲避原书剧情五年后](https://www.wangrn.com/book/4bbo2so/)
 - [清穿女回来后[天幕]](https://www.wangrn.com/book/4bbo2mt/)
 - [自知之明](https://www.wangrn.com/book/4bbo2mk/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.wangrn.com/book/4bbo2l7/)
@@ -51,9 +53,9 @@
 - [优质攻不做恋爱脑[快穿]](https://www.wangrn.com/book/4bbmndc/)
 - [我当县令那些年](https://www.wangrn.com/book/4bbmncf/)
 - [我的烧烤摊超美味[美食]](https://www.wangrn.com/book/4bbmnc1/)
+- [渡鬼](https://www.wangrn.com/book/4bbmmne/)
 - [全天下都在求太子殿下别死！](https://www.wangrn.com/book/4bbmmk1/)
 - [暗堕本丸，在线直播](https://www.wangrn.com/book/4bbmmc8/)
-- [阿竹与野桃](https://www.wangrn.com/book/4bbmm9b/)
 - [可怜的天然呆直男[快穿]](https://www.wangrn.com/book/4bbmm05/)
 - [五美元在哥谭活一月](https://www.wangrn.com/book/4bbmlse/)
 - [女装生崽，娃爹宇智波](https://www.wangrn.com/book/4bbml52/)
@@ -124,7 +126,6 @@
 - [黑莲花在线演我](https://www.wangrn.com/book/4bbm5l1/)
 - [咦？我爸爸复活啦](https://www.wangrn.com/book/4bbm5gj/)
 - [妖怪崽崽种田日常](https://www.wangrn.com/book/4bbm5an/)
-- [咸鱼受只想摆烂](https://www.wangrn.com/book/4bbm58o/)
 - [首辅大人怀中娇（重生）](https://www.wangrn.com/book/4bbm542/)
 - [若清晨所见之蓝](https://www.wangrn.com/book/4bbm503/)
 - [灰墙之下](https://www.wangrn.com/book/4bbm4u4/)
@@ -238,7 +239,6 @@
 - [蜜蜂膝盖银子弹](https://www.wangrn.com/book/4bblisa/)
 - [多梦你一会儿](https://www.wangrn.com/book/4bblin3/)
 - [[足球]职业模拟器但足坛](https://www.wangrn.com/book/4bblik5/)
-- [穿为清冷影后的污点A](https://www.wangrn.com/book/4bblia4/)
 - [变成龙傲天的心上猫后](https://www.wangrn.com/book/4bbli8g/)
 - [荒谬神父是个渣](https://www.wangrn.com/book/4bbli53/)
 - [掉马后成了奥特带恶人](https://www.wangrn.com/book/4bblhrh/)
@@ -407,7 +407,6 @@
 - [每天都在和太宰互换身体](https://www.wangrn.com/book/4bbl4rk/)
 - [无能的丈夫们](https://www.wangrn.com/book/4bbl4oc/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.wangrn.com/book/4bbl4jq/)
-- [在狗血文里躺平[人外]](https://www.wangrn.com/book/4bbl4gk/)
 - [撕毁女配剧本的我被神之子读心了](https://www.wangrn.com/book/4bbl4fb/)
 - [国舅太难追了](https://www.wangrn.com/book/4bbl4ef/)
 - [咒术师，但队友是侦探](https://www.wangrn.com/book/4bbl4bg/)
@@ -423,6 +422,7 @@
 - [失忆后，和五条激情互演](https://www.wangrn.com/book/4bbl3fn/)
 - [请问夫君你哪位](https://www.wangrn.com/book/4bbl3bd/)
 - [在重男兄弟间夹缝求生](https://www.wangrn.com/book/4bbl32l/)
+- [好巧，你也是妹控？[综崩铁]](https://www.wangrn.com/book/4bbl1qu/)
 - [我，剑圣，养生中，勿扰](https://www.wangrn.com/book/4bbl1aa/)
 - [李玉灯](https://www.wangrn.com/book/4bbl0tu/)
 - [柯学剧本杀，但恋爱流打法](https://www.wangrn.com/book/4bbl0e5/)

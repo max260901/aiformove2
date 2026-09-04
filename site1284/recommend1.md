@@ -1,7 +1,7 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-09-04 03:31:27
+更新时间：2026-09-05 03:32:27
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
@@ -122,7 +122,7 @@
 - [摄政王家的咸鱼夫郎](https://www.longjiangstone.com/book/347gcb/)
 - [死遁的亡夫们都回来了](https://www.longjiangstone.com/book/a3a8d/)
 - [沈助理又在隐藏他的超能力](https://www.longjiangstone.com/book/a3a1f/)
-- [枕边热吻](https://www.longjiangstone.com/book/a37je/)
+- [怀了前任大哥的崽后](https://www.longjiangstone.com/book/a37je/)
 - [成为养成系练习生后](https://www.longjiangstone.com/book/a33dg/)
 - [美貌单出，杀穿港娱［八零］](https://www.longjiangstone.com/book/a33cf/)
 - [死对头又在挑衅我](https://www.longjiangstone.com/book/a32iv/)

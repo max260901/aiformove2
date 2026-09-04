@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-09-04 03:29:11
+更新时间：2026-09-05 03:30:12
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
@@ -121,7 +121,7 @@
 - [起初，我只是想找个冤大头](https://www.kanshu666.com/book/8jv40jk/)
 - [摄政王家的咸鱼夫郎](https://www.kanshu666.com/book/8jv3u0j/)
 - [死遁的亡夫们都回来了](https://www.kanshu666.com/book/rj6613/)
-- [枕边热吻](https://www.kanshu666.com/book/rj644b/)
+- [怀了前任大哥的崽后](https://www.kanshu666.com/book/rj644b/)
 - [沈助理又在隐藏他的超能力](https://www.kanshu666.com/book/rj63r4/)
 - [成为养成系练习生后](https://www.kanshu666.com/book/rj5tnq/)
 - [假金丝雀深陷修罗场](https://www.kanshu666.com/book/rj5t4q/)

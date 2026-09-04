@@ -1,7 +1,7 @@
 
 # 书社1687小说免费-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-04 03:36:55
+更新时间：2026-09-05 03:37:58
 
 书社1687小说免费提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏书社1687小说，享受便捷的小说阅读体验。
 
@@ -33,7 +33,7 @@
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shushe1687.com/book/489gtas/)
 - [我的烧烤摊超美味[美食]](https://www.shushe1687.com/book/489gt94/)
 - [我比反派先崩坏[快穿]](https://www.shushe1687.com/book/489gt93/)
-- [阿竹与野桃](https://www.shushe1687.com/book/489gt8s/)
+- [渡鬼](https://www.shushe1687.com/book/489gt8l/)
 - [cos温迪后玩到真崩铁了](https://www.shushe1687.com/book/489got8/)
 - [从异世界穿回来后](https://www.shushe1687.com/book/489gokg/)
 - [我有嘉宾](https://www.shushe1687.com/book/489gock/)
@@ -134,7 +134,6 @@
 - [备胎的我重生成万人迷](https://www.shushe1687.com/book/489es4k/)
 - [首辅大人怀中娇（重生）](https://www.shushe1687.com/book/489es2i/)
 - [陛下今天怼人了吗［快穿］](https://www.shushe1687.com/book/489ers1/)
-- [咸鱼受只想摆烂](https://www.shushe1687.com/book/489err2/)
 - [[清]给太子当姐姐那些年](https://www.shushe1687.com/book/489erll/)
 - [逝水](https://www.shushe1687.com/book/489erao/)
 - [我绝不可能是只NPC](https://www.shushe1687.com/book/489er5j/)
@@ -422,7 +421,6 @@
 - [我靠玛丽苏系统伪装神女](https://www.shushe1687.com/book/489dp76/)
 - [青山不渡](https://www.shushe1687.com/book/489dp1e/)
 - [顶流他姐有神豪系统](https://www.shushe1687.com/book/489dou9/)
-- [在狗血文里躺平[人外]](https://www.shushe1687.com/book/489dmqk/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.shushe1687.com/book/489dm9d/)
 - [刀子精手心的人偶崽崽](https://www.shushe1687.com/book/489dkfs/)
 - [求生游戏：当邪神成为生活玩家后](https://www.shushe1687.com/book/489djr4/)
@@ -430,6 +428,7 @@
 - [[足球]小小鸟堂堂来袭](https://www.shushe1687.com/book/489dfs6/)
 - [幼崽假少爷选择回归寒门](https://www.shushe1687.com/book/489df8g/)
 - [盛夏晴浓](https://www.shushe1687.com/book/489devo/)
+- [好巧，你也是妹控？[综崩铁]](https://www.shushe1687.com/book/489dcvn/)
 - [青城玩家明明超强却过分谨慎](https://www.shushe1687.com/book/489dcv0/)
 - [侯府打工人](https://www.shushe1687.com/book/489d9i8/)
 - [自大狂](https://www.shushe1687.com/book/489d9b5/)

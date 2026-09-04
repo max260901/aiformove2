@@ -1,7 +1,7 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-09-04 03:40:28
+更新时间：2026-09-05 03:41:31
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。
 
@@ -22,7 +22,7 @@
 - [暴君偏头痛](https://www.wkntmcb.com/book/48j2e1u/)
 - [我的烧烤摊超美味[美食]](https://www.wkntmcb.com/book/48j2e1i/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wkntmcb.com/book/48j2e1b/)
-- [阿竹与野桃](https://www.wkntmcb.com/book/48j2dv5/)
+- [渡鬼](https://www.wkntmcb.com/book/48j2dvm/)
 - [修仙界都为我神魂颠倒](https://www.wkntmcb.com/book/48j2coh/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.wkntmcb.com/book/48j2cmj/)
 - [穿成年代文奇葩前妻](https://www.wkntmcb.com/book/48j2ch4/)
@@ -153,7 +153,6 @@
 - [黑莲花在线演我](https://www.wkntmcb.com/book/48ivuml/)
 - [逝水](https://www.wkntmcb.com/book/48ivu3d/)
 - [带着刀剑穿越伟大航路后，你当上了五皇](https://www.wkntmcb.com/book/48ivtuo/)
-- [咸鱼受只想摆烂](https://www.wkntmcb.com/book/48ivttn/)
 - [被迫跟死对头结婚后](https://www.wkntmcb.com/book/48ivtpj/)
 - [巨龙宝藏是个小社恐](https://www.wkntmcb.com/book/48ivtln/)
 - [绑定惊吓系统但对象狂涨好感有救吗](https://www.wkntmcb.com/book/48ivtgv/)
@@ -419,7 +418,6 @@
 - [救命！猫尾巴藏不住了](https://www.wkntmcb.com/book/48iuuhg/)
 - [虫族治愈师，但恐虫](https://www.wkntmcb.com/book/48iuuer/)
 - [某柯学的正义伙伴](https://www.wkntmcb.com/book/48iuuam/)
-- [在狗血文里躺平[人外]](https://www.wkntmcb.com/book/48iutmu/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.wkntmcb.com/book/48iut9v/)
 - [[封神]圣人生欲](https://www.wkntmcb.com/book/48ius3c/)
 - [青空来信](https://www.wkntmcb.com/book/48iurp5/)
@@ -433,6 +431,7 @@
 - [战死的阿爹回来了[年代]](https://www.wkntmcb.com/book/48iuhnv/)
 - [[综英美]让我统治哥谭！！！](https://www.wkntmcb.com/book/48iuer6/)
 - [盛夏晴浓](https://www.wkntmcb.com/book/48iudm6/)
+- [好巧，你也是妹控？[综崩铁]](https://www.wkntmcb.com/book/48iuaf1/)
 - [好兄弟暴富后非要跟我结婚](https://www.wkntmcb.com/book/48iu8rs/)
 - [求生游戏：当邪神成为生活玩家后](https://www.wkntmcb.com/book/48iu810/)
 - [关于我虚构了一个男友这件事](https://www.wkntmcb.com/book/48iu7tf/)

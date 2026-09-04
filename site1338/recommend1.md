@@ -1,7 +1,7 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-09-04 03:25:08
+更新时间：2026-09-05 03:26:13
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。
 
@@ -106,7 +106,7 @@
 - [摄政王家的咸鱼夫郎](https://www.fshxjd.com/book/74i1hig/)
 - [我与龙傲天寿命共享](https://www.fshxjd.com/book/74i1dtl/)
 - [如何正确哄睡暴君](https://www.fshxjd.com/book/74i19fl/)
-- [枕边热吻](https://www.fshxjd.com/book/74i14u8/)
+- [怀了前任大哥的崽后](https://www.fshxjd.com/book/74i14u8/)
 - [九零首富的替嫁小媳妇](https://www.fshxjd.com/book/74i13mv/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.fshxjd.com/book/74i12fe/)
 - [被天使之王骗婚后[诡秘之主]](https://www.fshxjd.com/book/74i0upr/)

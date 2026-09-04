@@ -1,7 +1,7 @@
 
 # 云南野人山野小说网 - 创意小说与文学作品分享平台
 
-更新时间：2026-09-04 03:43:51
+更新时间：2026-09-05 03:44:56
 
 欢迎来到云南野人山野小说网 - 专注于创意小说和文学作品分享的在线平台。探索精选的小说系列及文学佳作，加入我们，与众多才华横溢的作者交流心得，共同创造美好的阅读旅程。
 
@@ -90,7 +90,7 @@
 - [[足球]我的游戏存档成真了？！](https://www.ynyrsy.com/book/dfcau9/)
 - [摄政王家的咸鱼夫郎](https://www.ynyrsy.com/book/dfc9vp/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.ynyrsy.com/book/dfc9ig/)
-- [枕边热吻](https://www.ynyrsy.com/book/dfc8va/)
+- [怀了前任大哥的崽后](https://www.ynyrsy.com/book/dfc8va/)
 - [让你们无剧本可走（快穿）](https://www.ynyrsy.com/book/dfc8go/)
 - [我骗家里的钱养你啊](https://www.ynyrsy.com/book/dfc7o3/)
 - [社畜Beta也能被顶A觊觎吗](https://www.ynyrsy.com/book/dfc784/)

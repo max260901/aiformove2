@@ -1,7 +1,7 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-09-04 03:38:57
+更新时间：2026-09-05 03:39:59
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。
 
@@ -84,7 +84,7 @@
 - [我们生活玩家是这样的](https://www.wangrn.com/book/4bbmmp8/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.wangrn.com/book/4bbmmol/)
 - [我与龙傲天寿命共享](https://www.wangrn.com/book/4bbmlc1/)
-- [枕边热吻](https://www.wangrn.com/book/4bbmk37/)
+- [怀了前任大哥的崽后](https://www.wangrn.com/book/4bbmk37/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.wangrn.com/book/4bbmk0n/)
 - [如何正确哄睡暴君](https://www.wangrn.com/book/4bbmjig/)
 - [[足球]我的游戏存档成真了？！](https://www.wangrn.com/book/4bbmji2/)

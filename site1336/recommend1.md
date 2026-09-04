@@ -1,7 +1,7 @@
 
 # 笔看阁-最热门的免费小说网 | 玄幻、网游、言情、穿越、都市全本小说在线阅读
 
-更新时间：2026-09-04 03:24:05
+更新时间：2026-09-05 03:25:12
 
 笔看阁是最热门的免费小说网站之一，专注于提供包括玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读服务。本站承诺不设任何弹窗广告，页面简洁易用，为读者创造一个纯净舒适的阅读环境。
 
@@ -107,7 +107,7 @@
 - [我与龙傲天寿命共享](https://www.dasenluan.com/book/3jmfag5/)
 - [如何正确哄睡暴君](https://www.dasenluan.com/book/3jmf8fu/)
 - [九零首富的替嫁小媳妇](https://www.dasenluan.com/book/3jmf26v/)
-- [枕边热吻](https://www.dasenluan.com/book/3jmf1hf/)
+- [怀了前任大哥的崽后](https://www.dasenluan.com/book/3jmf1hf/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.dasenluan.com/book/3jmeurm/)
 - [死对头又在挑衅我](https://www.dasenluan.com/book/3jmetou/)
 - [沈助理又在隐藏他的超能力](https://www.dasenluan.com/book/3jmessp/)
