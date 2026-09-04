@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-04 03:27:16
+更新时间：2026-09-05 03:28:19
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -24,9 +24,9 @@
 - [失而复得的白月光[快穿]](https://www.hzciic.com/book/1sjvhof/)
 - [[综英美]让我统治哥谭！！！](https://www.hzciic.com/book/1sjvhne/)
 - [暴君偏头痛](https://www.hzciic.com/book/1sjvhmt/)
+- [渡鬼](https://www.hzciic.com/book/1sjvhmm/)
 - [青城玩家明明超强却过分谨慎](https://www.hzciic.com/book/1sjvhm6/)
 - [我的烧烤摊超美味[美食]](https://www.hzciic.com/book/1sjvhlb/)
-- [阿竹与野桃](https://www.hzciic.com/book/1sjvhl7/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.hzciic.com/book/1sjvhl3/)
 - [你，后室管理员](https://www.hzciic.com/book/1sjvhkr/)
 - [星际团宠小人鱼](https://www.hzciic.com/book/1sjvhjj/)
@@ -251,7 +251,6 @@
 - [反派的病弱白月光重生了](https://www.hzciic.com/book/621rri/)
 - [挚友和我穿越后分了阵营](https://www.hzciic.com/book/621rd8/)
 - [和灵异片boss谈恋爱](https://www.hzciic.com/book/621rc4/)
-- [咸鱼受只想摆烂](https://www.hzciic.com/book/621r9e/)
 - [父皇，我是gay](https://www.hzciic.com/book/621qni/)
 - [[足球]职业模拟器但足坛](https://www.hzciic.com/book/621qc6/)
 - [三代单传妈宝女[七零]](https://www.hzciic.com/book/621q1h/)
@@ -407,7 +406,6 @@
 - [普通高中生，但兼职咒术师](https://www.hzciic.com/book/621c19/)
 - [忍界观察日记](https://www.hzciic.com/book/621c08/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.hzciic.com/book/6219fp/)
-- [在狗血文里躺平[人外]](https://www.hzciic.com/book/6219b5/)
 - [你也没死？](https://www.hzciic.com/book/6218kb/)
 - [青空来信](https://www.hzciic.com/book/6217n9/)
 - [这谁的沙雕二次元心声！](https://www.hzciic.com/book/6216m6/)

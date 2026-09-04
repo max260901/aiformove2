@@ -1,7 +1,7 @@
 
 # 书城小说网 - 全站免费无弹窗小说阅读平台
 
-更新时间：2026-09-04 03:36:22
+更新时间：2026-09-05 03:37:25
 
 书城小说网为您提供全站免费的小说阅读服务，支持全本小说在线浏览，承诺全程无广告弹窗干扰，是您理想的网络文学阅读选择。
 
@@ -30,9 +30,9 @@
 - [渣攻他疯了［快穿］](https://www.shucheng518.com/book/39m3ed6/)
 - [[足球]番外乐子集](https://www.shucheng518.com/book/39m3e9g/)
 - [我超凶的！[快穿]](https://www.shucheng518.com/book/39m3ccc/)
-- [阿竹与野桃](https://www.shucheng518.com/book/39m3ble/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shucheng518.com/book/39m3bk1/)
 - [我比反派先崩坏[快穿]](https://www.shucheng518.com/book/39m3bja/)
+- [渡鬼](https://www.shucheng518.com/book/39m3bi7/)
 - [我的烧烤摊超美味[美食]](https://www.shucheng518.com/book/39m3bh5/)
 - [cos温迪后玩到真崩铁了](https://www.shucheng518.com/book/39m3754/)
 - [从异世界穿回来后](https://www.shucheng518.com/book/39m36up/)
@@ -133,7 +133,6 @@
 - [当小狗炮灰分手后](https://www.shucheng518.com/book/39m1b1u/)
 - [忍界修罗带球跑](https://www.shucheng518.com/book/39m1ar3/)
 - [黑莲花在线演我](https://www.shucheng518.com/book/39m1a4k/)
-- [咸鱼受只想摆烂](https://www.shucheng518.com/book/39m19sk/)
 - [歪剧情我是专业的[快穿]](https://www.shucheng518.com/book/39m19rl/)
 - [我不可能舔一个漂亮捞子](https://www.shucheng518.com/book/39m19pm/)
 - [寻真](https://www.shucheng518.com/book/39m19kr/)
@@ -422,7 +421,6 @@
 - [末世山居日常](https://www.shucheng518.com/book/39m07ht/)
 - [无能的丈夫们](https://www.shucheng518.com/book/39m07ef/)
 - [高冷影后逼我标记她](https://www.shucheng518.com/book/39m07ba/)
-- [在狗血文里躺平[人外]](https://www.shucheng518.com/book/39m0652/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.shucheng518.com/book/39m058d/)
 - [求生游戏：当邪神成为生活玩家后](https://www.shucheng518.com/book/39m030c/)
 - [我最讨厌打球了！](https://www.shucheng518.com/book/39m026o/)
@@ -430,6 +428,7 @@
 - [幼崽假少爷选择回归寒门](https://www.shucheng518.com/book/39lvrvn/)
 - [盛夏晴浓](https://www.shucheng518.com/book/39lvrlu/)
 - [[足球]小小鸟堂堂来袭](https://www.shucheng518.com/book/39lvrhg/)
+- [好巧，你也是妹控？[综崩铁]](https://www.shucheng518.com/book/39lvpdq/)
 - [青城玩家明明超强却过分谨慎](https://www.shucheng518.com/book/39lvp1q/)
 - [侯府打工人](https://www.shucheng518.com/book/39lvogi/)
 - [自大狂](https://www.shucheng518.com/book/39lvobh/)

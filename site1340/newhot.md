@@ -1,7 +1,7 @@
 
 # 时光树园-热门小说大全-小说排行榜-好看的小说推荐-热门小说推荐
 
-更新时间：2026-09-04 03:30:00
+更新时间：2026-09-05 03:31:00
 
 时光树园是一个热门小说推荐网站，这里有热门全本小说大全、好看的小说推荐、小说排行榜等。您可以在这里无广告在线阅读优质的豪门总裁小说、现代言情小说、古代言情小说、都市小说、穿越小说、玄幻小说、武侠仙侠等各类热门小说。
 
@@ -19,10 +19,10 @@
 - [这个替嫁让我来！](https://www.kltbl.com/book/5achcpb/)
 - [咦？我爸爸复活啦](https://www.kltbl.com/book/5achcp0/)
 - [等我吃腻了再倒闭可以吗](https://www.kltbl.com/book/5achcou/)
-- [阿竹与野桃](https://www.kltbl.com/book/5achbu5/)
 - [我的烧烤摊超美味[美食]](https://www.kltbl.com/book/5achbth/)
 - [暴君偏头痛](https://www.kltbl.com/book/5achbrs/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kltbl.com/book/5achbrc/)
+- [渡鬼](https://www.kltbl.com/book/5achbqc/)
 - [修仙界都为我神魂颠倒](https://www.kltbl.com/book/5achair/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.kltbl.com/book/5achahd/)
 - [穿成年代文奇葩前妻](https://www.kltbl.com/book/5achabe/)
@@ -159,7 +159,6 @@
 - [攻五是来拆散这个家的［穿书］](https://www.kltbl.com/book/5acerhv/)
 - [被迫跟死对头结婚后](https://www.kltbl.com/book/5acerfq/)
 - [灰墙之下](https://www.kltbl.com/book/5acerfb/)
-- [咸鱼受只想摆烂](https://www.kltbl.com/book/5acer86/)
 - [带着刀剑穿越伟大航路后，你当上了五皇](https://www.kltbl.com/book/5acer3o/)
 - [ƽ��С����(�崩)](https://www.kltbl.com/book/5acer0o/)
 - [万人迷又被自己巧取豪夺了［快穿］](https://www.kltbl.com/book/5aceqmg/)
@@ -422,7 +421,6 @@
 - [某柯学的正义伙伴](https://www.kltbl.com/book/5acdr7m/)
 - [青空来信](https://www.kltbl.com/book/5acdqv1/)
 - [[封神]圣人生欲](https://www.kltbl.com/book/5acdpre/)
-- [在狗血文里躺平[人外]](https://www.kltbl.com/book/5acdppp/)
 - [纯爱宇智波基本恋爱法](https://www.kltbl.com/book/5acdp37/)
 - [老公是松散生命体](https://www.kltbl.com/book/5acdp14/)
 - [可怜的天然呆直男[快穿]](https://www.kltbl.com/book/5acdooj/)
@@ -433,6 +431,7 @@
 - [战死的阿爹回来了[年代]](https://www.kltbl.com/book/5acde4e/)
 - [盛夏晴浓](https://www.kltbl.com/book/5acdcu5/)
 - [[综英美]让我统治哥谭！！！](https://www.kltbl.com/book/5acdb7r/)
+- [好巧，你也是妹控？[综崩铁]](https://www.kltbl.com/book/5acd7pd/)
 - [好兄弟暴富后非要跟我结婚](https://www.kltbl.com/book/5acd7id/)
 - [关于我虚构了一个男友这件事](https://www.kltbl.com/book/5acd5p4/)
 - [求生游戏：当邪神成为生活玩家后](https://www.kltbl.com/book/5acd5at/)

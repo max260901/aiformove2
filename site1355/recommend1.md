@@ -1,7 +1,7 @@
 
 # 梦翔橙子小说网-全本小说最值得收藏的在线阅读平台
 
-更新时间：2026-09-04 03:32:00
+更新时间：2026-09-05 03:33:00
 
 梦翔橙子小说网为您提供最新、最热门的小说资源，拥有全网最全面的小说库。无论是全本还是连载中，都能在这里找到。是解决书荒问题的理想选择，让您的阅读体验更加流畅愉快。
 
@@ -104,7 +104,7 @@
 - [九零首富的替嫁小媳妇](https://www.mengxiang668.com/book/2nrnsc2/)
 - [我骗家里的钱养你啊](https://www.mengxiang668.com/book/2nrns6n/)
 - [死遁的亡夫们都回来了](https://www.mengxiang668.com/book/2nrnrhb/)
-- [枕边热吻](https://www.mengxiang668.com/book/2nrnq4g/)
+- [怀了前任大哥的崽后](https://www.mengxiang668.com/book/2nrnq4g/)
 - [死对头又在挑衅我](https://www.mengxiang668.com/book/2nrnk15/)
 - [沈助理又在隐藏他的超能力](https://www.mengxiang668.com/book/2nrnj3n/)
 - [在民俗惊悚片被诸神庇护](https://www.mengxiang668.com/book/2nrnhva/)

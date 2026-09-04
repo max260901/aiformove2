@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-04 03:27:16
+更新时间：2026-09-05 03:28:19
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -120,7 +120,7 @@
 - [让你们无剧本可走（快穿）](https://www.hzciic.com/book/1sjs522/)
 - [摄政王家的咸鱼夫郎](https://www.hzciic.com/book/1sjrvjs/)
 - [起初，我只是想找个冤大头](https://www.hzciic.com/book/1sjrv9u/)
-- [枕边热吻](https://www.hzciic.com/book/6224od/)
+- [怀了前任大哥的崽后](https://www.hzciic.com/book/6224od/)
 - [死遁的亡夫们都回来了](https://www.hzciic.com/book/622463/)
 - [沈助理又在隐藏他的超能力](https://www.hzciic.com/book/6221fh/)
 - [成为养成系练习生后](https://www.hzciic.com/book/62200t/)

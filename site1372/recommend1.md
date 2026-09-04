@@ -1,7 +1,7 @@
 
 # 落秋文学网 - 免费全本小说阅读,最新章节更新,无弹窗广告
 
-更新时间：2026-09-04 03:40:13
+更新时间：2026-09-05 03:41:16
 
 落秋文学网提供最快最新的网络小说更新服务，推荐最好看的网络小说排行榜。全站支持无弹窗广告阅读体验，全本小说均可免费在线阅读。
 
@@ -103,7 +103,7 @@
 - [九零首富的替嫁小媳妇](https://www.wenxue868.com/book/rlacav/)
 - [我骗家里的钱养你啊](https://www.wenxue868.com/book/rlac1s/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.wenxue868.com/book/rlaang/)
-- [枕边热吻](https://www.wenxue868.com/book/rlaacu/)
+- [怀了前任大哥的崽后](https://www.wenxue868.com/book/rlaacu/)
 - [死遁的亡夫们都回来了](https://www.wenxue868.com/book/rlaa5g/)
 - [沈助理又在隐藏他的超能力](https://www.wenxue868.com/book/rla3a1/)
 - [死对头又在挑衅我](https://www.wenxue868.com/book/rla37s/)

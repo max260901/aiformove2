@@ -1,7 +1,7 @@
 
 # 生活文学小说-质感小说文学网站|高质量文学作品与创作交流平台
 
-更新时间：2026-09-04 03:35:22
+更新时间：2026-09-05 03:36:25
 
 生活文学小说是一个专注于提供质感小说文学的网站，致力于为文学爱好者打造一个高质量的文学作品和创作交流平台，在这里可以享受到独特的夜间文学之美。
 
@@ -33,7 +33,7 @@
 - [我比反派先崩坏[快穿]](https://www.shenghuo988.com/book/86garfo/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shenghuo988.com/book/86gar8d/)
 - [我的烧烤摊超美味[美食]](https://www.shenghuo988.com/book/86gar85/)
-- [阿竹与野桃](https://www.shenghuo988.com/book/86gar6e/)
+- [渡鬼](https://www.shenghuo988.com/book/86gar6m/)
 - [cos温迪后玩到真崩铁了](https://www.shenghuo988.com/book/86gan2m/)
 - [从异世界穿回来后](https://www.shenghuo988.com/book/86gamrg/)
 - [我有嘉宾](https://www.shenghuo988.com/book/86gamiq/)
@@ -148,7 +148,6 @@
 - [首辅大人怀中娇（重生）](https://www.shenghuo988.com/book/86g8oa2/)
 - [[综崩铁]谁家小鸟掉冥河了](https://www.shenghuo988.com/book/86g8o7e/)
 - [被子同学](https://www.shenghuo988.com/book/86g8o7b/)
-- [咸鱼受只想摆烂](https://www.shenghuo988.com/book/86g8njs/)
 - [攻五是来拆散这个家的［穿书］](https://www.shenghuo988.com/book/86g8n7s/)
 - [巨龙宝藏是个小社恐](https://www.shenghuo988.com/book/86g8n1u/)
 - [ƽ��С����(�崩)](https://www.shenghuo988.com/book/86g8mve/)
@@ -422,7 +421,6 @@
 - [癫骨](https://www.shenghuo988.com/book/86g7nf4/)
 - [[足球]罗蜜第一志愿](https://www.shenghuo988.com/book/86g7n9p/)
 - [司寝宫女](https://www.shenghuo988.com/book/86g7n8u/)
-- [在狗血文里躺平[人外]](https://www.shenghuo988.com/book/86g7ljb/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.shenghuo988.com/book/86g7kbk/)
 - [我最讨厌打球了！](https://www.shenghuo988.com/book/86g7k68/)
 - [刀子精手心的人偶崽崽](https://www.shenghuo988.com/book/86g7k2q/)
@@ -430,6 +428,7 @@
 - [幼崽假少爷选择回归寒门](https://www.shenghuo988.com/book/86g7ce8/)
 - [[足球]小小鸟堂堂来袭](https://www.shenghuo988.com/book/86g7cdu/)
 - [盛夏晴浓](https://www.shenghuo988.com/book/86g7btt/)
+- [好巧，你也是妹控？[综崩铁]](https://www.shenghuo988.com/book/86g7b6b/)
 - [青城玩家明明超强却过分谨慎](https://www.shenghuo988.com/book/86g7937/)
 - [侯府打工人](https://www.shenghuo988.com/book/86g78cd/)
 - [好兄弟暴富后非要跟我结婚](https://www.shenghuo988.com/book/86g77bd/)

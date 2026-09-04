@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-09-04 03:22:59
+更新时间：2026-09-05 03:24:08
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -122,7 +122,7 @@
 - [摄政王家的咸鱼夫郎](https://www.chuangyi1687.com/book/1hvd5sh/)
 - [死遁的亡夫们都回来了](https://www.chuangyi1687.com/book/500nuc/)
 - [沈助理又在隐藏他的超能力](https://www.chuangyi1687.com/book/500j2q/)
-- [枕边热吻](https://www.chuangyi1687.com/book/500ibj/)
+- [怀了前任大哥的崽后](https://www.chuangyi1687.com/book/500ibj/)
 - [死对头又在挑衅我](https://www.chuangyi1687.com/book/500erg/)
 - [假金丝雀深陷修罗场](https://www.chuangyi1687.com/book/500eoj/)
 - [美貌单出，杀穿港娱［八零］](https://www.chuangyi1687.com/book/500d77/)

@@ -1,7 +1,7 @@
 
 # 武侠文学网 - 值得收藏的小说阅读平台
 
-更新时间：2026-09-04 03:41:31
+更新时间：2026-09-05 03:42:35
 
 武侠文学网为您提供丰富多样的小说资源，在这里您可以找到最新最热门的小说作品。无论是经典文学还是现代流行小说，都是您值得收藏的阅读选择。
 
@@ -101,7 +101,7 @@
 - [让你们无剧本可走（快穿）](https://www.wuxia988.com/book/1ms148q/)
 - [如何正确哄睡暴君](https://www.wuxia988.com/book/1ms122q/)
 - [死遁的亡夫们都回来了](https://www.wuxia988.com/book/1ms0tki/)
-- [枕边热吻](https://www.wuxia988.com/book/1ms0tgl/)
+- [怀了前任大哥的崽后](https://www.wuxia988.com/book/1ms0tgl/)
 - [九零首富的替嫁小媳妇](https://www.wuxia988.com/book/1ms0sse/)
 - [我骗家里的钱养你啊](https://www.wuxia988.com/book/1ms0sq4/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.wuxia988.com/book/1ms0s6g/)

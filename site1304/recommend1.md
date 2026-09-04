@@ -1,7 +1,7 @@
 
 # 唯我小说网-最新小说在线阅读,好看小说全文阅读
 
-更新时间：2026-09-04 03:26:58
+更新时间：2026-09-05 03:28:01
 
 唯我小说网提供最新最热门的小说在线阅读服务，包括但不限于各类好看的小说全文内容，满足广大读者的需求。
 
@@ -120,7 +120,7 @@
 - [社畜Beta也能被顶A觊觎吗](https://www.hkffbw.com/book/4nr2ehu/)
 - [摄政王家的咸鱼夫郎](https://www.hkffbw.com/book/4nr2a3b/)
 - [起初，我只是想找个冤大头](https://www.hkffbw.com/book/4nr29v1/)
-- [枕边热吻](https://www.hkffbw.com/book/f5vja7/)
+- [怀了前任大哥的崽后](https://www.hkffbw.com/book/f5vja7/)
 - [死遁的亡夫们都回来了](https://www.hkffbw.com/book/f5vhl7/)
 - [沈助理又在隐藏他的超能力](https://www.hkffbw.com/book/f5vf27/)
 - [成为养成系练习生后](https://www.hkffbw.com/book/f5vdmo/)

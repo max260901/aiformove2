@@ -1,7 +1,7 @@
 
 # 书香小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-04 03:37:26
+更新时间：2026-09-05 03:38:29
 
 书香小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -102,7 +102,7 @@
 - [如何正确哄睡暴君](https://www.shuxiang368.com/book/3qkm1s1/)
 - [我骗家里的钱养你啊](https://www.shuxiang368.com/book/3qkltci/)
 - [死遁的亡夫们都回来了](https://www.shuxiang368.com/book/3qklso0/)
-- [枕边热吻](https://www.shuxiang368.com/book/3qkls9r/)
+- [怀了前任大哥的崽后](https://www.shuxiang368.com/book/3qkls9r/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.shuxiang368.com/book/3qklraj/)
 - [九零首富的替嫁小媳妇](https://www.shuxiang368.com/book/3qklr9p/)
 - [沈助理又在隐藏他的超能力](https://www.shuxiang368.com/book/3qklitk/)

@@ -1,7 +1,7 @@
 
 # 读者电子书-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-09-04 03:24:21
+更新时间：2026-09-05 03:25:27
 
 读者电子书提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
 
@@ -31,7 +31,7 @@
 - [[足球]番外乐子集](https://www.duzhe368.com/book/3hfv1l7/)
 - [我超凶的！[快穿]](https://www.duzhe368.com/book/3hfuvqk/)
 - [我的烧烤摊超美味[美食]](https://www.duzhe368.com/book/3hfuv1k/)
-- [阿竹与野桃](https://www.duzhe368.com/book/3hfuv02/)
+- [渡鬼](https://www.duzhe368.com/book/3hfuv0d/)
 - [我比反派先崩坏[快穿]](https://www.duzhe368.com/book/3hfuuvf/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.duzhe368.com/book/3hfuuu3/)
 - [cos温迪后玩到真崩铁了](https://www.duzhe368.com/book/3hfuqj6/)
@@ -141,7 +141,6 @@
 - [歪剧情我是专业的[快穿]](https://www.duzhe368.com/book/3hfssrq/)
 - [我绝不可能是只NPC](https://www.duzhe368.com/book/3hfssrl/)
 - [被子同学](https://www.duzhe368.com/book/3hfssmk/)
-- [咸鱼受只想摆烂](https://www.duzhe368.com/book/3hfssga/)
 - [长公主的六零年代](https://www.duzhe368.com/book/3hfssdd/)
 - [寻真](https://www.duzhe368.com/book/3hfssd9/)
 - [妖怪崽崽种田日常](https://www.duzhe368.com/book/3hfss13/)
@@ -422,7 +421,6 @@
 - [穿成影后的作死前妻](https://www.duzhe368.com/book/3hfrqvh/)
 - [我靠玛丽苏系统伪装神女](https://www.duzhe368.com/book/3hfrqsj/)
 - [司寝宫女](https://www.duzhe368.com/book/3hfrqqf/)
-- [在狗血文里躺平[人外]](https://www.duzhe368.com/book/3hfrq4n/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.duzhe368.com/book/3hfrnqb/)
 - [求生游戏：当邪神成为生活玩家后](https://www.duzhe368.com/book/3hfrn46/)
 - [刀子精手心的人偶崽崽](https://www.duzhe368.com/book/3hfrmkr/)
@@ -430,6 +428,7 @@
 - [幼崽假少爷选择回归寒门](https://www.duzhe368.com/book/3hfrh8d/)
 - [盛夏晴浓](https://www.duzhe368.com/book/3hfrgik/)
 - [[足球]小小鸟堂堂来袭](https://www.duzhe368.com/book/3hfrfn9/)
+- [好巧，你也是妹控？[综崩铁]](https://www.duzhe368.com/book/3hfrefe/)
 - [青城玩家明明超强却过分谨慎](https://www.duzhe368.com/book/3hfrdtr/)
 - [好兄弟暴富后非要跟我结婚](https://www.duzhe368.com/book/3hfrbc3/)
 - [暴君偏头痛](https://www.duzhe368.com/book/3hfraua/)

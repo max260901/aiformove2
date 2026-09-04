@@ -1,7 +1,7 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-09-04 03:42:48
+更新时间：2026-09-05 03:43:51
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。
 
@@ -121,7 +121,7 @@
 - [起初，我只是想找个冤大头](https://www.xqwz8bk.com/book/1igigvm/)
 - [摄政王家的咸鱼夫郎](https://www.xqwz8bk.com/book/1igifdv/)
 - [死遁的亡夫们都回来了](https://www.xqwz8bk.com/book/51nmoc/)
-- [枕边热吻](https://www.xqwz8bk.com/book/51njc3/)
+- [怀了前任大哥的崽后](https://www.xqwz8bk.com/book/51njc3/)
 - [沈助理又在隐藏他的超能力](https://www.xqwz8bk.com/book/51nhdc/)
 - [死对头又在挑衅我](https://www.xqwz8bk.com/book/51ndri/)
 - [成为养成系练习生后](https://www.xqwz8bk.com/book/51ncro/)

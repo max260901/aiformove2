@@ -1,7 +1,7 @@
 
 # 零点看书吧-书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-04 03:25:24
+更新时间：2026-09-05 03:26:29
 
 零点看书吧是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节。作为无弹窗的小说阅读平台，零点看书吧成为网络小说爱好者必备的选择。
 
@@ -92,7 +92,7 @@
 - [让你们无剧本可走（快穿）](https://www.gjnbgb.com/book/2s9r9af/)
 - [我骗家里的钱养你啊](https://www.gjnbgb.com/book/2s9r8g3/)
 - [社畜Beta也能被顶A觊觎吗](https://www.gjnbgb.com/book/2s9r7q3/)
-- [枕边热吻](https://www.gjnbgb.com/book/2s9r7gl/)
+- [怀了前任大哥的崽后](https://www.gjnbgb.com/book/2s9r7gl/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.gjnbgb.com/book/2s9r7de/)
 - [如何正确哄睡暴君](https://www.gjnbgb.com/book/2s9r6me/)
 - [死遁的亡夫们都回来了](https://www.gjnbgb.com/book/2s9r3g9/)
