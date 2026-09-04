@@ -1,7 +1,7 @@
 
 # 读者电子书-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-09-04 03:24:21
+更新时间：2026-09-05 03:25:27
 
 读者电子书提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
 
@@ -100,7 +100,7 @@
 - [我与龙傲天寿命共享](https://www.duzhe368.com/book/3hft7jd/)
 - [社畜Beta也能被顶A觊觎吗](https://www.duzhe368.com/book/3hft714/)
 - [如何正确哄睡暴君](https://www.duzhe368.com/book/3hft43q/)
-- [枕边热吻](https://www.duzhe368.com/book/3hft0gh/)
+- [怀了前任大哥的崽后](https://www.duzhe368.com/book/3hft0gh/)
 - [九零首富的替嫁小媳妇](https://www.duzhe368.com/book/3hfsvvc/)
 - [我骗家里的钱养你啊](https://www.duzhe368.com/book/3hfsvhu/)
 - [死遁的亡夫们都回来了](https://www.duzhe368.com/book/3hfsukn/)

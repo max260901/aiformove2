@@ -1,13 +1,15 @@
 
 # 耽美小说网 - 最热门的耽美小说在线阅读
 
-更新时间：2026-09-04 03:32:44
+更新时间：2026-09-05 03:33:45
 
 耽美小说网是一个广大书友喜欢的小说网，免费为您提供热门耽美小说、女生小说、都市言情小说无弹窗在线阅读和txt下载。
 
 - [耽美小说网](https://www.nvwagen.com/)
 
 ## 最新小说
+- [cos温迪后玩到真崩铁了](https://www.nvwagen.com/book/8u4j582/)
+- [躲避原书剧情五年后](https://www.nvwagen.com/book/8u4j54m/)
 - [自知之明](https://www.nvwagen.com/book/8u4j4vq/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.nvwagen.com/book/8u4j4vf/)
 - [清穿女回来后[天幕]](https://www.nvwagen.com/book/8u4j4ud/)
@@ -56,8 +58,8 @@
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.nvwagen.com/book/8u4hnso/)
 - [女装生崽，娃爹宇智波](https://www.nvwagen.com/book/8u4hnqd/)
 - [五美元在哥谭活一月](https://www.nvwagen.com/book/8u4hnlr/)
-- [阿竹与野桃](https://www.nvwagen.com/book/8u4hnh5/)
 - [我的烧烤摊超美味[美食]](https://www.nvwagen.com/book/8u4hngr/)
+- [渡鬼](https://www.nvwagen.com/book/8u4hn86/)
 - [[综英美]flash小游戏，哥谭出品](https://www.nvwagen.com/book/8u4hn3m/)
 - [超A奶龙饲养指南](https://www.nvwagen.com/book/8u4hmvc/)
 - [[足球]听克圣的话，成了米兰金童](https://www.nvwagen.com/book/8u4hmd9/)
@@ -128,7 +130,6 @@
 - [巨星渡灵师](https://www.nvwagen.com/book/8u4h800/)
 - [[综崩铁]谁家小鸟掉冥河了](https://www.nvwagen.com/book/8u4h7kp/)
 - [京秋婚约](https://www.nvwagen.com/book/8u4h7hk/)
-- [咸鱼受只想摆烂](https://www.nvwagen.com/book/8u4h7bm/)
 - [[清]给太子当姐姐那些年](https://www.nvwagen.com/book/8u4h6pu/)
 - [首辅大人怀中娇（重生）](https://www.nvwagen.com/book/8u4h6pr/)
 - [黑莲花在线演我](https://www.nvwagen.com/book/8u4h6me/)
@@ -226,7 +227,6 @@
 - [多梦你一会儿](https://www.nvwagen.com/book/8u4gmq2/)
 - [吃瓜也能整顿豪门？](https://www.nvwagen.com/book/8u4gmn0/)
 - [人外收集录［快穿］](https://www.nvwagen.com/book/8u4gmip/)
-- [穿为清冷影后的污点A](https://www.nvwagen.com/book/8u4gmgi/)
 - [都说了我很娇纵了](https://www.nvwagen.com/book/8u4gmcj/)
 - [父皇，我是gay](https://www.nvwagen.com/book/8u4gm4m/)
 - [反派的病弱白月光重生了](https://www.nvwagen.com/book/8u4gm4l/)
@@ -420,12 +420,12 @@
 - [咒术师，但队友是侦探](https://www.nvwagen.com/book/8u4g5pb/)
 - [国舅太难追了](https://www.nvwagen.com/book/8u4g5m4/)
 - [穿成影后的作死前妻](https://www.nvwagen.com/book/8u4g5m3/)
-- [在狗血文里躺平[人外]](https://www.nvwagen.com/book/8u4g5k7/)
 - [失忆后，和五条激情互演](https://www.nvwagen.com/book/8u4g5id/)
 - [和港城大小姐先婚后爱了](https://www.nvwagen.com/book/8u4g5be/)
 - [柯学剧本杀，但恋爱流打法](https://www.nvwagen.com/book/8u4g52v/)
 - [我，剑圣，养生中，勿扰](https://www.nvwagen.com/book/8u4g4fp/)
 - [李玉灯](https://www.nvwagen.com/book/8u4g4as/)
+- [好巧，你也是妹控？[综崩铁]](https://www.nvwagen.com/book/8u4g2u0/)
 - [等我吃腻了再倒闭可以吗](https://www.nvwagen.com/book/8u4g19s/)
 - [盛夏晴浓](https://www.nvwagen.com/book/8u4g159/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.nvwagen.com/book/8u4fvb7/)

@@ -1,7 +1,7 @@
 
 # 书香小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-04 03:37:26
+更新时间：2026-09-05 03:38:29
 
 书香小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -32,8 +32,8 @@
 - [我超凶的！[快穿]](https://www.shuxiang368.com/book/3qknsfe/)
 - [我比反派先崩坏[快穿]](https://www.shuxiang368.com/book/3qknrll/)
 - [我的烧烤摊超美味[美食]](https://www.shuxiang368.com/book/3qknrek/)
-- [阿竹与野桃](https://www.shuxiang368.com/book/3qknree/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shuxiang368.com/book/3qknrcl/)
+- [渡鬼](https://www.shuxiang368.com/book/3qknrbl/)
 - [cos温迪后玩到真崩铁了](https://www.shuxiang368.com/book/3qknn8g/)
 - [从异世界穿回来后](https://www.shuxiang368.com/book/3qknn1o/)
 - [我有嘉宾](https://www.shuxiang368.com/book/3qknmpj/)
@@ -133,7 +133,6 @@
 - [来自深渊的救世者](https://www.shuxiang368.com/book/3qklr0k/)
 - [当小狗炮灰分手后](https://www.shuxiang368.com/book/3qklr09/)
 - [我不可能舔一个漂亮捞子](https://www.shuxiang368.com/book/3qklq97/)
-- [咸鱼受只想摆烂](https://www.shuxiang368.com/book/3qklpvr/)
 - [被子同学](https://www.shuxiang368.com/book/3qklpsu/)
 - [歪剧情我是专业的[快穿]](https://www.shuxiang368.com/book/3qklpno/)
 - [可怜的天然呆直男[快穿]](https://www.shuxiang368.com/book/3qklp58/)
@@ -422,7 +421,6 @@
 - [小狗向导，世界瑰宝！](https://www.shuxiang368.com/book/3qkknjo/)
 - [举朝上下为我的神仙人设头疼中](https://www.shuxiang368.com/book/3qkknj7/)
 - [咒术师，但队友是侦探](https://www.shuxiang368.com/book/3qkknaf/)
-- [在狗血文里躺平[人外]](https://www.shuxiang368.com/book/3qkkm4k/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.shuxiang368.com/book/3qkkkdk/)
 - [我最讨厌打球了！](https://www.shuxiang368.com/book/3qkkj6b/)
 - [求生游戏：当邪神成为生活玩家后](https://www.shuxiang368.com/book/3qkkj40/)
@@ -430,6 +428,7 @@
 - [盛夏晴浓](https://www.shuxiang368.com/book/3qkke1p/)
 - [幼崽假少爷选择回归寒门](https://www.shuxiang368.com/book/3qkkdml/)
 - [[足球]小小鸟堂堂来袭](https://www.shuxiang368.com/book/3qkkcov/)
+- [好巧，你也是妹控？[综崩铁]](https://www.shuxiang368.com/book/3qkkapc/)
 - [青城玩家明明超强却过分谨慎](https://www.shuxiang368.com/book/3qkk8p9/)
 - [法外狂猫](https://www.shuxiang368.com/book/3qkk8dh/)
 - [好兄弟暴富后非要跟我结婚](https://www.shuxiang368.com/book/3qkk6rf/)

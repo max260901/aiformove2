@@ -1,7 +1,7 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-09-04 03:26:09
+更新时间：2026-09-05 03:27:13
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
@@ -21,12 +21,12 @@
 - [自知之明](https://www.gushi1314.com/book/8m9juab/)
 - [同时扮演贵族学院F4和平民校花](https://www.gushi1314.com/book/8m9jua8/)
 - [失而复得的白月光[快穿]](https://www.gushi1314.com/book/8m9ju92/)
-- [阿竹与野桃](https://www.gushi1314.com/book/8m9ju8u/)
 - [[综英美]让我统治哥谭！！！](https://www.gushi1314.com/book/8m9ju8l/)
 - [暴君偏头痛](https://www.gushi1314.com/book/8m9ju7f/)
 - [躲避原书剧情五年后](https://www.gushi1314.com/book/8m9ju76/)
 - [青城玩家明明超强却过分谨慎](https://www.gushi1314.com/book/8m9ju5v/)
 - [我的烧烤摊超美味[美食]](https://www.gushi1314.com/book/8m9ju5j/)
+- [渡鬼](https://www.gushi1314.com/book/8m9ju5a/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.gushi1314.com/book/8m9ju58/)
 - [[封神]圣人生欲](https://www.gushi1314.com/book/8m9ju4p/)
 - [你，后室管理员](https://www.gushi1314.com/book/8m9ju36/)
@@ -240,7 +240,6 @@
 - [反派的病弱白月光重生了](https://www.gushi1314.com/book/rqjujq/)
 - [强爱清冷O后她上瘾了[快穿]](https://www.gushi1314.com/book/rqju39/)
 - [人外收集录［快穿］](https://www.gushi1314.com/book/rqjtsj/)
-- [咸鱼受只想摆烂](https://www.gushi1314.com/book/rqjtsc/)
 - [假如樱是砂忍](https://www.gushi1314.com/book/rqjts0/)
 - [和灵异片boss谈恋爱](https://www.gushi1314.com/book/rqjthe/)
 - [请别摘下超能力社恐的耳机](https://www.gushi1314.com/book/rqjtes/)
@@ -407,7 +406,6 @@
 - [当了卧底的我发现遍地熟人](https://www.gushi1314.com/book/rqjds0/)
 - [忍界观察日记](https://www.gushi1314.com/book/rqjdfl/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.gushi1314.com/book/rqjcv8/)
-- [在狗血文里躺平[人外]](https://www.gushi1314.com/book/rqjb22/)
 - [这谁的沙雕二次元心声！](https://www.gushi1314.com/book/rqj9pb/)
 - [你也没死？](https://www.gushi1314.com/book/rqj8nn/)
 - [青空来信](https://www.gushi1314.com/book/rqj87r/)

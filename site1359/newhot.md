@@ -1,7 +1,7 @@
 
 # 笔架中文小说_书友必备的无弹窗小说阅读网
 
-更新时间：2026-09-04 03:22:12
+更新时间：2026-09-05 03:23:20
 
 笔架中文小说致力于打造国内最权威免费小说阅读网, 提供小说在线阅读, 小说TXT下载, 网站页面清爽简洁是广大网络小说爱好者必备的小说阅读网。
 
@@ -32,7 +32,7 @@
 - [我超凶的！[快穿]](https://www.bijia188.com/book/6tolban/)
 - [我比反派先崩坏[快穿]](https://www.bijia188.com/book/6tolajq/)
 - [我的烧烤摊超美味[美食]](https://www.bijia188.com/book/6tolaap/)
-- [阿竹与野桃](https://www.bijia188.com/book/6tola8j/)
+- [渡鬼](https://www.bijia188.com/book/6tola7t/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.bijia188.com/book/6tola76/)
 - [cos温迪后玩到真崩铁了](https://www.bijia188.com/book/6tol65n/)
 - [从异世界穿回来后](https://www.bijia188.com/book/6tol5tv/)
@@ -134,7 +134,6 @@
 - [堕魔](https://www.bijia188.com/book/6toj9cl/)
 - [黑莲花在线演我](https://www.bijia188.com/book/6toj8v0/)
 - [妖怪崽崽种田日常](https://www.bijia188.com/book/6toj8ss/)
-- [咸鱼受只想摆烂](https://www.bijia188.com/book/6toj8ro/)
 - [首辅大人怀中娇（重生）](https://www.bijia188.com/book/6toj8mg/)
 - [歪剧情我是专业的[快穿]](https://www.bijia188.com/book/6toj8at/)
 - [[清]给太子当姐姐那些年](https://www.bijia188.com/book/6toj7v7/)
@@ -423,13 +422,13 @@
 - [顶流他姐有神豪系统](https://www.bijia188.com/book/6toi68p/)
 - [在重男兄弟间夹缝求生](https://www.bijia188.com/book/6toi68e/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.bijia188.com/book/6toi46b/)
-- [在狗血文里躺平[人外]](https://www.bijia188.com/book/6toi3r5/)
 - [求生游戏：当邪神成为生活玩家后](https://www.bijia188.com/book/6toi2ot/)
 - [刀子精手心的人偶崽崽](https://www.bijia188.com/book/6toi2ap/)
 - [我最讨厌打球了！](https://www.bijia188.com/book/6toi16o/)
 - [[足球]小小鸟堂堂来袭](https://www.bijia188.com/book/6toht9h/)
 - [盛夏晴浓](https://www.bijia188.com/book/6tohsgg/)
 - [幼崽假少爷选择回归寒门](https://www.bijia188.com/book/6tohs6a/)
+- [好巧，你也是妹控？[综崩铁]](https://www.bijia188.com/book/6tohofg/)
 - [青城玩家明明超强却过分谨慎](https://www.bijia188.com/book/6tohnu9/)
 - [矩阵干扰](https://www.bijia188.com/book/6tohndl/)
 - [法外狂猫](https://www.bijia188.com/book/6tohn9t/)

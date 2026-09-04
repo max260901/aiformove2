@@ -1,7 +1,7 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-04 03:46:21
+更新时间：2026-09-05 03:47:25
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。
 
@@ -22,11 +22,11 @@
 - [咦？我爸爸复活啦](https://www.zuopin666.com/book/8befhil/)
 - [[综英美]让我统治哥谭！！！](https://www.zuopin666.com/book/8befhhi/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.zuopin666.com/book/8befhgm/)
+- [渡鬼](https://www.zuopin666.com/book/8befhg8/)
 - [从异世界穿回来后](https://www.zuopin666.com/book/8befhg1/)
 - [我的烧烤摊超美味[美食]](https://www.zuopin666.com/book/8befhfs/)
 - [失而复得的白月光[快穿]](https://www.zuopin666.com/book/8befhfr/)
 - [躲避原书剧情五年后](https://www.zuopin666.com/book/8befhfk/)
-- [阿竹与野桃](https://www.zuopin666.com/book/8befhe0/)
 - [暴君偏头痛](https://www.zuopin666.com/book/8befhdh/)
 - [青城玩家明明超强却过分谨慎](https://www.zuopin666.com/book/8befhd4/)
 - [你，后室管理员](https://www.zuopin666.com/book/8befhcs/)
@@ -231,7 +231,6 @@
 - [反派的病弱白月光重生了](https://www.zuopin666.com/book/qnt4a2/)
 - [请别摘下超能力社恐的耳机](https://www.zuopin666.com/book/qnt4a1/)
 - [和灵异片boss谈恋爱](https://www.zuopin666.com/book/qnt482/)
-- [咸鱼受只想摆烂](https://www.zuopin666.com/book/qnt46i/)
 - [我养的龙是我老公[原神]](https://www.zuopin666.com/book/qnt40t/)
 - [七十年代娇美人](https://www.zuopin666.com/book/qnt40b/)
 - [作为死对头的男朋友](https://www.zuopin666.com/book/qnt3uk/)
@@ -409,7 +408,6 @@
 - [虫族治愈师，但恐虫](https://www.zuopin666.com/book/qnshav/)
 - [神之子与排球的适配性](https://www.zuopin666.com/book/qnsh6g/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.zuopin666.com/book/qnsh59/)
-- [在狗血文里躺平[人外]](https://www.zuopin666.com/book/qnsg1t/)
 - [你也没死？](https://www.zuopin666.com/book/qnsfkg/)
 - [这谁的沙雕二次元心声！](https://www.zuopin666.com/book/qnsd0o/)
 - [老公是松散生命体](https://www.zuopin666.com/book/qnsd0c/)

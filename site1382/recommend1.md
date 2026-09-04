@@ -1,7 +1,7 @@
 
 # 完本小说网_全本完结小说排行榜免费在线阅读txt下载无弹窗
 
-更新时间：2026-09-04 03:33:29
+更新时间：2026-09-05 03:34:31
 
 完本小说网提供热门完本小说排行榜免费在线阅读无弹窗、免费小说txt下载全集，好看的完本小说推荐排行。
 
@@ -90,7 +90,7 @@
 - [我与龙傲天寿命共享](https://www.pysonm.com/book/25ntif7/)
 - [[足球]我的游戏存档成真了？！](https://www.pysonm.com/book/25ntibr/)
 - [我骗家里的钱养你啊](https://www.pysonm.com/book/25nth59/)
-- [枕边热吻](https://www.pysonm.com/book/25ntf9n/)
+- [怀了前任大哥的崽后](https://www.pysonm.com/book/25ntf9n/)
 - [社畜Beta也能被顶A觊觎吗](https://www.pysonm.com/book/25nteo3/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.pysonm.com/book/25nte2f/)
 - [让你们无剧本可走（快穿）](https://www.pysonm.com/book/25ntdbd/)

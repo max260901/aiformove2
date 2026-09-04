@@ -1,7 +1,7 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-09-04 03:21:54
+更新时间：2026-09-05 03:23:02
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。
 
@@ -121,7 +121,7 @@
 - [起初，我只是想找个冤大头](https://www.bianlishihao.com/book/2vr3qmr/)
 - [摄政王家的咸鱼夫郎](https://www.bianlishihao.com/book/2vr3oar/)
 - [死遁的亡夫们都回来了](https://www.bianlishihao.com/book/9ipbvl/)
-- [枕边热吻](https://www.bianlishihao.com/book/9ip8cr/)
+- [怀了前任大哥的崽后](https://www.bianlishihao.com/book/9ip8cr/)
 - [沈助理又在隐藏他的超能力](https://www.bianlishihao.com/book/9ip7lo/)
 - [美貌单出，杀穿港娱［八零］](https://www.bianlishihao.com/book/9ip3ij/)
 - [死对头又在挑衅我](https://www.bianlishihao.com/book/9ip2f5/)

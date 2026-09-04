@@ -1,7 +1,7 @@
 
 # 新乐文小说 - 最热门免费在线阅读平台 | 玄幻、网游、言情、穿越、都市全本小说
 
-更新时间：2026-09-04 03:30:33
+更新时间：2026-09-05 03:31:32
 
 新乐文小说为您提供一个无广告无弹窗的纯净阅读环境，专注于玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读体验。在这里可以找到最新最热的小说章节更新，享受舒适的阅读时光。
 
@@ -20,7 +20,6 @@
 - [［综英美］蝙蝠崽？我不是啊！](https://www.ksqinlida.com/book/1svdoij/)
 - [清穿女回来后[天幕]](https://www.ksqinlida.com/book/1svdoic/)
 - [同时扮演贵族学院F4和平民校花](https://www.ksqinlida.com/book/1svdoia/)
-- [阿竹与野桃](https://www.ksqinlida.com/book/1svdoh1/)
 - [暴君偏头痛](https://www.ksqinlida.com/book/1svdogd/)
 - [失而复得的白月光[快穿]](https://www.ksqinlida.com/book/1svdog2/)
 - [我的烧烤摊超美味[美食]](https://www.ksqinlida.com/book/1svdofr/)
@@ -28,6 +27,7 @@
 - [青城玩家明明超强却过分谨慎](https://www.ksqinlida.com/book/1svdofl/)
 - [躲避原书剧情五年后](https://www.ksqinlida.com/book/1svdofd/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.ksqinlida.com/book/1svdof3/)
+- [渡鬼](https://www.ksqinlida.com/book/1svdodq/)
 - [你，后室管理员](https://www.ksqinlida.com/book/1svdocq/)
 - [被四皇错看成小动物后](https://www.ksqinlida.com/book/1svdobq/)
 - [[封神]圣人生欲](https://www.ksqinlida.com/book/1svdobm/)
@@ -230,7 +230,6 @@
 - [反派师尊又在迫害主角了](https://www.ksqinlida.com/book/636ij9/)
 - [和灵异片boss谈恋爱](https://www.ksqinlida.com/book/636ihl/)
 - [请别摘下超能力社恐的耳机](https://www.ksqinlida.com/book/636ifn/)
-- [咸鱼受只想摆烂](https://www.ksqinlida.com/book/636ier/)
 - [七十年代娇美人](https://www.ksqinlida.com/book/636i86/)
 - [迫害系偶像排球部出道中](https://www.ksqinlida.com/book/636i3r/)
 - [我的爸爸不可能叛变](https://www.ksqinlida.com/book/636htk/)
@@ -409,7 +408,6 @@
 - [虫族治愈师，但恐虫](https://www.ksqinlida.com/book/635v6s/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.ksqinlida.com/book/635v35/)
 - [当了卧底的我发现遍地熟人](https://www.ksqinlida.com/book/635ui1/)
-- [在狗血文里躺平[人外]](https://www.ksqinlida.com/book/635t72/)
 - [你也没死？](https://www.ksqinlida.com/book/635sfh/)
 - [老公是松散生命体](https://www.ksqinlida.com/book/635qo7/)
 - [这谁的沙雕二次元心声！](https://www.ksqinlida.com/book/635pmh/)

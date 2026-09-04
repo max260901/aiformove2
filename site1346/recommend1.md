@@ -1,7 +1,7 @@
 
 # 奇幻凤影台小说-都市玄幻言情仙侠免费小说在线阅读
 
-更新时间：2026-09-04 03:33:44
+更新时间：2026-09-05 03:34:45
 
 奇幻凤影台小说提供都市玄幻、言情仙侠等类型的小说在线免费阅读服务。让您的通勤路上不再无聊，无论是日常出行还是夜晚静谧时刻，总有一本好书陪伴您度过美好时光。
 
@@ -100,7 +100,7 @@
 - [我与龙傲天寿命共享](https://www.qihuan868.com/book/42ibp1h/)
 - [社畜Beta也能被顶A觊觎吗](https://www.qihuan868.com/book/42ibovu/)
 - [如何正确哄睡暴君](https://www.qihuan868.com/book/42ibm70/)
-- [枕边热吻](https://www.qihuan868.com/book/42ibikp/)
+- [怀了前任大哥的崽后](https://www.qihuan868.com/book/42ibikp/)
 - [九零首富的替嫁小媳妇](https://www.qihuan868.com/book/42ibh25/)
 - [死遁的亡夫们都回来了](https://www.qihuan868.com/book/42ibgl5/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.qihuan868.com/book/42ibg3m/)

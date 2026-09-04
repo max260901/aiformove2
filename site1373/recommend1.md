@@ -1,7 +1,7 @@
 
 # 泡泡中文书社-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-04 03:37:10
+更新时间：2026-09-05 03:38:14
 
 泡泡中文书社是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -101,7 +101,7 @@
 - [我与龙傲天寿命共享](https://www.shushe818.com/book/29ba185/)
 - [如何正确哄睡暴君](https://www.shushe818.com/book/29b9uo9/)
 - [死遁的亡夫们都回来了](https://www.shushe818.com/book/29b9qkd/)
-- [枕边热吻](https://www.shushe818.com/book/29b9pko/)
+- [怀了前任大哥的崽后](https://www.shushe818.com/book/29b9pko/)
 - [九零首富的替嫁小媳妇](https://www.shushe818.com/book/29b9p6l/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.shushe818.com/book/29b9op3/)
 - [我骗家里的钱养你啊](https://www.shushe818.com/book/29b9ob7/)

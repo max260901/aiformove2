@@ -1,7 +1,7 @@
 
 # 无瑕天涯在线书库 - 免费小说在线阅读
 
-更新时间：2026-09-04 03:41:16
+更新时间：2026-09-05 03:42:20
 
 无瑕天涯在线书库自2003年创立至今，致力于提供包括武侠、言情、科幻等多种类型的小说免费在线阅读服务。页面设计简洁，持续优化用户体验，旨在为读者带来更好的阅读享受。
 
@@ -103,7 +103,7 @@
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.wuxia688.com/book/2bjp5jk/)
 - [我骗家里的钱养你啊](https://www.wuxia688.com/book/2bjp5fj/)
 - [死遁的亡夫们都回来了](https://www.wuxia688.com/book/2bjp4k7/)
-- [枕边热吻](https://www.wuxia688.com/book/2bjp318/)
+- [怀了前任大哥的崽后](https://www.wuxia688.com/book/2bjp318/)
 - [九零首富的替嫁小媳妇](https://www.wuxia688.com/book/2bjp2vr/)
 - [在民俗惊悚片被诸神庇护](https://www.wuxia688.com/book/2bjost0/)
 - [死对头又在挑衅我](https://www.wuxia688.com/book/2bjor93/)

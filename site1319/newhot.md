@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-09-04 03:29:11
+更新时间：2026-09-05 03:30:12
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
@@ -24,7 +24,7 @@
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kanshu666.com/book/8jv7ici/)
 - [[综英美]让我统治哥谭！！！](https://www.kanshu666.com/book/8jv7ice/)
 - [青城玩家明明超强却过分谨慎](https://www.kanshu666.com/book/8jv7ic9/)
-- [阿竹与野桃](https://www.kanshu666.com/book/8jv7iaf/)
+- [渡鬼](https://www.kanshu666.com/book/8jv7ib3/)
 - [躲避原书剧情五年后](https://www.kanshu666.com/book/8jv7i9n/)
 - [暴君偏头痛](https://www.kanshu666.com/book/8jv7i9m/)
 - [失而复得的白月光[快穿]](https://www.kanshu666.com/book/8jv7i9g/)
@@ -231,7 +231,6 @@
 - [一见倾心[快穿]](https://www.kanshu666.com/book/rj5uul/)
 - [直播表现美强惨的我无欲无求](https://www.kanshu666.com/book/rj5uuc/)
 - [父皇，我是gay](https://www.kanshu666.com/book/rj5usp/)
-- [咸鱼受只想摆烂](https://www.kanshu666.com/book/rj5us7/)
 - [我的餐馆通历史诸朝](https://www.kanshu666.com/book/rj5ul4/)
 - [反派的病弱白月光重生了](https://www.kanshu666.com/book/rj5uip/)
 - [摆烂后我成了邪神学院大佬](https://www.kanshu666.com/book/rj5uh0/)
@@ -410,7 +409,6 @@
 - [神之子与排球的适配性](https://www.kanshu666.com/book/rj5b8d/)
 - [虫族治愈师，但恐虫](https://www.kanshu666.com/book/rj5ag1/)
 - [你也没死？](https://www.kanshu666.com/book/rj58m6/)
-- [在狗血文里躺平[人外]](https://www.kanshu666.com/book/rj57u5/)
 - [老公是松散生命体](https://www.kanshu666.com/book/rj56nd/)
 - [青空来信](https://www.kanshu666.com/book/rj56ej/)
 - [这谁的沙雕二次元心声！](https://www.kanshu666.com/book/rj54ab/)

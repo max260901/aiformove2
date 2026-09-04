@@ -1,7 +1,7 @@
 
 # 三三言情小说 - 全本网文免费阅读, 最新最热言情故事
 
-更新时间：2026-09-04 03:45:12
+更新时间：2026-09-05 03:46:16
 
 三三言情小说为您提供海量全本完结的言情小说资源，在这里您可以免费在线阅读最新、最受欢迎的爱情故事。无论您是喜欢经典还是追求潮流的新作，我们都有丰富的选择等待着您来探索。
 
@@ -24,8 +24,8 @@
 - [暴君偏头痛](https://www.zhaoxingangjiegou.com/book/1duot11/)
 - [青城玩家明明超强却过分谨慎](https://www.zhaoxingangjiegou.com/book/1duot0q/)
 - [躲避原书剧情五年后](https://www.zhaoxingangjiegou.com/book/1duot0f/)
+- [渡鬼](https://www.zhaoxingangjiegou.com/book/1duot05/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.zhaoxingangjiegou.com/book/1duosv7/)
-- [阿竹与野桃](https://www.zhaoxingangjiegou.com/book/1duosun/)
 - [失而复得的白月光[快穿]](https://www.zhaoxingangjiegou.com/book/1duosuf/)
 - [[综英美]让我统治哥谭！！！](https://www.zhaoxingangjiegou.com/book/1duosu6/)
 - [被四皇错看成小动物后](https://www.zhaoxingangjiegou.com/book/1duossn/)
@@ -226,7 +226,6 @@
 - [一见倾心[快穿]](https://www.zhaoxingangjiegou.com/book/4j4fv2/)
 - [直播表现美强惨的我无欲无求](https://www.zhaoxingangjiegou.com/book/4j4fth/)
 - [万人迷穿到耽美女配](https://www.zhaoxingangjiegou.com/book/4j4fqm/)
-- [咸鱼受只想摆烂](https://www.zhaoxingangjiegou.com/book/4j4fmv/)
 - [清穿纯妃养娃日常](https://www.zhaoxingangjiegou.com/book/4j4fii/)
 - [难道你也是神经病qwq！](https://www.zhaoxingangjiegou.com/book/4j4ffr/)
 - [我的餐馆通历史诸朝](https://www.zhaoxingangjiegou.com/book/4j4ffm/)
@@ -407,7 +406,6 @@
 - [无能的丈夫们](https://www.zhaoxingangjiegou.com/book/4j3t0s/)
 - [直播捏玩具被榜一大哥撅了](https://www.zhaoxingangjiegou.com/book/4j3sn7/)
 - [作家与读者](https://www.zhaoxingangjiegou.com/book/4j3sla/)
-- [在狗血文里躺平[人外]](https://www.zhaoxingangjiegou.com/book/4j3qib/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.zhaoxingangjiegou.com/book/4j3qhi/)
 - [你也没死？](https://www.zhaoxingangjiegou.com/book/4j3p4s/)
 - [老公是松散生命体](https://www.zhaoxingangjiegou.com/book/4j3no9/)

@@ -1,13 +1,17 @@
 
 # 佚名奇书小说 - 免费更新的小说阅读网站
 
-更新时间：2026-09-04 03:43:37
+更新时间：2026-09-05 03:44:41
 
 佚名奇书小说提供全网各类热门小说在线阅读服务，支持免费观看。这里汇集了丰富的小说资源，包括但不限于都市、玄幻、武侠等多种类型，并且保证章节更新及时，页面设计清爽无广告干扰，是广大书友不可多得的好去处。
 
 - [佚名奇书小说](https://www.yimingeduai.com/)
 
 ## 最新小说
+- [孤独症崽崽穿越到狗血爽文里[穿书]](https://www.yimingeduai.com/book/6adnhod/)
+- [我有嘉宾](https://www.yimingeduai.com/book/6adnhkp/)
+- [我，始皇闺女，未来皇帝，打钱](https://www.yimingeduai.com/book/6adnh7k/)
+- [开局给李世民盘点安史之乱](https://www.yimingeduai.com/book/6adnght/)
 - [自知之明](https://www.yimingeduai.com/book/6adng3q/)
 - [等我吃腻了再倒闭可以吗](https://www.yimingeduai.com/book/6adng3i/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.yimingeduai.com/book/6adng2b/)
@@ -27,7 +31,7 @@
 - [特殊魅力值，已到账](https://www.yimingeduai.com/book/6admvqa/)
 - [昭暮](https://www.yimingeduai.com/book/6admrqp/)
 - [我的烧烤摊超美味[美食]](https://www.yimingeduai.com/book/6admm3b/)
-- [阿竹与野桃](https://www.yimingeduai.com/book/6admm00/)
+- [渡鬼](https://www.yimingeduai.com/book/6admm0s/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yimingeduai.com/book/6admlrd/)
 - [骑！就要骑在宿敌头上作威作福](https://www.yimingeduai.com/book/6admdj6/)
 - [微胖才是天花板](https://www.yimingeduai.com/book/6admdfq/)
@@ -225,7 +229,6 @@
 - [被双胞胎竹马轮番娇养](https://www.yimingeduai.com/book/6adl32u/)
 - [逆序布鲁斯的好大儿](https://www.yimingeduai.com/book/6adl31d/)
 - [迫害系偶像排球部出道中](https://www.yimingeduai.com/book/6adl2vp/)
-- [咸鱼受只想摆烂](https://www.yimingeduai.com/book/6adl2pb/)
 - [多梦你一会儿](https://www.yimingeduai.com/book/6adl2mo/)
 - [请别摘下超能力社恐的耳机](https://www.yimingeduai.com/book/6adl213/)
 - [老公是恐怖游戏男主](https://www.yimingeduai.com/book/6adl1ss/)
@@ -297,7 +300,6 @@
 - [神经病又不影响我谈恋爱[快穿]](https://www.yimingeduai.com/book/6adkf0n/)
 - [[综武侠]有间民宿](https://www.yimingeduai.com/book/6adkekc/)
 - [骄纵漂亮万人嫌被觊觎后［快穿］](https://www.yimingeduai.com/book/6adkek4/)
-- [穿为清冷影后的污点A](https://www.yimingeduai.com/book/6adkeds/)
 - [纨绔渣A拒绝入赘长公主府](https://www.yimingeduai.com/book/6adkeam/)
 - [转生成为伊路米的双生姐姐](https://www.yimingeduai.com/book/6adke6j/)
 - [关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事](https://www.yimingeduai.com/book/6adke3s/)
@@ -334,6 +336,7 @@
 - [我于江湖已无敌](https://www.yimingeduai.com/book/6adk57b/)
 - [当然是拿世界冠军啦![短道速滑]](https://www.yimingeduai.com/book/6adk575/)
 - [被小蜘蛛听见心声后](https://www.yimingeduai.com/book/6adk4iu/)
+- [好巧，你也是妹控？[综崩铁]](https://www.yimingeduai.com/book/6adk46a/)
 - [好好做1](https://www.yimingeduai.com/book/6adk40p/)
 - [无能的丈夫们](https://www.yimingeduai.com/book/6adk3t4/)
 - [[综英美]蝙蝠崽但脆皮](https://www.yimingeduai.com/book/6adk3su/)
@@ -396,7 +399,6 @@
 - [清穿纯妃养娃日常](https://www.yimingeduai.com/book/6adjl1c/)
 - [战死的阿爹回来了[年代]](https://www.yimingeduai.com/book/6adjktc/)
 - [满级后我的外挂到账了[全息]](https://www.yimingeduai.com/book/6adjkpn/)
-- [在狗血文里躺平[人外]](https://www.yimingeduai.com/book/6adjkjd/)
 - [侦探小说的大忌[福尔摩斯]](https://www.yimingeduai.com/book/6adjk89/)
 - [若清晨所见之蓝](https://www.yimingeduai.com/book/6adjk3l/)
 - [我养龙傲天的那些年](https://www.yimingeduai.com/book/6adjjrs/)

@@ -1,7 +1,7 @@
 
 # 紫玉海小说 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-09-04 03:45:45
+更新时间：2026-09-05 03:46:49
 
 紫玉海小说网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
@@ -23,10 +23,10 @@
 - [从异世界穿回来后](https://www.ziyuhai.com/book/84rn57r/)
 - [暴君偏头痛](https://www.ziyuhai.com/book/84rn57e/)
 - [[综英美]让我统治哥谭！！！](https://www.ziyuhai.com/book/84rn579/)
-- [阿竹与野桃](https://www.ziyuhai.com/book/84rn572/)
 - [失而复得的白月光[快穿]](https://www.ziyuhai.com/book/84rn571/)
 - [躲避原书剧情五年后](https://www.ziyuhai.com/book/84rn56h/)
 - [我的烧烤摊超美味[美食]](https://www.ziyuhai.com/book/84rn554/)
+- [渡鬼](https://www.ziyuhai.com/book/84rn54o/)
 - [青城玩家明明超强却过分谨慎](https://www.ziyuhai.com/book/84rn54h/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.ziyuhai.com/book/84rn54a/)
 - [星际团宠小人鱼](https://www.ziyuhai.com/book/84rn52t/)
@@ -235,7 +235,6 @@
 - [一见倾心[快穿]](https://www.ziyuhai.com/book/q2qn43/)
 - [掉马后成了奥特带恶人](https://www.ziyuhai.com/book/q2qn3i/)
 - [我的爸爸不可能叛变](https://www.ziyuhai.com/book/q2qmnp/)
-- [咸鱼受只想摆烂](https://www.ziyuhai.com/book/q2qmhs/)
 - [父皇，我是gay](https://www.ziyuhai.com/book/q2qmcc/)
 - [荒谬神父是个渣](https://www.ziyuhai.com/book/q2qm9j/)
 - [我的餐馆通历史诸朝](https://www.ziyuhai.com/book/q2qlvh/)
@@ -409,7 +408,6 @@
 - [隔壁班的松田君](https://www.ziyuhai.com/book/q2q3rs/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.ziyuhai.com/book/q2q3hh/)
 - [[足球]在比利时我们只玩天赋](https://www.ziyuhai.com/book/q2q3ds/)
-- [在狗血文里躺平[人外]](https://www.ziyuhai.com/book/q2q291/)
 - [你也没死？](https://www.ziyuhai.com/book/q2pvnh/)
 - [青空来信](https://www.ziyuhai.com/book/q2pvcb/)
 - [这谁的沙雕二次元心声！](https://www.ziyuhai.com/book/q2ptab/)

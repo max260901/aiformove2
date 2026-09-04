@@ -1,7 +1,7 @@
 
 # 泡泡中文书社-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-04 03:37:10
+更新时间：2026-09-05 03:38:14
 
 泡泡中文书社是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -33,7 +33,7 @@
 - [我比反派先崩坏[快穿]](https://www.shushe818.com/book/29bbp9o/)
 - [我的烧烤摊超美味[美食]](https://www.shushe818.com/book/29bbp14/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shushe818.com/book/29bbp07/)
-- [阿竹与野桃](https://www.shushe818.com/book/29bboud/)
+- [渡鬼](https://www.shushe818.com/book/29bbou8/)
 - [cos温迪后玩到真崩铁了](https://www.shushe818.com/book/29bbkrs/)
 - [从异世界穿回来后](https://www.shushe818.com/book/29bbkk4/)
 - [我有嘉宾](https://www.shushe818.com/book/29bbkde/)
@@ -144,7 +144,6 @@
 - [寻真](https://www.shushe818.com/book/29b9m6k/)
 - [我不可能舔一个漂亮捞子](https://www.shushe818.com/book/29b9lvm/)
 - [巨星渡灵师](https://www.shushe818.com/book/29b9lqp/)
-- [咸鱼受只想摆烂](https://www.shushe818.com/book/29b9lp2/)
 - [被子同学](https://www.shushe818.com/book/29b9lek/)
 - [陛下今天怼人了吗［快穿］](https://www.shushe818.com/book/29b9lcf/)
 - [[清]给太子当姐姐那些年](https://www.shushe818.com/book/29b9l95/)
@@ -423,13 +422,13 @@
 - [癫骨](https://www.shushe818.com/book/29b8l0p/)
 - [直播捏玩具被榜一大哥撅了](https://www.shushe818.com/book/29b8l0i/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.shushe818.com/book/29b8kth/)
-- [在狗血文里躺平[人外]](https://www.shushe818.com/book/29b8i2c/)
 - [刀子精手心的人偶崽崽](https://www.shushe818.com/book/29b8hoj/)
 - [我最讨厌打球了！](https://www.shushe818.com/book/29b8gk8/)
 - [求生游戏：当邪神成为生活玩家后](https://www.shushe818.com/book/29b8gfr/)
 - [[足球]小小鸟堂堂来袭](https://www.shushe818.com/book/29b8b49/)
 - [幼崽假少爷选择回归寒门](https://www.shushe818.com/book/29b8asj/)
 - [盛夏晴浓](https://www.shushe818.com/book/29b8a8e/)
+- [好巧，你也是妹控？[综崩铁]](https://www.shushe818.com/book/29b88vs/)
 - [青城玩家明明超强却过分谨慎](https://www.shushe818.com/book/29b86b2/)
 - [侯府打工人](https://www.shushe818.com/book/29b852b/)
 - [法外狂猫](https://www.shushe818.com/book/29b84u0/)

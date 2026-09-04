@@ -1,13 +1,16 @@
 
 # 湾里早市时间小说网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-04 03:40:43
+更新时间：2026-09-05 03:41:47
 
 湾里早市时间小说网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
 - [湾里早市时间小说网](https://www.wlzssj.com/)
 
 ## 最新小说
+- [这个替嫁让我来！](https://www.wlzssj.com/book/4pmfea8/)
+- [我拿的可是反派剧本](https://www.wlzssj.com/book/4pmfe5h/)
+- [丧尸王有什么坏心思？](https://www.wlzssj.com/book/4pmfdkp/)
 - [网球带给齐木的灾难](https://www.wlzssj.com/book/4pmfc7a/)
 - [自知之明](https://www.wlzssj.com/book/4pmfc75/)
 - [清穿女回来后[天幕]](https://www.wlzssj.com/book/4pmfc69/)
@@ -35,8 +38,8 @@
 - [怪谈小镇游玩指南[无限]](https://www.wlzssj.com/book/4pmer18/)
 - [离开那个混蛋后](https://www.wlzssj.com/book/4pmeq9u/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wlzssj.com/book/4pmeocf/)
+- [渡鬼](https://www.wlzssj.com/book/4pmeo97/)
 - [我的烧烤摊超美味[美食]](https://www.wlzssj.com/book/4pmeo7d/)
-- [阿竹与野桃](https://www.wlzssj.com/book/4pmeo6u/)
 - [穿成反派的亡夫后[虫族]](https://www.wlzssj.com/book/4pmen2g/)
 - [氪成酒厂股东了怎么办](https://www.wlzssj.com/book/4pmemr2/)
 - [衍生穿越合订本](https://www.wlzssj.com/book/4pmemnj/)
@@ -140,7 +143,6 @@
 - [灰墙之下](https://www.wlzssj.com/book/4pmd25e/)
 - [妖怪崽崽种田日常](https://www.wlzssj.com/book/4pmd21e/)
 - [长公主的六零年代](https://www.wlzssj.com/book/4pmd1uo/)
-- [咸鱼受只想摆烂](https://www.wlzssj.com/book/4pmd1rk/)
 - [寻真](https://www.wlzssj.com/book/4pmd1qq/)
 - [微臣怜惜公主](https://www.wlzssj.com/book/4pmd19v/)
 - [带着刀剑穿越伟大航路后，你当上了五皇](https://www.wlzssj.com/book/4pmd10m/)
@@ -247,7 +249,6 @@
 - [强爱清冷O后她上瘾了[快穿]](https://www.wlzssj.com/book/4pmcg8n/)
 - [娇气包在无限游戏被坏男人骗](https://www.wlzssj.com/book/4pmcg3j/)
 - [假如樱是砂忍](https://www.wlzssj.com/book/4pmcg0u/)
-- [穿为清冷影后的污点A](https://www.wlzssj.com/book/4pmcfvq/)
 - [野比春子穿越事件簿](https://www.wlzssj.com/book/4pmcfqf/)
 - [退圈后，我靠职场综艺火爆全网](https://www.wlzssj.com/book/4pmcfno/)
 - [挚友和我穿越后分了阵营](https://www.wlzssj.com/book/4pmcfhl/)
@@ -418,9 +419,9 @@
 - [吐槽役审神者会爆改幕后大boss吗](https://www.wlzssj.com/book/4pmc0uk/)
 - [求生游戏：当邪神成为生活玩家后](https://www.wlzssj.com/book/4pmc05n/)
 - [幼崽假少爷选择回归寒门](https://www.wlzssj.com/book/4pmbv9r/)
-- [在狗血文里躺平[人外]](https://www.wlzssj.com/book/4pmbv22/)
 - [撕毁女配剧本的我被神之子读心了](https://www.wlzssj.com/book/4pmbshp/)
 - [[足球]小小鸟堂堂来袭](https://www.wlzssj.com/book/4pmbs7r/)
+- [好巧，你也是妹控？[综崩铁]](https://www.wlzssj.com/book/4pmbs6t/)
 - [青城玩家明明超强却过分谨慎](https://www.wlzssj.com/book/4pmbrps/)
 - [柯学剧本杀，但恋爱流打法](https://www.wlzssj.com/book/4pmbrfa/)
 - [矩阵干扰](https://www.wlzssj.com/book/4pmbr24/)
