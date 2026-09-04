@@ -1,13 +1,18 @@
 
 # 新华 MBA雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-09-04 03:42:01
+更新时间：2026-09-05 03:43:05
 
 新华 MBA雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。
 
 - [新华MBA雷火小说网](https://www.xhmba.com/)
 
 ## 最新小说
+- [娇气点怎么啦？［快穿］](https://www.xhmba.com/book/7mj2adu/)
+- [[崩铁]这丰饶孽物我当定了！](https://www.xhmba.com/book/7mj29n2/)
+- [不义世界都是我马甲[综英美]](https://www.xhmba.com/book/7mj29em/)
+- [从异世界穿回来后](https://www.xhmba.com/book/7mj27tv/)
+- [[综武侠]风流](https://www.xhmba.com/book/7mj27t6/)
 - [我骗家里的钱养你啊](https://www.xhmba.com/book/7mj27fr/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.xhmba.com/book/7mj27et/)
 - [禁止继承限制级雌君](https://www.xhmba.com/book/7mj27d4/)
@@ -126,7 +131,6 @@
 - [咦？我爸爸复活啦](https://www.xhmba.com/book/7mj0bqv/)
 - [和室友他爸恋爱后](https://www.xhmba.com/book/7mj0bco/)
 - [同时扮演贵族学院F4和平民校花](https://www.xhmba.com/book/7mj0bce/)
-- [咸鱼受只想摆烂](https://www.xhmba.com/book/7mj0bav/)
 - [ƽ��С����(�崩)](https://www.xhmba.com/book/7mj0b06/)
 - [万人迷又被自己巧取豪夺了［快穿］](https://www.xhmba.com/book/7mj0au5/)
 - [被迫跟死对头结婚后](https://www.xhmba.com/book/7mj0aft/)
@@ -213,7 +217,6 @@
 - [万人迷穿到耽美女配](https://www.xhmba.com/book/7mivsqb/)
 - [在情敌变情人文里当炮灰](https://www.xhmba.com/book/7mivspn/)
 - [迫害系偶像排球部出道中](https://www.xhmba.com/book/7mivsnu/)
-- [穿为清冷影后的污点A](https://www.xhmba.com/book/7mivsjm/)
 - [父皇，我是gay](https://www.xhmba.com/book/7mivsgp/)
 - [都说了我很娇纵了](https://www.xhmba.com/book/7mivsgn/)
 - [侯府打工人](https://www.xhmba.com/book/7mivsac/)
@@ -388,7 +391,6 @@
 - [高冷影后逼我标记她](https://www.xhmba.com/book/7mivdae/)
 - [顶流他姐有神豪系统](https://www.xhmba.com/book/7mivd8l/)
 - [神之子与排球的适配性](https://www.xhmba.com/book/7mivd26/)
-- [在狗血文里躺平[人外]](https://www.xhmba.com/book/7mivd1h/)
 - [咒术师，但队友是侦探](https://www.xhmba.com/book/7mivd0c/)
 - [小狗向导，世界瑰宝！](https://www.xhmba.com/book/7mivcvr/)
 - [青山不渡](https://www.xhmba.com/book/7mivcse/)
@@ -410,6 +412,7 @@
 - [求生游戏：当邪神成为生活玩家后](https://www.xhmba.com/book/7mivbgs/)
 - [好兄弟暴富后非要跟我结婚](https://www.xhmba.com/book/7mivbgc/)
 - [普通高中生，但兼职咒术师](https://www.xhmba.com/book/7mivb6p/)
+- [好巧，你也是妹控？[综崩铁]](https://www.xhmba.com/book/7miv9ua/)
 - [盛夏晴浓](https://www.xhmba.com/book/7miv9mb/)
 - [李玉灯](https://www.xhmba.com/book/7miv9aj/)
 - [柯学剧本杀，但恋爱流打法](https://www.xhmba.com/book/7miv8sl/)
@@ -418,11 +421,11 @@
 - [等我吃腻了再倒闭可以吗](https://www.xhmba.com/book/7miv5n9/)
 - [自大狂](https://www.xhmba.com/book/7miuv26/)
 - [全天下都在求太子殿下别死！](https://www.xhmba.com/book/7miuo9p/)
-- [阿竹与野桃](https://www.xhmba.com/book/7miulur/)
 - [暴君偏头痛](https://www.xhmba.com/book/7miulru/)
 - [我的烧烤摊超美味[美食]](https://www.xhmba.com/book/7miuljg/)
 - [青城玩家明明超强却过分谨慎](https://www.xhmba.com/book/7miul1s/)
 - [青空来信](https://www.xhmba.com/book/7miukvr/)
+- [渡鬼](https://www.xhmba.com/book/7miukhi/)
 - [[综英美]让我统治哥谭！！！](https://www.xhmba.com/book/7miuk6j/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xhmba.com/book/7miuk1q/)
 - [你，后室管理员](https://www.xhmba.com/book/7mit9dn/)

@@ -1,7 +1,7 @@
 
 # 笔趣阁小说网 - 免费在线阅读百万小说
 
-更新时间：2026-09-04 03:42:15
+更新时间：2026-09-05 03:43:18
 
 笔趣阁小说网提供免费的小说在线阅读服务，包括但不限于各类热门小说、经典文学等。网站支持书架同步功能，确保用户阅读进度永不丢失。快来加入我们，享受无障碍、无广告的纯净阅读体验吧！
 
@@ -25,10 +25,10 @@
 - [我的烧烤摊超美味[美食]](https://www.xiaoshuo139.com/book/2ch7u4i/)
 - [从异世界穿回来后](https://www.xiaoshuo139.com/book/2ch7u46/)
 - [青城玩家明明超强却过分谨慎](https://www.xiaoshuo139.com/book/2ch7u45/)
+- [渡鬼](https://www.xiaoshuo139.com/book/2ch7u3f/)
 - [躲避原书剧情五年后](https://www.xiaoshuo139.com/book/2ch7u39/)
 - [失而复得的白月光[快穿]](https://www.xiaoshuo139.com/book/2ch7u2k/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xiaoshuo139.com/book/2ch7u1q/)
-- [阿竹与野桃](https://www.xiaoshuo139.com/book/2ch7u1e/)
 - [你，后室管理员](https://www.xiaoshuo139.com/book/2ch7u0n/)
 - [[封神]圣人生欲](https://www.xiaoshuo139.com/book/2ch7tus/)
 - [被四皇错看成小动物后](https://www.xiaoshuo139.com/book/2ch7tup/)
@@ -229,7 +229,6 @@
 - [摆烂后我成了邪神学院大佬](https://www.xiaoshuo139.com/book/7kvjh3/)
 - [在情敌变情人文里当炮灰](https://www.xiaoshuo139.com/book/7kvjeu/)
 - [我的爸爸不可能叛变](https://www.xiaoshuo139.com/book/7kviv3/)
-- [咸鱼受只想摆烂](https://www.xiaoshuo139.com/book/7kviqf/)
 - [和灵异片boss谈恋爱](https://www.xiaoshuo139.com/book/7kviqb/)
 - [七十年代娇美人](https://www.xiaoshuo139.com/book/7kvih4/)
 - [作为死对头的男朋友](https://www.xiaoshuo139.com/book/7kvibm/)
@@ -409,7 +408,6 @@
 - [直播捏玩具被榜一大哥撅了](https://www.xiaoshuo139.com/book/7kuvit/)
 - [[足球]在比利时我们只玩天赋](https://www.xiaoshuo139.com/book/7kuv6f/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.xiaoshuo139.com/book/7kuv51/)
-- [在狗血文里躺平[人外]](https://www.xiaoshuo139.com/book/7kuv0t/)
 - [你也没死？](https://www.xiaoshuo139.com/book/7kut5v/)
 - [青空来信](https://www.xiaoshuo139.com/book/7kurbf/)
 - [这谁的沙雕二次元心声！](https://www.xiaoshuo139.com/book/7kuqqa/)

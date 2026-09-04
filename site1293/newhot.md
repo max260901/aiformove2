@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-04 03:22:41
+更新时间：2026-09-05 03:23:50
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
@@ -20,7 +20,6 @@
 - [[足球]小小鸟堂堂来袭](https://www.ccccenergy.com/book/7car6b4/)
 - [同时扮演贵族学院F4和平民校花](https://www.ccccenergy.com/book/7car6ab/)
 - [我骗家里的钱养你啊](https://www.ccccenergy.com/book/7car6aa/)
-- [阿竹与野桃](https://www.ccccenergy.com/book/7car69i/)
 - [青城玩家明明超强却过分谨慎](https://www.ccccenergy.com/book/7car691/)
 - [我的烧烤摊超美味[美食]](https://www.ccccenergy.com/book/7car689/)
 - [暴君偏头痛](https://www.ccccenergy.com/book/7car684/)
@@ -28,6 +27,7 @@
 - [躲避原书剧情五年后](https://www.ccccenergy.com/book/7car66c/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.ccccenergy.com/book/7car668/)
 - [[综英美]让我统治哥谭！！！](https://www.ccccenergy.com/book/7car660/)
+- [渡鬼](https://www.ccccenergy.com/book/7car65c/)
 - [[封神]圣人生欲](https://www.ccccenergy.com/book/7car64n/)
 - [星际团宠小人鱼](https://www.ccccenergy.com/book/7car63c/)
 - [你，后室管理员](https://www.ccccenergy.com/book/7car635/)
@@ -248,7 +248,6 @@
 - [人外收集录［快穿］](https://www.ccccenergy.com/book/nkb1n6/)
 - [反派的病弱白月光重生了](https://www.ccccenergy.com/book/nkb1me/)
 - [父皇，我是gay](https://www.ccccenergy.com/book/nkb1jj/)
-- [咸鱼受只想摆烂](https://www.ccccenergy.com/book/nkb1dd/)
 - [荒谬神父是个渣](https://www.ccccenergy.com/book/nkb19u/)
 - [变成龙傲天的心上猫后](https://www.ccccenergy.com/book/nkb0rg/)
 - [恶毒女配是绝色美人[快穿]](https://www.ccccenergy.com/book/nkb0lv/)
@@ -410,7 +409,6 @@
 - [虫族治愈师，但恐虫](https://www.ccccenergy.com/book/nkaf7v/)
 - [隔壁班的松田君](https://www.ccccenergy.com/book/nkaevu/)
 - [你也没死？](https://www.ccccenergy.com/book/nkadaj/)
-- [在狗血文里躺平[人外]](https://www.ccccenergy.com/book/nkad20/)
 - [老公是松散生命体](https://www.ccccenergy.com/book/nka9ut/)
 - [青空来信](https://www.ccccenergy.com/book/nka97q/)
 - [这谁的沙雕二次元心声！](https://www.ccccenergy.com/book/nka963/)

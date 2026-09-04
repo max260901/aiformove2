@@ -1,7 +1,7 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-09-04 03:42:48
+更新时间：2026-09-05 03:43:51
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。
 
@@ -20,12 +20,12 @@
 - [自知之明](https://www.xqwz8bk.com/book/1igm357/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.xqwz8bk.com/book/1igm352/)
 - [全世界名为爱的恶意](https://www.xqwz8bk.com/book/1igm34n/)
-- [阿竹与野桃](https://www.xqwz8bk.com/book/1igm33r/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xqwz8bk.com/book/1igm330/)
 - [躲避原书剧情五年后](https://www.xqwz8bk.com/book/1igm32t/)
 - [[综英美]让我统治哥谭！！！](https://www.xqwz8bk.com/book/1igm32a/)
 - [暴君偏头痛](https://www.xqwz8bk.com/book/1igm31q/)
 - [青城玩家明明超强却过分谨慎](https://www.xqwz8bk.com/book/1igm31l/)
+- [渡鬼](https://www.xqwz8bk.com/book/1igm31j/)
 - [从异世界穿回来后](https://www.xqwz8bk.com/book/1igm31c/)
 - [我的烧烤摊超美味[美食]](https://www.xqwz8bk.com/book/1igm2vu/)
 - [星际团宠小人鱼](https://www.xqwz8bk.com/book/1igm2ui/)
@@ -222,7 +222,6 @@
 - [恶劣大佬爆改黑月光[快穿]](https://www.xqwz8bk.com/book/51nf5l/)
 - [这个剑修明明超强却过分贫穷](https://www.xqwz8bk.com/book/51ne6f/)
 - [掉马后成了奥特带恶人](https://www.xqwz8bk.com/book/51ne4e/)
-- [咸鱼受只想摆烂](https://www.xqwz8bk.com/book/51ne0a/)
 - [我的餐馆通历史诸朝](https://www.xqwz8bk.com/book/51ndrp/)
 - [在情敌变情人文里当炮灰](https://www.xqwz8bk.com/book/51ndov/)
 - [直播表现美强惨的我无欲无求](https://www.xqwz8bk.com/book/51ndnp/)
@@ -409,7 +408,6 @@
 - [隔壁班的松田君](https://www.xqwz8bk.com/book/51mpic/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.xqwz8bk.com/book/51moha/)
 - [你也没死？](https://www.xqwz8bk.com/book/51mnqs/)
-- [在狗血文里躺平[人外]](https://www.xqwz8bk.com/book/51mnm7/)
 - [这谁的沙雕二次元心声！](https://www.xqwz8bk.com/book/51mm6d/)
 - [青空来信](https://www.xqwz8bk.com/book/51mkdd/)
 - [老公是松散生命体](https://www.xqwz8bk.com/book/51mj0i/)

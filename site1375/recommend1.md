@@ -1,7 +1,7 @@
 
 # 精英文学 - 书友最值得收藏的小说免费阅读网
 
-更新时间：2026-09-04 03:41:46
+更新时间：2026-09-05 03:42:50
 
 精英文学为您提供一个干净舒适的阅读环境，作为书友最值得收藏的小说免费阅读网之一，我们致力于打造无广告干扰的最佳在线阅读体验。
 
@@ -92,7 +92,7 @@
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.xcposji.com/book/jnkuf3/)
 - [让你们无剧本可走（快穿）](https://www.xcposji.com/book/jnktqp/)
 - [社畜Beta也能被顶A觊觎吗](https://www.xcposji.com/book/jnkto5/)
-- [枕边热吻](https://www.xcposji.com/book/jnktmo/)
+- [怀了前任大哥的崽后](https://www.xcposji.com/book/jnktmo/)
 - [我骗家里的钱养你啊](https://www.xcposji.com/book/jnkti9/)
 - [如何正确哄睡暴君](https://www.xcposji.com/book/jnkro5/)
 - [死遁的亡夫们都回来了](https://www.xcposji.com/book/jnkopp/)

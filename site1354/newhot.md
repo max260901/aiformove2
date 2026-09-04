@@ -1,7 +1,7 @@
 
 # 阅读大文学 - 弘扬华夏文化的综合小说阅读平台
 
-更新时间：2026-09-04 03:44:06
+更新时间：2026-09-05 03:45:10
 
 阅读大文学致力于弘扬华夏文化，提供丰富的小说资源供免费阅读，涵盖但不限于古典文学、现代文学、当代文学及各类流行小说如言情、都市、玄幻等。
 
@@ -32,7 +32,7 @@
 - [我超凶的！[快穿]](https://www.yuedu188.com/book/1egr6ve/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yuedu188.com/book/1egr6ei/)
 - [我的烧烤摊超美味[美食]](https://www.yuedu188.com/book/1egr6ee/)
-- [阿竹与野桃](https://www.yuedu188.com/book/1egr6bc/)
+- [渡鬼](https://www.yuedu188.com/book/1egr6cm/)
 - [我比反派先崩坏[快穿]](https://www.yuedu188.com/book/1egr65l/)
 - [cos温迪后玩到真崩铁了](https://www.yuedu188.com/book/1egr1n9/)
 - [从异世界穿回来后](https://www.yuedu188.com/book/1egr1ik/)
@@ -141,7 +141,6 @@
 - [我不可能舔一个漂亮捞子](https://www.yuedu188.com/book/1egp39u/)
 - [巨星渡灵师](https://www.yuedu188.com/book/1egp32f/)
 - [长公主的六零年代](https://www.yuedu188.com/book/1egp2ua/)
-- [咸鱼受只想摆烂](https://www.yuedu188.com/book/1egp2t0/)
 - [[综崩铁]谁家小鸟掉冥河了](https://www.yuedu188.com/book/1egp2qj/)
 - [逝水](https://www.yuedu188.com/book/1egp2mn/)
 - [你也没死？](https://www.yuedu188.com/book/1egp2kl/)
@@ -422,7 +421,6 @@
 - [某柯学的正义伙伴](https://www.yuedu188.com/book/4kttkk/)
 - [癫骨](https://www.yuedu188.com/book/4kttcv/)
 - [高冷影后逼我标记她](https://www.yuedu188.com/book/4kttbr/)
-- [在狗血文里躺平[人外]](https://www.yuedu188.com/book/4ktru9/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.yuedu188.com/book/4ktqv4/)
 - [我最讨厌打球了！](https://www.yuedu188.com/book/4ktq5b/)
 - [刀子精手心的人偶崽崽](https://www.yuedu188.com/book/4ktpk9/)
@@ -432,6 +430,7 @@
 - [盛夏晴浓](https://www.yuedu188.com/book/4kti5i/)
 - [[足球]小小鸟堂堂来袭](https://www.yuedu188.com/book/4kth6v/)
 - [青城玩家明明超强却过分谨慎](https://www.yuedu188.com/book/4ktg3i/)
+- [好巧，你也是妹控？[综崩铁]](https://www.yuedu188.com/book/4ktfq3/)
 - [幼崽假少爷选择回归寒门](https://www.yuedu188.com/book/4kteo9/)
 - [侯府打工人](https://www.yuedu188.com/book/4ktckp/)
 - [好兄弟暴富后非要跟我结婚](https://www.yuedu188.com/book/4ktbta/)

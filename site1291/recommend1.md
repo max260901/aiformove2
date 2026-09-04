@@ -1,7 +1,7 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-09-04 03:34:29
+更新时间：2026-09-05 03:35:31
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
@@ -122,7 +122,7 @@
 - [摄政王家的咸鱼夫郎](https://www.qingyuchun.com/book/1053koh/)
 - [死遁的亡夫们都回来了](https://www.qingyuchun.com/book/36vpan/)
 - [沈助理又在隐藏他的超能力](https://www.qingyuchun.com/book/36vlen/)
-- [枕边热吻](https://www.qingyuchun.com/book/36vld0/)
+- [怀了前任大哥的崽后](https://www.qingyuchun.com/book/36vld0/)
 - [成为养成系练习生后](https://www.qingyuchun.com/book/36vh1f/)
 - [美貌单出，杀穿港娱［八零］](https://www.qingyuchun.com/book/36vgqk/)
 - [死对头又在挑衅我](https://www.qingyuchun.com/book/36vfvm/)

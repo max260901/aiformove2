@@ -1,7 +1,7 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-09-04 03:34:29
+更新时间：2026-09-05 03:35:31
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
@@ -22,7 +22,7 @@
 - [等我吃腻了再倒闭可以吗](https://www.qingyuchun.com/book/10578k9/)
 - [躲避原书剧情五年后](https://www.qingyuchun.com/book/10578je/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.qingyuchun.com/book/10578j9/)
-- [阿竹与野桃](https://www.qingyuchun.com/book/10578iq/)
+- [渡鬼](https://www.qingyuchun.com/book/10578ib/)
 - [失而复得的白月光[快穿]](https://www.qingyuchun.com/book/10578ho/)
 - [[综英美]让我统治哥谭！！！](https://www.qingyuchun.com/book/10578hk/)
 - [青城玩家明明超强却过分谨慎](https://www.qingyuchun.com/book/10578gv/)
@@ -229,7 +229,6 @@
 - [[足球]那个德国队新皇](https://www.qingyuchun.com/book/36vhcr/)
 - [诡异书店打工实录](https://www.qingyuchun.com/book/36vha7/)
 - [变成龙傲天的心上猫后](https://www.qingyuchun.com/book/36vh4g/)
-- [咸鱼受只想摆烂](https://www.qingyuchun.com/book/36vgva/)
 - [请别摘下超能力社恐的耳机](https://www.qingyuchun.com/book/36vgte/)
 - [掉马后成了奥特带恶人](https://www.qingyuchun.com/book/36vgmb/)
 - [迫害系偶像排球部出道中](https://www.qingyuchun.com/book/36vgj2/)
@@ -410,7 +409,6 @@
 - [吐槽役审神者会爆改幕后大boss吗](https://www.qingyuchun.com/book/36use0/)
 - [虫族治愈师，但恐虫](https://www.qingyuchun.com/book/36us7v/)
 - [你也没死？](https://www.qingyuchun.com/book/36us0l/)
-- [在狗血文里躺平[人外]](https://www.qingyuchun.com/book/36updr/)
 - [这谁的沙雕二次元心声！](https://www.qingyuchun.com/book/36uon7/)
 - [老公是松散生命体](https://www.qingyuchun.com/book/36umob/)
 - [青空来信](https://www.qingyuchun.com/book/36umbi/)

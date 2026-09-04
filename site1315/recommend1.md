@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-09-04 03:30:52
+更新时间：2026-09-05 03:31:50
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
@@ -121,7 +121,7 @@
 - [起初，我只是想找个冤大头](https://www.lianzai007.com/book/6g3ji23/)
 - [摄政王家的咸鱼夫郎](https://www.lianzai007.com/book/6g3jcn5/)
 - [死遁的亡夫们都回来了](https://www.lianzai007.com/book/kq1a6e/)
-- [枕边热吻](https://www.lianzai007.com/book/kq184k/)
+- [怀了前任大哥的崽后](https://www.lianzai007.com/book/kq184k/)
 - [沈助理又在隐藏他的超能力](https://www.lianzai007.com/book/kq16tu/)
 - [死对头又在挑衅我](https://www.lianzai007.com/book/kq12vt/)
 - [假金丝雀深陷修罗场](https://www.lianzai007.com/book/kq12np/)

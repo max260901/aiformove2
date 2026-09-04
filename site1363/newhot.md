@@ -1,7 +1,7 @@
 
 # 无瑕天涯在线书库 - 免费小说在线阅读
 
-更新时间：2026-09-04 03:41:16
+更新时间：2026-09-05 03:42:20
 
 无瑕天涯在线书库自2003年创立至今，致力于提供包括武侠、言情、科幻等多种类型的小说免费在线阅读服务。页面设计简洁，持续优化用户体验，旨在为读者带来更好的阅读享受。
 
@@ -31,9 +31,9 @@
 - [[足球]番外乐子集](https://www.wuxia688.com/book/2bjr6m8/)
 - [我超凶的！[快穿]](https://www.wuxia688.com/book/2bjr4q8/)
 - [我比反派先崩坏[快穿]](https://www.wuxia688.com/book/2bjr41e/)
-- [阿竹与野桃](https://www.wuxia688.com/book/2bjr3pp/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wuxia688.com/book/2bjr3nu/)
 - [我的烧烤摊超美味[美食]](https://www.wuxia688.com/book/2bjr3mc/)
+- [渡鬼](https://www.wuxia688.com/book/2bjr3m1/)
 - [cos温迪后玩到真崩铁了](https://www.wuxia688.com/book/2bjqvkv/)
 - [从异世界穿回来后](https://www.wuxia688.com/book/2bjqvcr/)
 - [我有嘉宾](https://www.wuxia688.com/book/2bjqv37/)
@@ -137,7 +137,6 @@
 - [被子同学](https://www.wuxia688.com/book/2bjp2jh/)
 - [陛下今天怼人了吗［快穿］](https://www.wuxia688.com/book/2bjp2gt/)
 - [巨星渡灵师](https://www.wuxia688.com/book/2bjp2a5/)
-- [咸鱼受只想摆烂](https://www.wuxia688.com/book/2bjp1ue/)
 - [可怜的天然呆直男[快穿]](https://www.wuxia688.com/book/2bjp1on/)
 - [[清]给太子当姐姐那些年](https://www.wuxia688.com/book/2bjp1j4/)
 - [歪剧情我是专业的[快穿]](https://www.wuxia688.com/book/2bjp1au/)
@@ -422,7 +421,6 @@
 - [我靠玛丽苏系统伪装神女](https://www.wuxia688.com/book/2bjo06b/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.wuxia688.com/book/2bjo01e/)
 - [在重男兄弟间夹缝求生](https://www.wuxia688.com/book/2bjnvme/)
-- [在狗血文里躺平[人外]](https://www.wuxia688.com/book/2bjntou/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.wuxia688.com/book/2bjnt4i/)
 - [刀子精手心的人偶崽崽](https://www.wuxia688.com/book/2bjnsnd/)
 - [我最讨厌打球了！](https://www.wuxia688.com/book/2bjnrpq/)
@@ -430,6 +428,7 @@
 - [盛夏晴浓](https://www.wuxia688.com/book/2bjnmdi/)
 - [[足球]小小鸟堂堂来袭](https://www.wuxia688.com/book/2bjnlm0/)
 - [幼崽假少爷选择回归寒门](https://www.wuxia688.com/book/2bjnl4m/)
+- [好巧，你也是妹控？[综崩铁]](https://www.wuxia688.com/book/2bjnjfd/)
 - [青城玩家明明超强却过分谨慎](https://www.wuxia688.com/book/2bjnjc6/)
 - [好兄弟暴富后非要跟我结婚](https://www.wuxia688.com/book/2bjngui/)
 - [侯府打工人](https://www.wuxia688.com/book/2bjnfl0/)

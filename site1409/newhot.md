@@ -1,15 +1,18 @@
 
 # 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
 
-更新时间：2026-09-04 03:20:53
+更新时间：2026-09-05 03:22:00
 
 瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！
 
 - [瑞文文学网](https://www.49ig.com/)
 
 ## 最新小说
+- [cos温迪后玩到真崩铁了](https://www.49ig.com/book/436e8rl/)
+- [躲避原书剧情五年后](https://www.49ig.com/book/436e8nt/)
 - [清穿女回来后[天幕]](https://www.49ig.com/book/436e8iu/)
 - [禁止继承限制级雌君](https://www.49ig.com/book/436e8h8/)
+- [自知之明](https://www.49ig.com/book/436e8gf/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.49ig.com/book/436e8eu/)
 - [娇气点怎么啦？［快穿］](https://www.49ig.com/book/436e8aq/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.49ig.com/book/436e7ic/)
@@ -48,12 +51,12 @@
 - [每天回到家都看到雄虫在装死](https://www.49ig.com/book/436cu7g/)
 - [[足球]葡萄牙世界杯if线](https://www.49ig.com/book/436cu6u/)
 - [女装生崽，娃爹宇智波](https://www.49ig.com/book/436ctdh/)
+- [渡鬼](https://www.49ig.com/book/436cs28/)
 - [五美元在哥谭活一月](https://www.49ig.com/book/436crv3/)
 - [可怜的天然呆直男[快穿]](https://www.49ig.com/book/436crbs/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.49ig.com/book/436cr8s/)
 - [暗堕本丸，在线直播](https://www.49ig.com/book/436cr59/)
 - [优质攻不做恋爱脑[快穿]](https://www.49ig.com/book/436cr4k/)
-- [阿竹与野桃](https://www.49ig.com/book/436cr0k/)
 - [全天下都在求太子殿下别死！](https://www.49ig.com/book/436cqvu/)
 - [我的烧烤摊超美味[美食]](https://www.49ig.com/book/436cqvt/)
 - [我当县令那些年](https://www.49ig.com/book/436cqui/)
@@ -125,7 +128,6 @@
 - [妖怪崽崽种田日常](https://www.49ig.com/book/436cbba/)
 - [[清]给太子当姐姐那些年](https://www.49ig.com/book/436cbb8/)
 - [长公主的六零年代](https://www.49ig.com/book/436cb6t/)
-- [咸鱼受只想摆烂](https://www.49ig.com/book/436cb6e/)
 - [[综崩铁]谁家小鸟掉冥河了](https://www.49ig.com/book/436cane/)
 - [京秋婚约](https://www.49ig.com/book/436cahl/)
 - [巨星渡灵师](https://www.49ig.com/book/436cad6/)
@@ -225,7 +227,6 @@
 - [蜜蜂膝盖银子弹](https://www.49ig.com/book/436bpvd/)
 - [少女妄想症](https://www.49ig.com/book/436bpgd/)
 - [挚友和我穿越后分了阵营](https://www.49ig.com/book/436bp5q/)
-- [穿为清冷影后的污点A](https://www.49ig.com/book/436bp45/)
 - [皇后守则[快穿]](https://www.49ig.com/book/436bp3v/)
 - [人外收集录［快穿］](https://www.49ig.com/book/436bp0l/)
 - [与清冷O协议结婚后她失忆了](https://www.49ig.com/book/436bott/)
@@ -401,7 +402,6 @@
 - [青城玩家明明超强却过分谨慎](https://www.49ig.com/book/436bb5v/)
 - [在女仆咖啡店兼职被校草缠上后](https://www.49ig.com/book/436bb33/)
 - [请问夫君你哪位](https://www.49ig.com/book/436bauu/)
-- [在狗血文里躺平[人外]](https://www.49ig.com/book/436basf/)
 - [刀子精手心的人偶崽崽](https://www.49ig.com/book/436baqr/)
 - [好兄弟暴富后非要跟我结婚](https://www.49ig.com/book/436bapo/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.49ig.com/book/436bake/)
@@ -424,6 +424,7 @@
 - [小狗向导，世界瑰宝！](https://www.49ig.com/book/436b924/)
 - [柯学剧本杀，但恋爱流打法](https://www.49ig.com/book/436b87d/)
 - [李玉灯](https://www.49ig.com/book/436b83c/)
+- [好巧，你也是妹控？[综崩铁]](https://www.49ig.com/book/436b7s4/)
 - [我，剑圣，养生中，勿扰](https://www.49ig.com/book/436b627/)
 - [等我吃腻了再倒闭可以吗](https://www.49ig.com/book/436b4t6/)
 - [盛夏晴浓](https://www.49ig.com/book/436b33q/)

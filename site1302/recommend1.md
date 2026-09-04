@@ -1,7 +1,7 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-04 03:34:47
+更新时间：2026-09-05 03:35:49
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
@@ -121,7 +121,7 @@
 - [起初，我只是想找个冤大头](https://www.revwarny.com/book/3sghm3c/)
 - [摄政王家的咸鱼夫郎](https://www.revwarny.com/book/3sghkq1/)
 - [死遁的亡夫们都回来了](https://www.revwarny.com/book/ceh5lc/)
-- [枕边热吻](https://www.revwarny.com/book/ceh2ed/)
+- [怀了前任大哥的崽后](https://www.revwarny.com/book/ceh2ed/)
 - [沈助理又在隐藏他的超能力](https://www.revwarny.com/book/ceh0li/)
 - [美貌单出，杀穿港娱［八零］](https://www.revwarny.com/book/cegsls/)
 - [假金丝雀深陷修罗场](https://www.revwarny.com/book/cegsk0/)

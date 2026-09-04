@@ -1,13 +1,16 @@
 
 # 电子洗砂机小说网-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-09-04 03:24:53
+更新时间：2026-09-05 03:25:59
 
 电子洗砂机小说网提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
 
 - [电子洗砂机小说网](https://www.dzxishaji.com/)
 
 ## 最新小说
+- [这个替嫁让我来！](https://www.dzxishaji.com/book/70umva9/)
+- [我拿的可是反派剧本](https://www.dzxishaji.com/book/70umv39/)
+- [丧尸王有什么坏心思？](https://www.dzxishaji.com/book/70umuid/)
 - [禁止继承限制级雌君](https://www.dzxishaji.com/book/70umt4v/)
 - [等我吃腻了再倒闭可以吗](https://www.dzxishaji.com/book/70umt4i/)
 - [自知之明](https://www.dzxishaji.com/book/70umt42/)
@@ -34,8 +37,8 @@
 - [开局给李世民盘点安史之乱](https://www.dzxishaji.com/book/70umd0f/)
 - [怪谈小镇游玩指南[无限]](https://www.dzxishaji.com/book/70umc1v/)
 - [离开那个混蛋后](https://www.dzxishaji.com/book/70umb56/)
-- [阿竹与野桃](https://www.dzxishaji.com/book/70um9b9/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.dzxishaji.com/book/70um997/)
+- [渡鬼](https://www.dzxishaji.com/book/70um970/)
 - [我的烧烤摊超美味[美食]](https://www.dzxishaji.com/book/70um94m/)
 - [穿成反派的亡夫后[虫族]](https://www.dzxishaji.com/book/70um802/)
 - [氪成酒厂股东了怎么办](https://www.dzxishaji.com/book/70um7sh/)
@@ -139,7 +142,6 @@
 - [首辅大人怀中娇（重生）](https://www.dzxishaji.com/book/70ukjj4/)
 - [黑莲花在线演我](https://www.dzxishaji.com/book/70ukjev/)
 - [被子同学](https://www.dzxishaji.com/book/70ukjan/)
-- [咸鱼受只想摆烂](https://www.dzxishaji.com/book/70ukj1p/)
 - [若清晨所见之蓝](https://www.dzxishaji.com/book/70ukj0c/)
 - [长公主的六零年代](https://www.dzxishaji.com/book/70ukisn/)
 - [万人迷又被自己巧取豪夺了［快穿］](https://www.dzxishaji.com/book/70ukicl/)
@@ -270,7 +272,6 @@
 - [在立海大玩网球模拟器](https://www.dzxishaji.com/book/70ujun7/)
 - [挚友和我穿越后分了阵营](https://www.dzxishaji.com/book/70ujuma/)
 - [退圈后，我靠职场综艺火爆全网](https://www.dzxishaji.com/book/70ujuhm/)
-- [穿为清冷影后的污点A](https://www.dzxishaji.com/book/70uju9u/)
 - [人在综漫，但崩铁马甲](https://www.dzxishaji.com/book/70uju99/)
 - [异种大食堂[无限]](https://www.dzxishaji.com/book/70uju5u/)
 - [乙骨同学很好欺负](https://www.dzxishaji.com/book/70ujtvl/)
@@ -414,7 +415,6 @@
 - [直播捏玩具被榜一大哥撅了](https://www.dzxishaji.com/book/70ujisi/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.dzxishaji.com/book/70ujiro/)
 - [癫骨](https://www.dzxishaji.com/book/70ujir2/)
-- [在狗血文里躺平[人外]](https://www.dzxishaji.com/book/70uji1a/)
 - [刀子精手心的人偶崽崽](https://www.dzxishaji.com/book/70ujh6k/)
 - [求生游戏：当邪神成为生活玩家后](https://www.dzxishaji.com/book/70ujgdl/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.dzxishaji.com/book/70ujgd8/)
@@ -422,6 +422,7 @@
 - [[足球]小小鸟堂堂来袭](https://www.dzxishaji.com/book/70ujeqa/)
 - [青城玩家明明超强却过分谨慎](https://www.dzxishaji.com/book/70ujder/)
 - [撕毁女配剧本的我被神之子读心了](https://www.dzxishaji.com/book/70ujd03/)
+- [好巧，你也是妹控？[综崩铁]](https://www.dzxishaji.com/book/70ujcqf/)
 - [矩阵干扰](https://www.dzxishaji.com/book/70ujb6r/)
 - [盛夏晴浓](https://www.dzxishaji.com/book/70ujb5i/)
 - [法外狂猫](https://www.dzxishaji.com/book/70ujap5/)

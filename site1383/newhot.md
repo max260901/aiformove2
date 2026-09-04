@@ -1,13 +1,16 @@
 
 # 紫竹原始小说 - 最新最全的小说文学网站
 
-更新时间：2026-09-04 03:23:35
+更新时间：2026-09-05 03:24:43
 
 紫竹原始小说是一个专注于分享最新、最全的小说文学作品的网站。我们致力于为读者带来全新的阅读体验，欢迎访问我们的网站，尽情享受文学的魅力。
 
 - [紫竹原始小说](https://www.cnysxc.com/)
 
 ## 最新小说
+- [节能型社恐靠交友存活打排球](https://www.cnysxc.com/book/8ee0km9/)
+- [渣攻他疯了［快穿］](https://www.cnysxc.com/book/8ee0k2q/)
+- [[足球]番外乐子集](https://www.cnysxc.com/book/8ee0jkv/)
 - [禁止继承限制级雌君](https://www.cnysxc.com/book/8ee0ipu/)
 - [清穿女回来后[天幕]](https://www.cnysxc.com/book/8ee0iph/)
 - [自知之明](https://www.cnysxc.com/book/8ee0ip6/)
@@ -38,7 +41,7 @@
 - [穿书后我娶了反派皇子](https://www.cnysxc.com/book/8edvqgf/)
 - [欺负人是坏文明](https://www.cnysxc.com/book/8edvnji/)
 - [侦探立于百万生命之上](https://www.cnysxc.com/book/8edvn8t/)
-- [阿竹与野桃](https://www.cnysxc.com/book/8edvmuj/)
+- [渡鬼](https://www.cnysxc.com/book/8edvmv2/)
 - [我的烧烤摊超美味[美食]](https://www.cnysxc.com/book/8edvmqg/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.cnysxc.com/book/8edvmoh/)
 - [特殊魅力值，已到账](https://www.cnysxc.com/book/8edvmi5/)
@@ -134,7 +137,6 @@
 - [[清]给太子当姐姐那些年](https://www.cnysxc.com/book/8edue90/)
 - [巨星渡灵师](https://www.cnysxc.com/book/8edudv3/)
 - [首辅大人怀中娇（重生）](https://www.cnysxc.com/book/8edudql/)
-- [咸鱼受只想摆烂](https://www.cnysxc.com/book/8edud9h/)
 - [妖怪崽崽种田日常](https://www.cnysxc.com/book/8edud98/)
 - [我绝不可能是只NPC](https://www.cnysxc.com/book/8edud7n/)
 - [[综武侠]换装之江湖遍地是小号](https://www.cnysxc.com/book/8educu5/)
@@ -248,7 +250,6 @@
 - [和灵异片boss谈恋爱](https://www.cnysxc.com/book/8edtrkj/)
 - [就算是龙傲天也不可以[快穿]](https://www.cnysxc.com/book/8edtrfh/)
 - [我被厉鬼盯上了](https://www.cnysxc.com/book/8edtrbn/)
-- [穿为清冷影后的污点A](https://www.cnysxc.com/book/8edtr8f/)
 - [如何登顶反派第一](https://www.cnysxc.com/book/8edtr8d/)
 - [忍界修罗金屋藏娇了？](https://www.cnysxc.com/book/8edtr5n/)
 - [人在综漫，但崩铁马甲](https://www.cnysxc.com/book/8edtr5m/)
@@ -419,12 +420,12 @@
 - [小狗向导，世界瑰宝！](https://www.cnysxc.com/book/8edtcvt/)
 - [法外狂猫](https://www.cnysxc.com/book/8edtcvc/)
 - [撕毁女配剧本的我被神之子读心了](https://www.cnysxc.com/book/8edtc4j/)
-- [在狗血文里躺平[人外]](https://www.cnysxc.com/book/8edtc1c/)
 - [矩阵干扰](https://www.cnysxc.com/book/8edtbgi/)
 - [和室友他爸恋爱后](https://www.cnysxc.com/book/8edtat8/)
 - [青城玩家明明超强却过分谨慎](https://www.cnysxc.com/book/8edta9u/)
 - [刀子精手心的人偶崽崽](https://www.cnysxc.com/book/8edta7g/)
 - [和港城大小姐先婚后爱了](https://www.cnysxc.com/book/8edt81h/)
+- [好巧，你也是妹控？[综崩铁]](https://www.cnysxc.com/book/8edt7vt/)
 - [人偶游戏](https://www.cnysxc.com/book/8edt7fm/)
 - [盛夏晴浓](https://www.cnysxc.com/book/8edt7an/)
 - [柯学剧本杀，但恋爱流打法](https://www.cnysxc.com/book/8edt72p/)
