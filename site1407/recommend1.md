@@ -1,7 +1,7 @@
 
 # 苏秦家小说网 - 免费在线阅读无弹窗小说
 
-更新时间：2026-09-04 03:37:41
+更新时间：2026-09-05 03:38:43
 
 苏秦家小说网为您提供一个干净、舒适的阅读环境，专注于提供免费且无任何弹窗干扰的小说在线阅读服务。
 
@@ -87,7 +87,7 @@
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.suqinjia.com/book/3av20hk/)
 - [[足球]我的游戏存档成真了？！](https://www.suqinjia.com/book/3av20ep/)
 - [如何正确哄睡暴君](https://www.suqinjia.com/book/3av20a8/)
-- [枕边热吻](https://www.suqinjia.com/book/3av1un0/)
+- [怀了前任大哥的崽后](https://www.suqinjia.com/book/3av1un0/)
 - [摄政王家的咸鱼夫郎](https://www.suqinjia.com/book/3av1ugg/)
 - [让你们无剧本可走（快穿）](https://www.suqinjia.com/book/3av1th1/)
 - [社畜Beta也能被顶A觊觎吗](https://www.suqinjia.com/book/3av1sda/)

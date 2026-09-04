@@ -1,13 +1,16 @@
 
 # 宁波慈绿农垦小说-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-04 03:32:15
+更新时间：2026-09-05 03:33:15
 
 宁波慈绿农垦小说提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
 - [宁波慈绿农垦小说](https://www.nbcxnk.com/)
 
 ## 最新小说
+- [节能型社恐靠交友存活打排球](https://www.nbcxnk.com/book/2ss0t8c/)
+- [渣攻他疯了［快穿］](https://www.nbcxnk.com/book/2ss0smj/)
+- [[足球]番外乐子集](https://www.nbcxnk.com/book/2ss0s7e/)
 - [禁止继承限制级雌君](https://www.nbcxnk.com/book/2ss0rdp/)
 - [清穿女回来后[天幕]](https://www.nbcxnk.com/book/2ss0rdi/)
 - [等我吃腻了再倒闭可以吗](https://www.nbcxnk.com/book/2ss0rdh/)
@@ -38,7 +41,7 @@
 - [穿书后我娶了反派皇子](https://www.nbcxnk.com/book/2ss032r/)
 - [欺负人是坏文明](https://www.nbcxnk.com/book/2ss0079/)
 - [侦探立于百万生命之上](https://www.nbcxnk.com/book/2srvvr4/)
-- [阿竹与野桃](https://www.nbcxnk.com/book/2srvvja/)
+- [渡鬼](https://www.nbcxnk.com/book/2srvvjg/)
 - [我的烧烤摊超美味[美食]](https://www.nbcxnk.com/book/2srvvgi/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.nbcxnk.com/book/2srvvda/)
 - [特殊魅力值，已到账](https://www.nbcxnk.com/book/2srvv4b/)
@@ -123,7 +126,6 @@
 - [微臣怜惜公主](https://www.nbcxnk.com/book/2srupn1/)
 - [当小狗炮灰分手后](https://www.nbcxnk.com/book/2srupac/)
 - [[综英美]猫女士是一只猫](https://www.nbcxnk.com/book/2srup2o/)
-- [咸鱼受只想摆烂](https://www.nbcxnk.com/book/2sruojf/)
 - [首辅大人怀中娇（重生）](https://www.nbcxnk.com/book/2sruogg/)
 - [被子同学](https://www.nbcxnk.com/book/2sruoep/)
 - [我绝不可能是只NPC](https://www.nbcxnk.com/book/2srunq4/)
@@ -261,7 +263,6 @@
 - [揍敌客大小姐好难攻略](https://www.nbcxnk.com/book/2sru2ei/)
 - [假如樱是砂忍](https://www.nbcxnk.com/book/2sru26o/)
 - [想听越前君向我告白](https://www.nbcxnk.com/book/2sru26l/)
-- [穿为清冷影后的污点A](https://www.nbcxnk.com/book/2sru23n/)
 - [就算是龙傲天也不可以[快穿]](https://www.nbcxnk.com/book/2sru23c/)
 - [娇气包在无限游戏被坏男人骗](https://www.nbcxnk.com/book/2sru20a/)
 - [我被厉鬼盯上了](https://www.nbcxnk.com/book/2sru1ub/)
@@ -418,7 +419,6 @@
 - [幼崽假少爷选择回归寒门](https://www.nbcxnk.com/book/2srtliq/)
 - [国舅太难追了](https://www.nbcxnk.com/book/2srtlih/)
 - [我最讨厌打球了！](https://www.nbcxnk.com/book/2srtlhh/)
-- [在狗血文里躺平[人外]](https://www.nbcxnk.com/book/2srtkiq/)
 - [青城玩家明明超强却过分谨慎](https://www.nbcxnk.com/book/2srtkhr/)
 - [和室友他爸恋爱后](https://www.nbcxnk.com/book/2srtka7/)
 - [矩阵干扰](https://www.nbcxnk.com/book/2srtjti/)
@@ -428,6 +428,7 @@
 - [人偶游戏](https://www.nbcxnk.com/book/2srthb5/)
 - [盛夏晴浓](https://www.nbcxnk.com/book/2srtgor/)
 - [和港城大小姐先婚后爱了](https://www.nbcxnk.com/book/2srtg3o/)
+- [好巧，你也是妹控？[综崩铁]](https://www.nbcxnk.com/book/2srtful/)
 - [好兄弟暴富后非要跟我结婚](https://www.nbcxnk.com/book/2srtf6q/)
 - [我，剑圣，养生中，勿扰](https://www.nbcxnk.com/book/2srte32/)
 - [关于我虚构了一个男友这件事](https://www.nbcxnk.com/book/2srtdt8/)

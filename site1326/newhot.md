@@ -1,7 +1,7 @@
 
 # 欣怡书屋 - 免费最新章节小说阅读,全本无弹窗
 
-更新时间：2026-09-04 03:46:03
+更新时间：2026-09-05 03:47:07
 
 欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。
 
@@ -25,8 +25,8 @@
 - [[综英美]让我统治哥谭！！！](https://www.znenghs.com/book/5n2k93q/)
 - [失而复得的白月光[快穿]](https://www.znenghs.com/book/5n2k93l/)
 - [求求你们别吃了](https://www.znenghs.com/book/5n2k93a/)
-- [阿竹与野桃](https://www.znenghs.com/book/5n2k933/)
 - [暴君偏头痛](https://www.znenghs.com/book/5n2k930/)
+- [渡鬼](https://www.znenghs.com/book/5n2k927/)
 - [我的烧烤摊超美味[美食]](https://www.znenghs.com/book/5n2k923/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.znenghs.com/book/5n2k8vh/)
 - [[封神]圣人生欲](https://www.znenghs.com/book/5n2k8uq/)
@@ -251,7 +251,6 @@
 - [小傻子［无限］](https://www.znenghs.com/book/i9thee/)
 - [娇气包在无限游戏被坏男人骗](https://www.znenghs.com/book/i9th8t/)
 - [蜜蜂膝盖银子弹](https://www.znenghs.com/book/i9th8m/)
-- [咸鱼受只想摆烂](https://www.znenghs.com/book/i9th76/)
 - [假如樱是砂忍](https://www.znenghs.com/book/i9th44/)
 - [变成龙傲天的心上猫后](https://www.znenghs.com/book/i9th2e/)
 - [反派的病弱白月光重生了](https://www.znenghs.com/book/i9tgtb/)
@@ -408,7 +407,6 @@
 - [作家与读者](https://www.znenghs.com/book/i9t16t/)
 - [当了卧底的我发现遍地熟人](https://www.znenghs.com/book/i9t16l/)
 - [直播捏玩具被榜一大哥撅了](https://www.znenghs.com/book/i9t13h/)
-- [在狗血文里躺平[人外]](https://www.znenghs.com/book/i9t0is/)
 - [你也没死？](https://www.znenghs.com/book/i9suva/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.znenghs.com/book/i9su5i/)
 - [这谁的沙雕二次元心声！](https://www.znenghs.com/book/i9sthj/)

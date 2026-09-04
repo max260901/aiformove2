@@ -1,7 +1,7 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-09-04 03:32:57
+更新时间：2026-09-05 03:33:59
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。
 
@@ -19,7 +19,7 @@
 - [柯学剧本杀，但恋爱流打法](https://www.panyuplastic.com/book/6h8ufuq/)
 - [等我吃腻了再倒闭可以吗](https://www.panyuplastic.com/book/6h8ufup/)
 - [小猫商店，喜欢您来！](https://www.panyuplastic.com/book/6h8ufun/)
-- [阿竹与野桃](https://www.panyuplastic.com/book/6h8ufua/)
+- [渡鬼](https://www.panyuplastic.com/book/6h8ufuh/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.panyuplastic.com/book/6h8ufu8/)
 - [全世界名为爱的恶意](https://www.panyuplastic.com/book/6h8ufu7/)
 - [被豪门封建长兄娇养了](https://www.panyuplastic.com/book/6h8ufu1/)
@@ -47,7 +47,6 @@
 - [暴君偏头痛](https://www.panyuplastic.com/book/6h8ufp8/)
 - [你，后室管理员](https://www.panyuplastic.com/book/6h8ufp4/)
 - [人偶游戏](https://www.panyuplastic.com/book/6h8ufor/)
-- [穿为清冷影后的污点A](https://www.panyuplastic.com/book/6h8ufof/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.panyuplastic.com/book/6h8ufoa/)
 - [被鬼怪宠爱的漂亮书生](https://www.panyuplastic.com/book/6h8ufni/)
 - [同时扮演贵族学院F4和平民校花](https://www.panyuplastic.com/book/6h8ufng/)
@@ -68,6 +67,7 @@
 - [京秋婚约](https://www.panyuplastic.com/book/6h8ufkb/)
 - [直男咒术师的限制级游戏](https://www.panyuplastic.com/book/6h8ufk9/)
 - [求生游戏：当邪神成为生活玩家后](https://www.panyuplastic.com/book/6h8ufk7/)
+- [好巧，你也是妹控？[综崩铁]](https://www.panyuplastic.com/book/6h8uec8/)
 - [大美人怀了enigma上司的崽](https://www.panyuplastic.com/book/6h8uebv/)
 - [高调装神，猥琐发育](https://www.panyuplastic.com/book/6h8uebr/)
 - [纯爱宇智波基本恋爱法](https://www.panyuplastic.com/book/6h8uebp/)
@@ -87,7 +87,6 @@
 - [逝水](https://www.panyuplastic.com/book/6h8t6d2/)
 - [和前女友的心上人he了](https://www.panyuplastic.com/book/6h8t6ct/)
 - [多梦你一会儿](https://www.panyuplastic.com/book/6h8t6cr/)
-- [咸鱼受只想摆烂](https://www.panyuplastic.com/book/6h8t6cl/)
 - [我有嘉宾](https://www.panyuplastic.com/book/6h8t6cf/)
 - [[足球]罗蜜第一志愿](https://www.panyuplastic.com/book/6h8t6c2/)
 - [这谁的沙雕二次元心声！](https://www.panyuplastic.com/book/6h8t68h/)
@@ -101,7 +100,6 @@
 - [沈助理又在隐藏他的超能力](https://www.panyuplastic.com/book/6h8t5n3/)
 - [在立海大玩网球模拟器](https://www.panyuplastic.com/book/6h8t5j1/)
 - [当了卧底的我发现遍地熟人](https://www.panyuplastic.com/book/6h8t5j0/)
-- [在狗血文里躺平[人外]](https://www.panyuplastic.com/book/6h8t5ik/)
 - [[综英美]小玉有话说](https://www.panyuplastic.com/book/6h8t5b5/)
 - [迫害系偶像排球部出道中](https://www.panyuplastic.com/book/6h8t54t/)
 - [暗堕本丸，在线直播](https://www.panyuplastic.com/book/6h8t545/)

@@ -1,13 +1,16 @@
 
 # 精英文学 - 书友最值得收藏的小说免费阅读网
 
-更新时间：2026-09-04 03:41:46
+更新时间：2026-09-05 03:42:50
 
 精英文学为您提供一个干净舒适的阅读环境，作为书友最值得收藏的小说免费阅读网之一，我们致力于打造无广告干扰的最佳在线阅读体验。
 
 - [精英文学](https://www.xcposji.com/)
 
 ## 最新小说
+- [这个替嫁让我来！](https://www.xcposji.com/book/jnmtrj/)
+- [我拿的可是反派剧本](https://www.xcposji.com/book/jnmtlq/)
+- [丧尸王有什么坏心思？](https://www.xcposji.com/book/jnmt5r/)
 - [禁止继承限制级雌君](https://www.xcposji.com/book/jnmroj/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.xcposji.com/book/jnmro0/)
 - [自知之明](https://www.xcposji.com/book/jnmrns/)
@@ -34,9 +37,9 @@
 - [开局给李世民盘点安史之乱](https://www.xcposji.com/book/jnmbkf/)
 - [怪谈小镇游玩指南[无限]](https://www.xcposji.com/book/jnmajq/)
 - [离开那个混蛋后](https://www.xcposji.com/book/jnm9sn/)
-- [阿竹与野桃](https://www.xcposji.com/book/jnm803/)
 - [我的烧烤摊超美味[美食]](https://www.xcposji.com/book/jnm7v8/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xcposji.com/book/jnm7v4/)
+- [渡鬼](https://www.xcposji.com/book/jnm7p1/)
 - [穿成反派的亡夫后[虫族]](https://www.xcposji.com/book/jnm6n8/)
 - [氪成酒厂股东了怎么办](https://www.xcposji.com/book/jnm6fp/)
 - [衍生穿越合订本](https://www.xcposji.com/book/jnm6cj/)
@@ -132,7 +135,6 @@
 - [长公主的六零年代](https://www.xcposji.com/book/jnkk1j/)
 - [寻真](https://www.xcposji.com/book/jnkjqv/)
 - [陛下今天怼人了吗［快穿］](https://www.xcposji.com/book/jnkjjk/)
-- [咸鱼受只想摆烂](https://www.xcposji.com/book/jnkj1p/)
 - [[清]给太子当姐姐那些年](https://www.xcposji.com/book/jnkiu7/)
 - [妖怪崽崽种田日常](https://www.xcposji.com/book/jnkilc/)
 - [灰墙之下](https://www.xcposji.com/book/jnkidg/)
@@ -265,7 +267,6 @@
 - [炮灰的我该如何上位？](https://www.xcposji.com/book/jnjthn/)
 - [如何登顶反派第一](https://www.xcposji.com/book/jnjteu/)
 - [我被厉鬼盯上了](https://www.xcposji.com/book/jnjtep/)
-- [穿为清冷影后的污点A](https://www.xcposji.com/book/jnjtai/)
 - [野比春子穿越事件簿](https://www.xcposji.com/book/jnjt8e/)
 - [在立海大玩网球模拟器](https://www.xcposji.com/book/jnjt78/)
 - [小傻子［无限］](https://www.xcposji.com/book/jnjt54/)
@@ -418,8 +419,8 @@
 - [幼崽假少爷选择回归寒门](https://www.xcposji.com/book/jnjgr6/)
 - [刀子精手心的人偶崽崽](https://www.xcposji.com/book/jnjghl/)
 - [求生游戏：当邪神成为生活玩家后](https://www.xcposji.com/book/jnjgeq/)
-- [在狗血文里躺平[人外]](https://www.xcposji.com/book/jnjf1m/)
 - [[足球]小小鸟堂堂来袭](https://www.xcposji.com/book/jnjdmg/)
+- [好巧，你也是妹控？[综崩铁]](https://www.xcposji.com/book/jnjdi5/)
 - [撕毁女配剧本的我被神之子读心了](https://www.xcposji.com/book/jnjcll/)
 - [青城玩家明明超强却过分谨慎](https://www.xcposji.com/book/jnjbgn/)
 - [矩阵干扰](https://www.xcposji.com/book/jnjaka/)

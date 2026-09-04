@@ -1,7 +1,7 @@
 
 # 燃文故事小说网 - 无弹窗全本小说免费阅读
 
-更新时间：2026-09-04 03:26:27
+更新时间：2026-09-05 03:27:31
 
 燃文故事小说网提供无弹窗干扰的小说阅读体验，支持全本小说在线免费阅读。
 
@@ -104,7 +104,7 @@
 - [我骗家里的钱养你啊](https://www.gushi687.com/book/63qt1pp/)
 - [九零首富的替嫁小媳妇](https://www.gushi687.com/book/63qt1kk/)
 - [死遁的亡夫们都回来了](https://www.gushi687.com/book/63qt0ni/)
-- [枕边热吻](https://www.gushi687.com/book/63qt0ho/)
+- [怀了前任大哥的崽后](https://www.gushi687.com/book/63qt0ho/)
 - [在民俗惊悚片被诸神庇护](https://www.gushi687.com/book/63qson5/)
 - [沈助理又在隐藏他的超能力](https://www.gushi687.com/book/63qsnnl/)
 - [死对头又在挑衅我](https://www.gushi687.com/book/63qsnls/)

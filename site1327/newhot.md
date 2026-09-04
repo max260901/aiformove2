@@ -1,7 +1,7 @@
 
 # 家家福顶点书包 - 免费TXT小说下载, 手机电子书资源
 
-更新时间：2026-09-04 03:27:49
+更新时间：2026-09-05 03:28:51
 
 家家福顶点书包为您提供最新最全的小说资源，包括但不限于txt电子书、手机txt小说下载等服务，所有内容均支持全本免费下载，是小说爱好者的理想选择。
 
@@ -22,11 +22,11 @@
 - [禁止继承限制级雌君](https://www.jjfbaijia.com/book/8hhvks9/)
 - [从异世界穿回来后](https://www.jjfbaijia.com/book/8hhvkpt/)
 - [[综英美]让我统治哥谭！！！](https://www.jjfbaijia.com/book/8hhvkpo/)
-- [阿竹与野桃](https://www.jjfbaijia.com/book/8hhvkpg/)
 - [躲避原书剧情五年后](https://www.jjfbaijia.com/book/8hhvko9/)
 - [我的烧烤摊超美味[美食]](https://www.jjfbaijia.com/book/8hhvknu/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.jjfbaijia.com/book/8hhvkns/)
 - [暴君偏头痛](https://www.jjfbaijia.com/book/8hhvknq/)
+- [渡鬼](https://www.jjfbaijia.com/book/8hhvknh/)
 - [青城玩家明明超强却过分谨慎](https://www.jjfbaijia.com/book/8hhvkn7/)
 - [[封神]圣人生欲](https://www.jjfbaijia.com/book/8hhvkmp/)
 - [你，后室管理员](https://www.jjfbaijia.com/book/8hhvkmd/)
@@ -226,7 +226,6 @@
 - [暗恋你](https://www.jjfbaijia.com/book/rbep1d/)
 - [反派的病弱白月光重生了](https://www.jjfbaijia.com/book/rbeohb/)
 - [一见倾心[快穿]](https://www.jjfbaijia.com/book/rbeoac/)
-- [咸鱼受只想摆烂](https://www.jjfbaijia.com/book/rbeo8n/)
 - [直播表现美强惨的我无欲无求](https://www.jjfbaijia.com/book/rbeo1l/)
 - [我的餐馆通历史诸朝](https://www.jjfbaijia.com/book/rbeo1a/)
 - [再喜欢我也得死[快穿]](https://www.jjfbaijia.com/book/rbentj/)
@@ -409,7 +408,6 @@
 - [无能的丈夫们](https://www.jjfbaijia.com/book/rbe52m/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.jjfbaijia.com/book/rbe43i/)
 - [你也没死？](https://www.jjfbaijia.com/book/rbe3ct/)
-- [在狗血文里躺平[人外]](https://www.jjfbaijia.com/book/rbe2c1/)
 - [这谁的沙雕二次元心声！](https://www.jjfbaijia.com/book/rbe160/)
 - [青空来信](https://www.jjfbaijia.com/book/rbdvfb/)
 - [老公是松散生命体](https://www.jjfbaijia.com/book/rbdut6/)

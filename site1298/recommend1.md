@@ -1,7 +1,7 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-09-04 03:30:16
+更新时间：2026-09-05 03:31:15
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
@@ -122,7 +122,7 @@
 - [摄政王家的咸鱼夫郎](https://www.kmjike.com/book/4mls0n2/)
 - [死遁的亡夫们都回来了](https://www.kmjike.com/book/f28k6o/)
 - [沈助理又在隐藏他的超能力](https://www.kmjike.com/book/f28hep/)
-- [枕边热吻](https://www.kmjike.com/book/f28gfp/)
+- [怀了前任大哥的崽后](https://www.kmjike.com/book/f28gfp/)
 - [死对头又在挑衅我](https://www.kmjike.com/book/f28ahv/)
 - [假金丝雀深陷修罗场](https://www.kmjike.com/book/f28afg/)
 - [美貌单出，杀穿港娱［八零］](https://www.kmjike.com/book/f28a3e/)

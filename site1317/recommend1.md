@@ -1,7 +1,7 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-04 03:46:21
+更新时间：2026-09-05 03:47:25
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。
 
@@ -122,7 +122,7 @@
 - [摄政王家的咸鱼夫郎](https://www.zuopin666.com/book/8bebuk8/)
 - [死遁的亡夫们都回来了](https://www.zuopin666.com/book/qntcpn/)
 - [沈助理又在隐藏他的超能力](https://www.zuopin666.com/book/qntaf1/)
-- [枕边热吻](https://www.zuopin666.com/book/qnt9ie/)
+- [怀了前任大哥的崽后](https://www.zuopin666.com/book/qnt9ie/)
 - [成为养成系练习生后](https://www.zuopin666.com/book/qnt4e5/)
 - [死对头又在挑衅我](https://www.zuopin666.com/book/qnt48r/)
 - [假金丝雀深陷修罗场](https://www.zuopin666.com/book/qnt3lj/)

@@ -1,7 +1,7 @@
 
 # 故事来书吧-免费阅读全网最新最热小说
 
-更新时间：2026-09-04 03:26:43
+更新时间：2026-09-05 03:27:46
 
 故事来书吧提供海量免费无弹窗小说在线阅读服务，涵盖言情、都市、玄幻、武侠等多种类型，让你随时随地享受阅读的乐趣。
 
@@ -30,9 +30,9 @@
 - [渣攻他疯了［快穿］](https://www.gushi688.com/book/51213fu/)
 - [[足球]番外乐子集](https://www.gushi688.com/book/51213d8/)
 - [我超凶的！[快穿]](https://www.gushi688.com/book/51211hf/)
-- [阿竹与野桃](https://www.gushi688.com/book/51210pb/)
 - [我比反派先崩坏[快穿]](https://www.gushi688.com/book/51210ob/)
 - [我的烧烤摊超美味[美食]](https://www.gushi688.com/book/51210o3/)
+- [渡鬼](https://www.gushi688.com/book/51210nq/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.gushi688.com/book/51210mk/)
 - [cos温迪后玩到真崩铁了](https://www.gushi688.com/book/5120s9q/)
 - [从异世界穿回来后](https://www.gushi688.com/book/5120s4f/)
@@ -132,7 +132,6 @@
 - [堕魔](https://www.gushi688.com/book/511v07b/)
 - [在无限世界当晕倒羊](https://www.gushi688.com/book/511uvor/)
 - [东映排球部](https://www.gushi688.com/book/511uvj9/)
-- [咸鱼受只想摆烂](https://www.gushi688.com/book/511uvcl/)
 - [巨星渡灵师](https://www.gushi688.com/book/511uvah/)
 - [寻真](https://www.gushi688.com/book/511uv3j/)
 - [[清]给太子当姐姐那些年](https://www.gushi688.com/book/511uv37/)
@@ -423,13 +422,13 @@
 - [小狗向导，世界瑰宝！](https://www.gushi688.com/book/511tsrk/)
 - [司寝宫女](https://www.gushi688.com/book/511tsei/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.gushi688.com/book/511ts1m/)
-- [在狗血文里躺平[人外]](https://www.gushi688.com/book/511trmn/)
 - [求生游戏：当邪神成为生活玩家后](https://www.gushi688.com/book/511tp7m/)
 - [刀子精手心的人偶崽崽](https://www.gushi688.com/book/511to41/)
 - [我最讨厌打球了！](https://www.gushi688.com/book/511tn9h/)
 - [盛夏晴浓](https://www.gushi688.com/book/511tjej/)
 - [幼崽假少爷选择回归寒门](https://www.gushi688.com/book/511tijp/)
 - [[足球]小小鸟堂堂来袭](https://www.gushi688.com/book/511thuu/)
+- [好巧，你也是妹控？[综崩铁]](https://www.gushi688.com/book/511teot/)
 - [青城玩家明明超强却过分谨慎](https://www.gushi688.com/book/511ted7/)
 - [侯府打工人](https://www.gushi688.com/book/511tdja/)
 - [暴君偏头痛](https://www.gushi688.com/book/511tdaa/)

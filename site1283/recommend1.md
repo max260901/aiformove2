@@ -1,7 +1,7 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-04 03:23:17
+更新时间：2026-09-05 03:24:25
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
@@ -122,7 +122,7 @@
 - [摄政王家的咸鱼夫郎](https://www.cialisgs.com/book/89rqile/)
 - [死遁的亡夫们都回来了](https://www.cialisgs.com/book/qirl58/)
 - [沈助理又在隐藏他的超能力](https://www.cialisgs.com/book/qirhaa/)
-- [枕边热吻](https://www.cialisgs.com/book/qirg5k/)
+- [怀了前任大哥的崽后](https://www.cialisgs.com/book/qirg5k/)
 - [成为养成系练习生后](https://www.cialisgs.com/book/qireut/)
 - [假金丝雀深陷修罗场](https://www.cialisgs.com/book/qires6/)
 - [我有一座地下城](https://www.cialisgs.com/book/qirama/)

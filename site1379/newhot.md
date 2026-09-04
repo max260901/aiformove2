@@ -1,13 +1,16 @@
 
 # 云南野人山野小说网 - 创意小说与文学作品分享平台
 
-更新时间：2026-09-04 03:43:51
+更新时间：2026-09-05 03:44:56
 
 欢迎来到云南野人山野小说网 - 专注于创意小说和文学作品分享的在线平台。探索精选的小说系列及文学佳作，加入我们，与众多才华横溢的作者交流心得，共同创造美好的阅读旅程。
 
 - [云南野人山野小说网](https://www.ynyrsy.com/)
 
 ## 最新小说
+- [这个替嫁让我来！](https://www.ynyrsy.com/book/dfe7p1/)
+- [我拿的可是反派剧本](https://www.ynyrsy.com/book/dfe7if/)
+- [丧尸王有什么坏心思？](https://www.ynyrsy.com/book/dfe734/)
 - [清穿女回来后[天幕]](https://www.ynyrsy.com/book/dfe5lg/)
 - [网球带给齐木的灾难](https://www.ynyrsy.com/book/dfe5l6/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.ynyrsy.com/book/dfe5l5/)
@@ -34,7 +37,7 @@
 - [开局给李世民盘点安史之乱](https://www.ynyrsy.com/book/dfdlf3/)
 - [怪谈小镇游玩指南[无限]](https://www.ynyrsy.com/book/dfdkft/)
 - [离开那个混蛋后](https://www.ynyrsy.com/book/dfdjna/)
-- [阿竹与野桃](https://www.ynyrsy.com/book/dfdhr3/)
+- [渡鬼](https://www.ynyrsy.com/book/dfdhn8/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.ynyrsy.com/book/dfdhmj/)
 - [我的烧烤摊超美味[美食]](https://www.ynyrsy.com/book/dfdhkb/)
 - [穿成反派的亡夫后[虫族]](https://www.ynyrsy.com/book/dfdgit/)
@@ -133,7 +136,6 @@
 - [被子同学](https://www.ynyrsy.com/book/dfbsvc/)
 - [歪剧情我是专业的[快穿]](https://www.ynyrsy.com/book/dfbsjg/)
 - [黑莲花在线演我](https://www.ynyrsy.com/book/dfbsi9/)
-- [咸鱼受只想摆烂](https://www.ynyrsy.com/book/dfbscd/)
 - [寻真](https://www.ynyrsy.com/book/dfbsb3/)
 - [若清晨所见之蓝](https://www.ynyrsy.com/book/dfbs6u/)
 - [妖怪崽崽种田日常](https://www.ynyrsy.com/book/dfbs4p/)
@@ -263,7 +265,6 @@
 - [绝世美人靠脸躺赢[快穿]](https://www.ynyrsy.com/book/dfb86t/)
 - [恶毒女配是绝色美人[快穿]](https://www.ynyrsy.com/book/dfb85k/)
 - [娇气包在无限游戏被坏男人骗](https://www.ynyrsy.com/book/dfb82p/)
-- [穿为清冷影后的污点A](https://www.ynyrsy.com/book/dfb814/)
 - [野比春子穿越事件簿](https://www.ynyrsy.com/book/dfb7je/)
 - [人在综漫，但崩铁马甲](https://www.ynyrsy.com/book/dfb7ho/)
 - [当魔修反派穿成治愈系[穿书]](https://www.ynyrsy.com/book/dfb761/)
@@ -416,11 +417,11 @@
 - [让我再吃一口](https://www.ynyrsy.com/book/dfar19/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.ynyrsy.com/book/dfaqdl/)
 - [刀子精手心的人偶崽崽](https://www.ynyrsy.com/book/dfaq4i/)
-- [在狗血文里躺平[人外]](https://www.ynyrsy.com/book/dfapaf/)
 - [求生游戏：当邪神成为生活玩家后](https://www.ynyrsy.com/book/dfap01/)
 - [幼崽假少爷选择回归寒门](https://www.ynyrsy.com/book/dfao2f/)
 - [撕毁女配剧本的我被神之子读心了](https://www.ynyrsy.com/book/dfanrk/)
 - [[足球]小小鸟堂堂来袭](https://www.ynyrsy.com/book/dfamv4/)
+- [好巧，你也是妹控？[综崩铁]](https://www.ynyrsy.com/book/dfamur/)
 - [青城玩家明明超强却过分谨慎](https://www.ynyrsy.com/book/dfamij/)
 - [矩阵干扰](https://www.ynyrsy.com/book/dfakn9/)
 - [法外狂猫](https://www.ynyrsy.com/book/dfak0o/)
