@@ -1,7 +1,7 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-09-04 03:28:07
+更新时间：2026-09-05 03:29:09
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。
 
@@ -106,7 +106,7 @@
 - [摄政王家的咸鱼夫郎](https://www.jxbfsz.com/book/29hvic0/)
 - [我与龙傲天寿命共享](https://www.jxbfsz.com/book/29hvgeq/)
 - [如何正确哄睡暴君](https://www.jxbfsz.com/book/29hvemd/)
-- [枕边热吻](https://www.jxbfsz.com/book/29hv8q1/)
+- [怀了前任大哥的崽后](https://www.jxbfsz.com/book/29hv8q1/)
 - [九零首富的替嫁小媳妇](https://www.jxbfsz.com/book/29hv7co/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.jxbfsz.com/book/29hv5o7/)
 - [被天使之王骗婚后[诡秘之主]](https://www.jxbfsz.com/book/29hv2kk/)

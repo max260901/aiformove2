@@ -1,7 +1,7 @@
 
 # 书城读书网_免费小说在线阅读|无弹窗广告
 
-更新时间：2026-09-04 03:36:07
+更新时间：2026-09-05 03:37:10
 
 书城读书网是最热门的免费小说网站，提供包括玄幻、都市、言情等多种类型的小说在线阅读服务。这里不仅有最新章节的实时更新，还有全面的小说排行榜，让您轻松找到喜欢的作品。阅读体验极佳，全程无弹窗广告干扰，值得收藏！
 
@@ -100,7 +100,7 @@
 - [让你们无剧本可走（快穿）](https://www.shucheng168.com/book/47fn7ug/)
 - [摄政王家的咸鱼夫郎](https://www.shucheng168.com/book/47fn6s4/)
 - [如何正确哄睡暴君](https://www.shucheng168.com/book/47fn5j0/)
-- [枕边热吻](https://www.shucheng168.com/book/47fmvlp/)
+- [怀了前任大哥的崽后](https://www.shucheng168.com/book/47fmvlp/)
 - [我骗家里的钱养你啊](https://www.shucheng168.com/book/47fmuuq/)
 - [九零首富的替嫁小媳妇](https://www.shucheng168.com/book/47fmugt/)
 - [死遁的亡夫们都回来了](https://www.shucheng168.com/book/47fmtom/)

@@ -1,7 +1,7 @@
 
 # 思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-04 03:21:06
+更新时间：2026-09-05 03:22:14
 
 思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。
 
@@ -21,8 +21,8 @@
 - [清穿女回来后[天幕]](https://www.968577.com/book/1b28mgd/)
 - [我骗家里的钱养你啊](https://www.968577.com/book/1b28mgc/)
 - [青城玩家明明超强却过分谨慎](https://www.968577.com/book/1b28mfc/)
-- [阿竹与野桃](https://www.968577.com/book/1b28mf4/)
 - [我的烧烤摊超美味[美食]](https://www.968577.com/book/1b28mem/)
+- [渡鬼](https://www.968577.com/book/1b28me9/)
 - [[综英美]让我统治哥谭！！！](https://www.968577.com/book/1b28me6/)
 - [暴君偏头痛](https://www.968577.com/book/1b28me1/)
 - [躲避原书剧情五年后](https://www.968577.com/book/1b28mbs/)
@@ -247,7 +247,6 @@
 - [反派的病弱白月光重生了](https://www.968577.com/book/49sd98/)
 - [父皇，我是gay](https://www.968577.com/book/49sd87/)
 - [变成龙傲天的心上猫后](https://www.968577.com/book/49sd0t/)
-- [咸鱼受只想摆烂](https://www.968577.com/book/49scug/)
 - [一见倾心[快穿]](https://www.968577.com/book/49scng/)
 - [摆烂后我成了邪神学院大佬](https://www.968577.com/book/49sclm/)
 - [人外收集录［快穿］](https://www.968577.com/book/49scam/)
@@ -408,7 +407,6 @@
 - [当了卧底的我发现遍地熟人](https://www.968577.com/book/49rt0p/)
 - [隔壁班的松田君](https://www.968577.com/book/49rsrb/)
 - [虫族治愈师，但恐虫](https://www.968577.com/book/49rsmg/)
-- [在狗血文里躺平[人外]](https://www.968577.com/book/49rrfp/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.968577.com/book/49rqru/)
 - [你也没死？](https://www.968577.com/book/49rnpe/)
 - [青空来信](https://www.968577.com/book/49rmu1/)

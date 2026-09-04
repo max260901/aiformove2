@@ -1,7 +1,7 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-04 03:34:47
+更新时间：2026-09-05 03:35:49
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
@@ -23,11 +23,11 @@
 - [[综英美]让我统治哥谭！！！](https://www.revwarny.com/book/3sgl7q2/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.revwarny.com/book/3sgl7p5/)
 - [青城玩家明明超强却过分谨慎](https://www.revwarny.com/book/3sgl7ov/)
+- [渡鬼](https://www.revwarny.com/book/3sgl7ok/)
 - [暴君偏头痛](https://www.revwarny.com/book/3sgl7nk/)
 - [躲避原书剧情五年后](https://www.revwarny.com/book/3sgl7ni/)
 - [失而复得的白月光[快穿]](https://www.revwarny.com/book/3sgl7ne/)
 - [我的烧烤摊超美味[美食]](https://www.revwarny.com/book/3sgl7m6/)
-- [阿竹与野桃](https://www.revwarny.com/book/3sgl7ls/)
 - [星际团宠小人鱼](https://www.revwarny.com/book/3sgl7kn/)
 - [[封神]圣人生欲](https://www.revwarny.com/book/3sgl7k8/)
 - [你，后室管理员](https://www.revwarny.com/book/3sgl7j5/)
@@ -230,7 +230,6 @@
 - [骄纵漂亮万人嫌被觊觎后［快穿］](https://www.revwarny.com/book/cegtsj/)
 - [诡异书店打工实录](https://www.revwarny.com/book/cegtjp/)
 - [作为死对头的男朋友](https://www.revwarny.com/book/cegtgh/)
-- [咸鱼受只想摆烂](https://www.revwarny.com/book/cegtf0/)
 - [吃瓜也能整顿豪门？](https://www.revwarny.com/book/cegten/)
 - [清穿纯妃养娃日常](https://www.revwarny.com/book/cegtdi/)
 - [我的爸爸不可能叛变](https://www.revwarny.com/book/cegtb2/)
@@ -410,7 +409,6 @@
 - [吐槽役审神者会爆改幕后大boss吗](https://www.revwarny.com/book/ceg9o4/)
 - [当了卧底的我发现遍地熟人](https://www.revwarny.com/book/ceg9dj/)
 - [你也没死？](https://www.revwarny.com/book/ceg8fr/)
-- [在狗血文里躺平[人外]](https://www.revwarny.com/book/ceg75a/)
 - [老公是松散生命体](https://www.revwarny.com/book/ceg48f/)
 - [青空来信](https://www.revwarny.com/book/ceg43v/)
 - [这谁的沙雕二次元心声！](https://www.revwarny.com/book/ceg3rf/)

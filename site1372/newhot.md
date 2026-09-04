@@ -1,7 +1,7 @@
 
 # 落秋文学网 - 免费全本小说阅读,最新章节更新,无弹窗广告
 
-更新时间：2026-09-04 03:40:13
+更新时间：2026-09-05 03:41:16
 
 落秋文学网提供最快最新的网络小说更新服务，推荐最好看的网络小说排行榜。全站支持无弹窗广告阅读体验，全本小说均可免费在线阅读。
 
@@ -31,8 +31,8 @@
 - [[足球]番外乐子集](https://www.wenxue868.com/book/rlcdkt/)
 - [我超凶的！[快穿]](https://www.wenxue868.com/book/rlcbqd/)
 - [我比反派先崩坏[快穿]](https://www.wenxue868.com/book/rlcavl/)
+- [渡鬼](https://www.wenxue868.com/book/rlcan8/)
 - [我的烧烤摊超美味[美食]](https://www.wenxue868.com/book/rlcamj/)
-- [阿竹与野桃](https://www.wenxue868.com/book/rlcal9/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wenxue868.com/book/rlcaks/)
 - [cos温迪后玩到真崩铁了](https://www.wenxue868.com/book/rlc6h0/)
 - [从异世界穿回来后](https://www.wenxue868.com/book/rlc6b6/)
@@ -137,7 +137,6 @@
 - [妖怪崽崽种田日常](https://www.wenxue868.com/book/rla9b3/)
 - [逝水](https://www.wenxue868.com/book/rla9ad/)
 - [[综崩铁]谁家小鸟掉冥河了](https://www.wenxue868.com/book/rla98d/)
-- [咸鱼受只想摆烂](https://www.wenxue868.com/book/rla96j/)
 - [你也没死？](https://www.wenxue868.com/book/rla8uv/)
 - [可怜的天然呆直男[快穿]](https://www.wenxue868.com/book/rla8sf/)
 - [巨星渡灵师](https://www.wenxue868.com/book/rla8qs/)
@@ -422,7 +421,6 @@
 - [在重男兄弟间夹缝求生](https://www.wenxue868.com/book/rl96pt/)
 - [失忆后，和五条激情互演](https://www.wenxue868.com/book/rl96pm/)
 - [我靠玛丽苏系统伪装神女](https://www.wenxue868.com/book/rl96m9/)
-- [在狗血文里躺平[人外]](https://www.wenxue868.com/book/rl957q/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.wenxue868.com/book/rl94l7/)
 - [求生游戏：当邪神成为生活玩家后](https://www.wenxue868.com/book/rl92lo/)
 - [我最讨厌打球了！](https://www.wenxue868.com/book/rl91ce/)
@@ -431,6 +429,7 @@
 - [幼崽假少爷选择回归寒门](https://www.wenxue868.com/book/rl8rr4/)
 - [盛夏晴浓](https://www.wenxue868.com/book/rl8r09/)
 - [青城玩家明明超强却过分谨慎](https://www.wenxue868.com/book/rl8qra/)
+- [好巧，你也是妹控？[综崩铁]](https://www.wenxue868.com/book/rl8p96/)
 - [法外狂猫](https://www.wenxue868.com/book/rl8nmh/)
 - [矩阵干扰](https://www.wenxue868.com/book/rl8nl3/)
 - [侯府打工人](https://www.wenxue868.com/book/rl8m40/)

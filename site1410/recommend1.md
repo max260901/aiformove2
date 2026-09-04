@@ -1,7 +1,7 @@
 
 # 新华 MBA雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-09-04 03:42:01
+更新时间：2026-09-05 03:43:05
 
 新华 MBA雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。
 
@@ -136,7 +136,7 @@
 - [我们生活玩家是这样的](https://www.xhmba.com/book/7miuloo/)
 - [神豪文男主是我爸](https://www.xhmba.com/book/7miulg8/)
 - [摄政王家的咸鱼夫郎](https://www.xhmba.com/book/7miulcr/)
-- [枕边热吻](https://www.xhmba.com/book/7miulaj/)
+- [怀了前任大哥的崽后](https://www.xhmba.com/book/7miulaj/)
 - [假金丝雀深陷修罗场](https://www.xhmba.com/book/7miul2f/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.xhmba.com/book/7miukpa/)
 - [[综英美]让我统治哥谭！！！](https://www.xhmba.com/book/7miuk6j/)

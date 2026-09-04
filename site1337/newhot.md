@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-04 03:23:50
+更新时间：2026-09-05 03:24:57
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -21,7 +21,7 @@
 - [[崩铁]请给玩家一个准确的血条！](https://www.cq082.com/book/1sdfh6a/)
 - [我的烧烤摊超美味[美食]](https://www.cq082.com/book/1sdfgao/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.cq082.com/book/1sdfgag/)
-- [阿竹与野桃](https://www.cq082.com/book/1sdfg8h/)
+- [渡鬼](https://www.cq082.com/book/1sdfg94/)
 - [暴君偏头痛](https://www.cq082.com/book/1sdfg7t/)
 - [修仙界都为我神魂颠倒](https://www.cq082.com/book/1sdff05/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.cq082.com/book/1sdfeul/)
@@ -154,7 +154,6 @@
 - [ƽ��С����(�崩)](https://www.cq082.com/book/1sdd0qs/)
 - [[综武侠]换装之江湖遍地是小号](https://www.cq082.com/book/1sdd0pe/)
 - [绑定惊吓系统但对象狂涨好感有救吗](https://www.cq082.com/book/1sdd0k3/)
-- [咸鱼受只想摆烂](https://www.cq082.com/book/1sdd02a/)
 - [若清晨所见之蓝](https://www.cq082.com/book/1sdd00l/)
 - [万人迷又被自己巧取豪夺了［快穿］](https://www.cq082.com/book/1sdcvvc/)
 - [穿书后，导师成了师尊](https://www.cq082.com/book/1sdcvpr/)
@@ -420,7 +419,6 @@
 - [青山不渡](https://www.cq082.com/book/1sdc0r7/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.cq082.com/book/1sdbut1/)
 - [青空来信](https://www.cq082.com/book/1sdbug8/)
-- [在狗血文里躺平[人外]](https://www.cq082.com/book/1sdbufe/)
 - [某柯学的正义伙伴](https://www.cq082.com/book/1sdbu07/)
 - [[封神]圣人生欲](https://www.cq082.com/book/1sdbtuo/)
 - [老公是松散生命体](https://www.cq082.com/book/1sdbtcc/)
@@ -433,6 +431,7 @@
 - [战死的阿爹回来了[年代]](https://www.cq082.com/book/1sdbk81/)
 - [盛夏晴浓](https://www.cq082.com/book/1sdbfoe/)
 - [[综英美]让我统治哥谭！！！](https://www.cq082.com/book/1sdbfm2/)
+- [好巧，你也是妹控？[综崩铁]](https://www.cq082.com/book/1sdbepi/)
 - [好兄弟暴富后非要跟我结婚](https://www.cq082.com/book/1sdbbna/)
 - [关于我虚构了一个男友这件事](https://www.cq082.com/book/1sdbbif/)
 - [求生游戏：当邪神成为生活玩家后](https://www.cq082.com/book/1sdb9aj/)

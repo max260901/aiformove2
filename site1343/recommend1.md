@@ -1,7 +1,7 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-04 03:33:14
+更新时间：2026-09-05 03:34:15
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。
 
@@ -107,7 +107,7 @@
 - [我与龙傲天寿命共享](https://www.pusytgp.com/book/7pbmnka/)
 - [如何正确哄睡暴君](https://www.pusytgp.com/book/7pbmkpg/)
 - [九零首富的替嫁小媳妇](https://www.pusytgp.com/book/7pbmdh9/)
-- [枕边热吻](https://www.pusytgp.com/book/7pbmdam/)
+- [怀了前任大哥的崽后](https://www.pusytgp.com/book/7pbmdam/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.pusytgp.com/book/7pbmb49/)
 - [沈助理又在隐藏他的超能力](https://www.pusytgp.com/book/7pbm95b/)
 - [死对头又在挑衅我](https://www.pusytgp.com/book/7pbm8mg/)

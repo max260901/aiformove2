@@ -1,7 +1,7 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-09-04 03:26:09
+更新时间：2026-09-05 03:27:13
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
@@ -121,7 +121,7 @@
 - [起初，我只是想找个冤大头](https://www.gushi1314.com/book/8m9gcrh/)
 - [摄政王家的咸鱼夫郎](https://www.gushi1314.com/book/8m9gcr9/)
 - [死遁的亡夫们都回来了](https://www.gushi1314.com/book/rqk59m/)
-- [枕边热吻](https://www.gushi1314.com/book/rqk56d/)
+- [怀了前任大哥的崽后](https://www.gushi1314.com/book/rqk56d/)
 - [沈助理又在隐藏他的超能力](https://www.gushi1314.com/book/rqk36j/)
 - [假金丝雀深陷修罗场](https://www.gushi1314.com/book/rqk1ip/)
 - [成为养成系练习生后](https://www.gushi1314.com/book/rqk0q5/)

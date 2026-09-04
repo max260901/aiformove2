@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-09-04 03:30:52
+更新时间：2026-09-05 03:31:50
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
@@ -21,9 +21,9 @@
 - [等我吃腻了再倒闭可以吗](https://www.lianzai007.com/book/6g3n1lf/)
 - [自知之明](https://www.lianzai007.com/book/6g3n1kl/)
 - [暴君偏头痛](https://www.lianzai007.com/book/6g3n1k5/)
+- [渡鬼](https://www.lianzai007.com/book/6g3n1jv/)
 - [躲避原书剧情五年后](https://www.lianzai007.com/book/6g3n1is/)
 - [失而复得的白月光[快穿]](https://www.lianzai007.com/book/6g3n1h2/)
-- [阿竹与野桃](https://www.lianzai007.com/book/6g3n1gc/)
 - [[综英美]让我统治哥谭！！！](https://www.lianzai007.com/book/6g3n1fv/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.lianzai007.com/book/6g3n1fp/)
 - [青城玩家明明超强却过分谨慎](https://www.lianzai007.com/book/6g3n1fn/)
@@ -234,7 +234,6 @@
 - [再喜欢我也得死[快穿]](https://www.lianzai007.com/book/kq13aj/)
 - [父皇，我是gay](https://www.lianzai007.com/book/kq12n5/)
 - [反派的病弱白月光重生了](https://www.lianzai007.com/book/kq12ja/)
-- [咸鱼受只想摆烂](https://www.lianzai007.com/book/kq12gl/)
 - [少女妄想症](https://www.lianzai007.com/book/kq12c5/)
 - [吃瓜也能整顿豪门？](https://www.lianzai007.com/book/kq128a/)
 - [变成龙傲天的心上猫后](https://www.lianzai007.com/book/kq11te/)
@@ -409,7 +408,6 @@
 - [当了卧底的我发现遍地熟人](https://www.lianzai007.com/book/kq0gkf/)
 - [虫族治愈师，但恐虫](https://www.lianzai007.com/book/kq0f9k/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.lianzai007.com/book/kq0f2l/)
-- [在狗血文里躺平[人外]](https://www.lianzai007.com/book/kq0eki/)
 - [你也没死？](https://www.lianzai007.com/book/kq0c8j/)
 - [青空来信](https://www.lianzai007.com/book/kq0bb2/)
 - [这谁的沙雕二次元心声！](https://www.lianzai007.com/book/kq0b8s/)

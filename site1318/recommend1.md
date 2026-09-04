@@ -1,7 +1,7 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-09-04 03:36:37
+更新时间：2026-09-05 03:37:40
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
@@ -121,7 +121,7 @@
 - [起初，我只是想找个冤大头](https://www.shuqi687.com/book/8vsj206/)
 - [摄政王家的咸鱼夫郎](https://www.shuqi687.com/book/8vsiveh/)
 - [死遁的亡夫们都回来了](https://www.shuqi687.com/book/sparh5/)
-- [枕边热吻](https://www.shuqi687.com/book/spaqks/)
+- [怀了前任大哥的崽后](https://www.shuqi687.com/book/spaqks/)
 - [沈助理又在隐藏他的超能力](https://www.shuqi687.com/book/spao95/)
 - [死对头又在挑衅我](https://www.shuqi687.com/book/spal37/)
 - [成为养成系练习生后](https://www.shuqi687.com/book/spal1c/)

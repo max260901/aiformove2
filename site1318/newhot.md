@@ -1,7 +1,7 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-09-04 03:36:37
+更新时间：2026-09-05 03:37:40
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
@@ -20,8 +20,8 @@
 - [禁止继承限制级雌君](https://www.shuqi687.com/book/8vsmjee/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.shuqi687.com/book/8vsmjea/)
 - [[综英美]和亲友群穿哥谭以后](https://www.shuqi687.com/book/8vsmje7/)
+- [渡鬼](https://www.shuqi687.com/book/8vsmjdi/)
 - [暴君偏头痛](https://www.shuqi687.com/book/8vsmjda/)
-- [阿竹与野桃](https://www.shuqi687.com/book/8vsmjd8/)
 - [青城玩家明明超强却过分谨慎](https://www.shuqi687.com/book/8vsmjcj/)
 - [我的烧烤摊超美味[美食]](https://www.shuqi687.com/book/8vsmjc2/)
 - [[综英美]让我统治哥谭！！！](https://www.shuqi687.com/book/8vsmjai/)
@@ -236,7 +236,6 @@
 - [迫害系偶像排球部出道中](https://www.shuqi687.com/book/spakoe/)
 - [我的餐馆通历史诸朝](https://www.shuqi687.com/book/spakmv/)
 - [荒谬神父是个渣](https://www.shuqi687.com/book/spakdm/)
-- [咸鱼受只想摆烂](https://www.shuqi687.com/book/spakbu/)
 - [再喜欢我也得死[快穿]](https://www.shuqi687.com/book/spakb1/)
 - [难道你也是神经病qwq！](https://www.shuqi687.com/book/spak93/)
 - [我的爸爸不可能叛变](https://www.shuqi687.com/book/spak16/)
@@ -410,7 +409,6 @@
 - [当了卧底的我发现遍地熟人](https://www.shuqi687.com/book/spa131/)
 - [虫族治愈师，但恐虫](https://www.shuqi687.com/book/spa0o3/)
 - [你也没死？](https://www.shuqi687.com/book/spa09d/)
-- [在狗血文里躺平[人外]](https://www.shuqi687.com/book/sp9vk4/)
 - [这谁的沙雕二次元心声！](https://www.shuqi687.com/book/sp9svf/)
 - [老公是松散生命体](https://www.shuqi687.com/book/sp9sc6/)
 - [青空来信](https://www.shuqi687.com/book/sp9qru/)
