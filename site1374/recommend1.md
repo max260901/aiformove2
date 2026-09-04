@@ -1,7 +1,7 @@
 
 # 看居中文网_免费小说在线阅读|无弹窗广告值得收藏
 
-更新时间：2026-09-04 03:28:41
+更新时间：2026-09-05 03:29:42
 
 看居中文网是最热门的免费小说网站，提供包括但不限于玄幻、都市、言情等多种类型的小说在线阅读服务。本站实时更新小说最新章节列表，拥有全面的小说排行榜，致力于为读者提供一个干净舒适的阅读环境，无弹窗广告干扰，是您寻找好书的理想之地。
 
@@ -103,7 +103,7 @@
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.kanju688.com/book/pau07f/)
 - [死遁的亡夫们都回来了](https://www.kanju688.com/book/pau01q/)
 - [九零首富的替嫁小媳妇](https://www.kanju688.com/book/patvmh/)
-- [枕边热吻](https://www.kanju688.com/book/patv34/)
+- [怀了前任大哥的崽后](https://www.kanju688.com/book/patv34/)
 - [我骗家里的钱养你啊](https://www.kanju688.com/book/patu8n/)
 - [在民俗惊悚片被诸神庇护](https://www.kanju688.com/book/patnsn/)
 - [死对头又在挑衅我](https://www.kanju688.com/book/patmv3/)

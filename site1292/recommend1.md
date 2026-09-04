@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-09-04 03:44:55
+更新时间：2026-09-05 03:45:59
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
@@ -121,7 +121,7 @@
 - [摄政王家的咸鱼夫郎](https://www.yumin66.com/book/5q243a/)
 - [起初，我只是想找个冤大头](https://www.yumin66.com/book/5q23g2/)
 - [死遁的亡夫们都回来了](https://www.yumin66.com/book/im1gj/)
-- [枕边热吻](https://www.yumin66.com/book/iltf1/)
+- [怀了前任大哥的崽后](https://www.yumin66.com/book/iltf1/)
 - [沈助理又在隐藏他的超能力](https://www.yumin66.com/book/ilsr7/)
 - [假金丝雀深陷修罗场](https://www.yumin66.com/book/ilo7n/)
 - [美貌单出，杀穿港娱［八零］](https://www.yumin66.com/book/ilo3c/)

@@ -1,7 +1,7 @@
 
 # 爱阅读-最新优质免费无弹窗小说在线阅读
 
-更新时间：2026-09-04 03:44:40
+更新时间：2026-09-05 03:45:44
 
 爱阅读提供清爽干净、页面整洁没弹窗的网络小说阅读体验。这里有大量的免费小说、完本小说供您选择，包括热门言情小说、玄幻小说、仙侠小说等多种类型。是广大书友必备的纯绿色小说阅读网站。
 
@@ -32,7 +32,7 @@
 - [我超凶的！[快穿]](https://www.yuedu788.com/book/1on706o/)
 - [我比反派先崩坏[快穿]](https://www.yuedu788.com/book/1on6vfr/)
 - [我的烧烤摊超美味[美食]](https://www.yuedu788.com/book/1on6v5p/)
-- [阿竹与野桃](https://www.yuedu788.com/book/1on6v3r/)
+- [渡鬼](https://www.yuedu788.com/book/1on6v36/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yuedu788.com/book/1on6v27/)
 - [cos温迪后玩到真崩铁了](https://www.yuedu788.com/book/1on6r10/)
 - [从异世界穿回来后](https://www.yuedu788.com/book/1on6qo9/)
@@ -133,7 +133,6 @@
 - [梵高夫人](https://www.yuedu788.com/book/1on4ukp/)
 - [在无限世界当晕倒羊](https://www.yuedu788.com/book/1on4uba/)
 - [你也没死？](https://www.yuedu788.com/book/1on4tuj/)
-- [咸鱼受只想摆烂](https://www.yuedu788.com/book/1on4the/)
 - [逝水](https://www.yuedu788.com/book/1on4te4/)
 - [长公主的六零年代](https://www.yuedu788.com/book/1on4tau/)
 - [歪剧情我是专业的[快穿]](https://www.yuedu788.com/book/1on4t9n/)
@@ -423,7 +422,6 @@
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.yuedu788.com/book/1on3rcn/)
 - [请问夫君你哪位](https://www.yuedu788.com/book/1on3r24/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.yuedu788.com/book/1on3qd7/)
-- [在狗血文里躺平[人外]](https://www.yuedu788.com/book/1on3pbe/)
 - [我最讨厌打球了！](https://www.yuedu788.com/book/1on3n5l/)
 - [刀子精手心的人偶崽崽](https://www.yuedu788.com/book/1on3mf2/)
 - [求生游戏：当邪神成为生活玩家后](https://www.yuedu788.com/book/1on3ljc/)
@@ -431,6 +429,7 @@
 - [幼崽假少爷选择回归寒门](https://www.yuedu788.com/book/1on3ge6/)
 - [[足球]小小鸟堂堂来袭](https://www.yuedu788.com/book/1on3fmp/)
 - [青城玩家明明超强却过分谨慎](https://www.yuedu788.com/book/1on3eo7/)
+- [好巧，你也是妹控？[综崩铁]](https://www.yuedu788.com/book/1on3dtc/)
 - [矩阵干扰](https://www.yuedu788.com/book/1on3a7t/)
 - [侯府打工人](https://www.yuedu788.com/book/1on3a63/)
 - [法外狂猫](https://www.yuedu788.com/book/1on3a4t/)

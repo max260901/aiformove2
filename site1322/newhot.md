@@ -1,7 +1,7 @@
 
 # 文学小说网手机版_好看的文学小说TXT下载,无弹窗手机小说网
 
-更新时间：2026-09-04 03:39:40
+更新时间：2026-09-05 03:40:43
 
 文学小说网收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者最值得收藏的网络小说阅读网,精彩小说尽在文学小说网(无弹窗小说网)。
 
@@ -22,7 +22,7 @@
 - [清穿女回来后[天幕]](https://www.wenxue521.com/book/93olsi8/)
 - [从异世界穿回来后](https://www.wenxue521.com/book/93olshq/)
 - [躲避原书剧情五年后](https://www.wenxue521.com/book/93olshp/)
-- [阿竹与野桃](https://www.wenxue521.com/book/93olsha/)
+- [渡鬼](https://www.wenxue521.com/book/93olshk/)
 - [青城玩家明明超强却过分谨慎](https://www.wenxue521.com/book/93olsg6/)
 - [[综英美]让我统治哥谭！！！](https://www.wenxue521.com/book/93olsg3/)
 - [失而复得的白月光[快穿]](https://www.wenxue521.com/book/93olsfu/)
@@ -224,7 +224,6 @@
 - [在猫猫星当珍稀动物](https://www.wenxue521.com/book/t5ndnu/)
 - [女配她肆意妄为[快穿]](https://www.wenxue521.com/book/t5ndjc/)
 - [作为死对头的男朋友](https://www.wenxue521.com/book/t5nd6a/)
-- [咸鱼受只想摆烂](https://www.wenxue521.com/book/t5nd5m/)
 - [在情敌变情人文里当炮灰](https://www.wenxue521.com/book/t5nd50/)
 - [我的餐馆通历史诸朝](https://www.wenxue521.com/book/t5nd1f/)
 - [难道你也是神经病qwq！](https://www.wenxue521.com/book/t5ncvj/)
@@ -408,7 +407,6 @@
 - [当了卧底的我发现遍地熟人](https://www.wenxue521.com/book/t5mq55/)
 - [青山不渡](https://www.wenxue521.com/book/t5mpro/)
 - [神之子与排球的适配性](https://www.wenxue521.com/book/t5mp4d/)
-- [在狗血文里躺平[人外]](https://www.wenxue521.com/book/t5mn1f/)
 - [你也没死？](https://www.wenxue521.com/book/t5mmtf/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.wenxue521.com/book/t5mm8k/)
 - [青空来信](https://www.wenxue521.com/book/t5mkk8/)

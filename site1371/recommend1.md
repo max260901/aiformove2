@@ -1,7 +1,7 @@
 
 # 爱阅读-最新优质免费无弹窗小说在线阅读
 
-更新时间：2026-09-04 03:44:40
+更新时间：2026-09-05 03:45:44
 
 爱阅读提供清爽干净、页面整洁没弹窗的网络小说阅读体验。这里有大量的免费小说、完本小说供您选择，包括热门言情小说、玄幻小说、仙侠小说等多种类型。是广大书友必备的纯绿色小说阅读网站。
 
@@ -102,7 +102,7 @@
 - [如何正确哄睡暴君](https://www.yuedu788.com/book/1on54f7/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.yuedu788.com/book/1on4vpq/)
 - [九零首富的替嫁小媳妇](https://www.yuedu788.com/book/1on4vh6/)
-- [枕边热吻](https://www.yuedu788.com/book/1on4ven/)
+- [怀了前任大哥的崽后](https://www.yuedu788.com/book/1on4ven/)
 - [我骗家里的钱养你啊](https://www.yuedu788.com/book/1on4v5g/)
 - [死遁的亡夫们都回来了](https://www.yuedu788.com/book/1on4ufr/)
 - [死对头又在挑衅我](https://www.yuedu788.com/book/1on4o6e/)

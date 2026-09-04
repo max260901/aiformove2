@@ -1,7 +1,7 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-09-04 03:21:54
+更新时间：2026-09-05 03:23:02
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。
 
@@ -24,10 +24,10 @@
 - [青城玩家明明超强却过分谨慎](https://www.bianlishihao.com/book/2vr7aku/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.bianlishihao.com/book/2vr7akm/)
 - [暴君偏头痛](https://www.bianlishihao.com/book/2vr7ajs/)
-- [阿竹与野桃](https://www.bianlishihao.com/book/2vr7aj7/)
 - [失而复得的白月光[快穿]](https://www.bianlishihao.com/book/2vr7aj6/)
 - [[综英美]让我统治哥谭！！！](https://www.bianlishihao.com/book/2vr7aim/)
 - [躲避原书剧情五年后](https://www.bianlishihao.com/book/2vr7ahr/)
+- [渡鬼](https://www.bianlishihao.com/book/2vr7ahd/)
 - [你，后室管理员](https://www.bianlishihao.com/book/2vr7agr/)
 - [[封神]圣人生欲](https://www.bianlishihao.com/book/2vr7afq/)
 - [星际团宠小人鱼](https://www.bianlishihao.com/book/2vr7afa/)
@@ -231,7 +231,6 @@
 - [掉马后成了奥特带恶人](https://www.bianlishihao.com/book/9ip4d9/)
 - [作为死对头的男朋友](https://www.bianlishihao.com/book/9ip4cr/)
 - [荒谬神父是个渣](https://www.bianlishihao.com/book/9ip4bl/)
-- [咸鱼受只想摆烂](https://www.bianlishihao.com/book/9ip4bg/)
 - [再喜欢我也得死[快穿]](https://www.bianlishihao.com/book/9ip49f/)
 - [和灵异片boss谈恋爱](https://www.bianlishihao.com/book/9ip499/)
 - [摆烂后我成了邪神学院大佬](https://www.bianlishihao.com/book/9ip43g/)
@@ -410,7 +409,6 @@
 - [虫族治愈师，但恐虫](https://www.bianlishihao.com/book/9ioicl/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.bianlishihao.com/book/9iohae/)
 - [你也没死？](https://www.bianlishihao.com/book/9iofcj/)
-- [在狗血文里躺平[人外]](https://www.bianlishihao.com/book/9ioep8/)
 - [老公是松散生命体](https://www.bianlishihao.com/book/9iobe3/)
 - [这谁的沙雕二次元心声！](https://www.bianlishihao.com/book/9iob3p/)
 - [青空来信](https://www.bianlishihao.com/book/9ioaua/)

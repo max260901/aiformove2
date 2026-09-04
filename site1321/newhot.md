@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-09-04 03:24:36
+更新时间：2026-09-05 03:25:41
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -21,13 +21,13 @@
 - [咦？我爸爸复活啦](https://www.duzhe888.com/book/2koepei/)
 - [等我吃腻了再倒闭可以吗](https://www.duzhe888.com/book/2koepea/)
 - [青城玩家明明超强却过分谨慎](https://www.duzhe888.com/book/2koepdv/)
-- [阿竹与野桃](https://www.duzhe888.com/book/2koepdi/)
 - [我的烧烤摊超美味[美食]](https://www.duzhe888.com/book/2koepde/)
 - [暴君偏头痛](https://www.duzhe888.com/book/2koepcf/)
 - [躲避原书剧情五年后](https://www.duzhe888.com/book/2koepb4/)
 - [[综英美]让我统治哥谭！！！](https://www.duzhe888.com/book/2koepb2/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.duzhe888.com/book/2koepal/)
 - [失而复得的白月光[快穿]](https://www.duzhe888.com/book/2koep9b/)
+- [渡鬼](https://www.duzhe888.com/book/2koep98/)
 - [星际团宠小人鱼](https://www.duzhe888.com/book/2koep8p/)
 - [被四皇错看成小动物后](https://www.duzhe888.com/book/2koep7t/)
 - [你，后室管理员](https://www.duzhe888.com/book/2koep6v/)
@@ -251,7 +251,6 @@
 - [强爱清冷O后她上瘾了[快穿]](https://www.duzhe888.com/book/8f9p3u/)
 - [请别摘下超能力社恐的耳机](https://www.duzhe888.com/book/8f9p0m/)
 - [反派的病弱白月光重生了](https://www.duzhe888.com/book/8f9omj/)
-- [咸鱼受只想摆烂](https://www.duzhe888.com/book/8f9olo/)
 - [父皇，我是gay](https://www.duzhe888.com/book/8f9oa9/)
 - [变成龙傲天的心上猫后](https://www.duzhe888.com/book/8f9o3u/)
 - [我被厉鬼盯上了](https://www.duzhe888.com/book/8f9o1k/)
@@ -407,7 +406,6 @@
 - [请问夫君你哪位](https://www.duzhe888.com/book/8f99er/)
 - [普通高中生，但兼职咒术师](https://www.duzhe888.com/book/8f99eg/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.duzhe888.com/book/8f98fk/)
-- [在狗血文里躺平[人外]](https://www.duzhe888.com/book/8f98aq/)
 - [这谁的沙雕二次元心声！](https://www.duzhe888.com/book/8f94rd/)
 - [青空来信](https://www.duzhe888.com/book/8f94pr/)
 - [你也没死？](https://www.duzhe888.com/book/8f94g7/)

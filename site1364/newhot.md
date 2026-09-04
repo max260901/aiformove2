@@ -1,7 +1,7 @@
 
 # 科幻读书-免费小说阅读|言情小说|小说排行榜|全本完本小说下载
 
-更新时间：2026-09-04 03:29:45
+更新时间：2026-09-05 03:30:45
 
 科幻读书提供海量完结全本小说在线阅读服务，涵盖言情、都市、耽美、穿越等多种类型，并定期更新连载章节及发布最新小说排行榜单。支持有声小说推荐与下载。
 
@@ -32,7 +32,7 @@
 - [我超凶的！[快穿]](https://www.kehuan918.com/book/1d56605/)
 - [我比反派先崩坏[快穿]](https://www.kehuan918.com/book/1d5656d/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kehuan918.com/book/1d564uf/)
-- [阿竹与野桃](https://www.kehuan918.com/book/1d564r4/)
+- [渡鬼](https://www.kehuan918.com/book/1d564su/)
 - [我的烧烤摊超美味[美食]](https://www.kehuan918.com/book/1d564qq/)
 - [cos温迪后玩到真崩铁了](https://www.kehuan918.com/book/1d560ou/)
 - [从异世界穿回来后](https://www.kehuan918.com/book/1d560hu/)
@@ -135,7 +135,6 @@
 - [长公主的六零年代](https://www.kehuan918.com/book/1d543s9/)
 - [巨星渡灵师](https://www.kehuan918.com/book/1d543mq/)
 - [被子同学](https://www.kehuan918.com/book/1d543m2/)
-- [咸鱼受只想摆烂](https://www.kehuan918.com/book/1d543l0/)
 - [我绝不可能是只NPC](https://www.kehuan918.com/book/1d543ir/)
 - [你也没死？](https://www.kehuan918.com/book/1d542nh/)
 - [逝水](https://www.kehuan918.com/book/1d542na/)
@@ -422,7 +421,6 @@
 - [小狗向导，世界瑰宝！](https://www.kehuan918.com/book/1d5310e/)
 - [司寝宫女](https://www.kehuan918.com/book/1d530t1/)
 - [放开那个黑暗哨兵！](https://www.kehuan918.com/book/1d530r9/)
-- [在狗血文里躺平[人外]](https://www.kehuan918.com/book/1d52uvh/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.kehuan918.com/book/1d52umq/)
 - [求生游戏：当邪神成为生活玩家后](https://www.kehuan918.com/book/1d52t45/)
 - [刀子精手心的人偶崽崽](https://www.kehuan918.com/book/1d52t37/)
@@ -430,6 +428,7 @@
 - [盛夏晴浓](https://www.kehuan918.com/book/1d52nnl/)
 - [[足球]小小鸟堂堂来袭](https://www.kehuan918.com/book/1d52n2n/)
 - [幼崽假少爷选择回归寒门](https://www.kehuan918.com/book/1d52lih/)
+- [好巧，你也是妹控？[综崩铁]](https://www.kehuan918.com/book/1d52ke1/)
 - [青城玩家明明超强却过分谨慎](https://www.kehuan918.com/book/1d52k0f/)
 - [矩阵干扰](https://www.kehuan918.com/book/1d52hlu/)
 - [侯府打工人](https://www.kehuan918.com/book/1d52h9d/)

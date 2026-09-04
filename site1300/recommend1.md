@@ -1,7 +1,7 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-09-04 03:31:10
+更新时间：2026-09-05 03:32:09
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。
 
@@ -121,7 +121,7 @@
 - [起初，我只是想找个冤大头](https://www.littlemissribbon.com/book/5asf225/)
 - [摄政王家的咸鱼夫郎](https://www.littlemissribbon.com/book/5asf0eb/)
 - [死遁的亡夫们都回来了](https://www.littlemissribbon.com/book/h2tnc8/)
-- [枕边热吻](https://www.littlemissribbon.com/book/h2tjvu/)
+- [怀了前任大哥的崽后](https://www.littlemissribbon.com/book/h2tjvu/)
 - [沈助理又在隐藏他的超能力](https://www.littlemissribbon.com/book/h2ti9r/)
 - [成为养成系练习生后](https://www.littlemissribbon.com/book/h2teo9/)
 - [假金丝雀深陷修罗场](https://www.littlemissribbon.com/book/h2telb/)

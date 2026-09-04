@@ -1,7 +1,7 @@
 
 # 泡泡中文小说-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-04 03:42:33
+更新时间：2026-09-05 03:43:36
 
 泡泡中文小说是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -103,7 +103,7 @@
 - [九零首富的替嫁小媳妇](https://www.xiaoshuo288.com/book/dm1k5t/)
 - [死遁的亡夫们都回来了](https://www.xiaoshuo288.com/book/dm1j0a/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.xiaoshuo288.com/book/dm1il5/)
-- [枕边热吻](https://www.xiaoshuo288.com/book/dm1ii0/)
+- [怀了前任大哥的崽后](https://www.xiaoshuo288.com/book/dm1ii0/)
 - [我骗家里的钱养你啊](https://www.xiaoshuo288.com/book/dm1i3h/)
 - [死对头又在挑衅我](https://www.xiaoshuo288.com/book/dm1anu/)
 - [沈助理又在隐藏他的超能力](https://www.xiaoshuo288.com/book/dm1a9c/)

@@ -1,7 +1,7 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-04 03:38:40
+更新时间：2026-09-05 03:39:42
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
@@ -120,7 +120,7 @@
 - [趁她之危](https://www.tiananfoundry.com/book/1ol1ale/)
 - [起初，我只是想找个冤大头](https://www.tiananfoundry.com/book/1ol15u5/)
 - [摄政王家的咸鱼夫郎](https://www.tiananfoundry.com/book/1ol13u2/)
-- [枕边热吻](https://www.tiananfoundry.com/book/5lc9jd/)
+- [怀了前任大哥的崽后](https://www.tiananfoundry.com/book/5lc9jd/)
 - [死遁的亡夫们都回来了](https://www.tiananfoundry.com/book/5lc8d5/)
 - [沈助理又在隐藏他的超能力](https://www.tiananfoundry.com/book/5lc6gu/)
 - [成为养成系练习生后](https://www.tiananfoundry.com/book/5lc45p/)

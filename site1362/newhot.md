@@ -1,7 +1,7 @@
 
 # 漫话乐文小说-免费小说阅读,无弹窗,最新章节更新快
 
-更新时间：2026-09-04 03:31:45
+更新时间：2026-09-05 03:32:45
 
 漫话乐文小说是广大书友最值得收藏的网络小说阅读网，提供当前最火热的网络小说免费阅读服务，高质量的小说最新章节更新快速，适合所有网络小说爱好者。
 
@@ -32,8 +32,8 @@
 - [我超凶的！[快穿]](https://www.manhua958.com/book/17scicg/)
 - [我比反派先崩坏[快穿]](https://www.manhua958.com/book/17schk2/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.manhua958.com/book/17schck/)
+- [渡鬼](https://www.manhua958.com/book/17schaq/)
 - [我的烧烤摊超美味[美食]](https://www.manhua958.com/book/17sch9v/)
-- [阿竹与野桃](https://www.manhua958.com/book/17sch8k/)
 - [cos温迪后玩到真崩铁了](https://www.manhua958.com/book/17scd4u/)
 - [从异世界穿回来后](https://www.manhua958.com/book/17sccus/)
 - [我有嘉宾](https://www.manhua958.com/book/17sccml/)
@@ -138,7 +138,6 @@
 - [陛下今天怼人了吗［快穿］](https://www.manhua958.com/book/17sag44/)
 - [被子同学](https://www.manhua958.com/book/17safu6/)
 - [歪剧情我是专业的[快穿]](https://www.manhua958.com/book/17safu0/)
-- [咸鱼受只想摆烂](https://www.manhua958.com/book/17saflf/)
 - [长公主的六零年代](https://www.manhua958.com/book/17safcc/)
 - [逝水](https://www.manhua958.com/book/17saf8l/)
 - [我不可能舔一个漂亮捞子](https://www.manhua958.com/book/17saf33/)
@@ -423,13 +422,13 @@
 - [虫族治愈师，但恐虫](https://www.manhua958.com/book/17s9dbs/)
 - [无能的丈夫们](https://www.manhua958.com/book/17s9db9/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.manhua958.com/book/17s9cve/)
-- [在狗血文里躺平[人外]](https://www.manhua958.com/book/17s9afk/)
 - [求生游戏：当邪神成为生活玩家后](https://www.manhua958.com/book/17s99jt/)
 - [刀子精手心的人偶崽崽](https://www.manhua958.com/book/17s99gc/)
 - [我最讨厌打球了！](https://www.manhua958.com/book/17s98nd/)
 - [[足球]小小鸟堂堂来袭](https://www.manhua958.com/book/17s93ke/)
 - [幼崽假少爷选择回归寒门](https://www.manhua958.com/book/17s92q8/)
 - [盛夏晴浓](https://www.manhua958.com/book/17s927c/)
+- [好巧，你也是妹控？[综崩铁]](https://www.manhua958.com/book/17s8vuk/)
 - [青城玩家明明超强却过分谨慎](https://www.manhua958.com/book/17s8vim/)
 - [好兄弟暴富后非要跟我结婚](https://www.manhua958.com/book/17s8u69/)
 - [侯府打工人](https://www.manhua958.com/book/17s8tl0/)

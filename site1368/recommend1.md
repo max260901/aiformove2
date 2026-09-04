@@ -1,7 +1,7 @@
 
 # 探秘书院-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-04 03:38:24
+更新时间：2026-09-05 03:39:27
 
 探秘书院提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
@@ -104,7 +104,7 @@
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.tanmi918.com/book/80r2h66/)
 - [我骗家里的钱养你啊](https://www.tanmi918.com/book/80r2frt/)
 - [死遁的亡夫们都回来了](https://www.tanmi918.com/book/80r2fil/)
-- [枕边热吻](https://www.tanmi918.com/book/80r2fi7/)
+- [怀了前任大哥的崽后](https://www.tanmi918.com/book/80r2fi7/)
 - [死对头又在挑衅我](https://www.tanmi918.com/book/80r29b4/)
 - [在民俗惊悚片被诸神庇护](https://www.tanmi918.com/book/80r2966/)
 - [沈助理又在隐藏他的超能力](https://www.tanmi918.com/book/80r28co/)

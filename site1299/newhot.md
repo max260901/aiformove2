@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-04 03:40:58
+更新时间：2026-09-05 03:42:02
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
@@ -20,11 +20,11 @@
 - [清穿女回来后[天幕]](https://www.wsfsx.com/book/5ts29cr/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.wsfsx.com/book/5ts29cm/)
 - [同时扮演贵族学院F4和平民校花](https://www.wsfsx.com/book/5ts29ce/)
+- [渡鬼](https://www.wsfsx.com/book/5ts29a4/)
 - [躲避原书剧情五年后](https://www.wsfsx.com/book/5ts29a2/)
 - [[综英美]让我统治哥谭！！！](https://www.wsfsx.com/book/5ts2999/)
 - [青城玩家明明超强却过分谨慎](https://www.wsfsx.com/book/5ts2996/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wsfsx.com/book/5ts2992/)
-- [阿竹与野桃](https://www.wsfsx.com/book/5ts298e/)
 - [失而复得的白月光[快穿]](https://www.wsfsx.com/book/5ts297r/)
 - [我的烧烤摊超美味[美食]](https://www.wsfsx.com/book/5ts297g/)
 - [暴君偏头痛](https://www.wsfsx.com/book/5ts2975/)
@@ -230,7 +230,6 @@
 - [作为死对头的男朋友](https://www.wsfsx.com/book/ivle30/)
 - [再喜欢我也得死[快穿]](https://www.wsfsx.com/book/ivle1r/)
 - [我的爸爸不可能叛变](https://www.wsfsx.com/book/ivldpo/)
-- [咸鱼受只想摆烂](https://www.wsfsx.com/book/ivldl6/)
 - [在情敌变情人文里当炮灰](https://www.wsfsx.com/book/ivldbl/)
 - [诡异书店打工实录](https://www.wsfsx.com/book/ivld4j/)
 - [难道你也是神经病qwq！](https://www.wsfsx.com/book/ivld1n/)
@@ -408,7 +407,6 @@
 - [失忆后，和五条激情互演](https://www.wsfsx.com/book/ivkqnr/)
 - [虫族治愈师，但恐虫](https://www.wsfsx.com/book/ivkqj7/)
 - [你也没死？](https://www.wsfsx.com/book/ivkpke/)
-- [在狗血文里躺平[人外]](https://www.wsfsx.com/book/ivkonr/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.wsfsx.com/book/ivknb0/)
 - [这谁的沙雕二次元心声！](https://www.wsfsx.com/book/ivkmp2/)
 - [青空来信](https://www.wsfsx.com/book/ivkkun/)

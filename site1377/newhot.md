@@ -1,13 +1,16 @@
 
 # 牛魔王JJ电子书 - 小说阅读网, 全本免费完结小说在线阅读及下载
 
-更新时间：2026-09-04 03:32:29
+更新时间：2026-09-05 03:33:30
 
 牛魔王JJ电子书提供精彩小说阅读服务，包括各种类型的小说排行榜、免费好看的小说等。涵盖穿越小说、都市小说、言情小说、玄幻小说等多种类别，支持全本全集完结小说在线阅读以及TXT下载。
 
 - [牛魔王JJ电子书](https://www.nmwjj.com/)
 
 ## 最新小说
+- [这个替嫁让我来！](https://www.nmwjj.com/book/18cjjms/)
+- [我拿的可是反派剧本](https://www.nmwjj.com/book/18cjjh9/)
+- [丧尸王有什么坏心思？](https://www.nmwjj.com/book/18cjj1f/)
 - [自知之明](https://www.nmwjj.com/book/18cjhj9/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.nmwjj.com/book/18cjhih/)
 - [全世界名为爱的恶意](https://www.nmwjj.com/book/18cjhi5/)
@@ -34,8 +37,8 @@
 - [开局给李世民盘点安史之乱](https://www.nmwjj.com/book/18cj1g6/)
 - [怪谈小镇游玩指南[无限]](https://www.nmwjj.com/book/18cj0fd/)
 - [离开那个混蛋后](https://www.nmwjj.com/book/18civmg/)
+- [渡鬼](https://www.nmwjj.com/book/18citmt/)
 - [我的烧烤摊超美味[美食]](https://www.nmwjj.com/book/18citko/)
-- [阿竹与野桃](https://www.nmwjj.com/book/18citke/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.nmwjj.com/book/18citjm/)
 - [穿成反派的亡夫后[虫族]](https://www.nmwjj.com/book/18cise1/)
 - [氪成酒厂股东了怎么办](https://www.nmwjj.com/book/18cis9u/)
@@ -141,7 +144,6 @@
 - [[综崩铁]谁家小鸟掉冥河了](https://www.nmwjj.com/book/18ch7v4/)
 - [[清]给太子当姐姐那些年](https://www.nmwjj.com/book/18ch7ol/)
 - [灰墙之下](https://www.nmwjj.com/book/18ch7g9/)
-- [咸鱼受只想摆烂](https://www.nmwjj.com/book/18ch78t/)
 - [巨龙宝藏是个小社恐](https://www.nmwjj.com/book/18ch74n/)
 - [京秋婚约](https://www.nmwjj.com/book/18ch72s/)
 - [万人迷又被自己巧取豪夺了［快穿］](https://www.nmwjj.com/book/18ch6k8/)
@@ -265,7 +267,6 @@
 - [退圈后，我靠职场综艺火爆全网](https://www.nmwjj.com/book/18cgjvg/)
 - [忍界修罗金屋藏娇了？](https://www.nmwjj.com/book/18cgjrq/)
 - [人在综漫，但崩铁马甲](https://www.nmwjj.com/book/18cgjpv/)
-- [穿为清冷影后的污点A](https://www.nmwjj.com/book/18cgjfg/)
 - [想听越前君向我告白](https://www.nmwjj.com/book/18cgjf9/)
 - [重回被拐那一天[千禧年代]](https://www.nmwjj.com/book/18cgjf8/)
 - [野比春子穿越事件簿](https://www.nmwjj.com/book/18cgj8q/)
@@ -418,9 +419,9 @@
 - [刀子精手心的人偶崽崽](https://www.nmwjj.com/book/18cg5cm/)
 - [求生游戏：当邪神成为生活玩家后](https://www.nmwjj.com/book/18cg4bi/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.nmwjj.com/book/18cg49u/)
-- [在狗血文里躺平[人外]](https://www.nmwjj.com/book/18cg46g/)
 - [青城玩家明明超强却过分谨慎](https://www.nmwjj.com/book/18cg33t/)
 - [撕毁女配剧本的我被神之子读心了](https://www.nmwjj.com/book/18cg33l/)
+- [好巧，你也是妹控？[综崩铁]](https://www.nmwjj.com/book/18cg269/)
 - [[足球]小小鸟堂堂来袭](https://www.nmwjj.com/book/18cg16g/)
 - [盛夏晴浓](https://www.nmwjj.com/book/18cg0oi/)
 - [法外狂猫](https://www.nmwjj.com/book/18cg0a1/)

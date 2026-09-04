@@ -1,7 +1,7 @@
 
 # 看剧文学网 - 书友最值得收藏的小说阅读网
 
-更新时间：2026-09-04 03:28:56
+更新时间：2026-09-05 03:29:57
 
 看剧文学网，精选最好看的小说推荐给大家在线阅读。这里有网络小说大全，包括最火、最热门的小说最新章节，是书友最值得收藏的免费小说阅读网。
 
@@ -31,8 +31,8 @@
 - [[足球]番外乐子集](https://www.kanju788.com/book/to4l1j/)
 - [我超凶的！[快穿]](https://www.kanju788.com/book/to4j5j/)
 - [我比反派先崩坏[快穿]](https://www.kanju788.com/book/to4id5/)
+- [渡鬼](https://www.kanju788.com/book/to4id4/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kanju788.com/book/to4ico/)
-- [阿竹与野桃](https://www.kanju788.com/book/to4ibq/)
 - [我的烧烤摊超美味[美食]](https://www.kanju788.com/book/to4i9a/)
 - [cos温迪后玩到真崩铁了](https://www.kanju788.com/book/to4du3/)
 - [从异世界穿回来后](https://www.kanju788.com/book/to4dno/)
@@ -136,7 +136,6 @@
 - [[综崩铁]谁家小鸟掉冥河了](https://www.kanju788.com/book/to2go0/)
 - [妖怪崽崽种田日常](https://www.kanju788.com/book/to2gna/)
 - [陛下今天怼人了吗［快穿］](https://www.kanju788.com/book/to2gf6/)
-- [咸鱼受只想摆烂](https://www.kanju788.com/book/to2g63/)
 - [你也没死？](https://www.kanju788.com/book/to2fhk/)
 - [寻真](https://www.kanju788.com/book/to2fee/)
 - [被子同学](https://www.kanju788.com/book/to2fba/)
@@ -422,7 +421,6 @@
 - [某柯学的正义伙伴](https://www.kanju788.com/book/to1elp/)
 - [小狗向导，世界瑰宝！](https://www.kanju788.com/book/to1egl/)
 - [失忆后，和五条激情互演](https://www.kanju788.com/book/to1e3u/)
-- [在狗血文里躺平[人外]](https://www.kanju788.com/book/to1caj/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.kanju788.com/book/to1c67/)
 - [我最讨厌打球了！](https://www.kanju788.com/book/to1aih/)
 - [求生游戏：当邪神成为生活玩家后](https://www.kanju788.com/book/to18jh/)
@@ -431,6 +429,7 @@
 - [盛夏晴浓](https://www.kanju788.com/book/to12nf/)
 - [[足球]小小鸟堂堂来袭](https://www.kanju788.com/book/to12el/)
 - [青城玩家明明超强却过分谨慎](https://www.kanju788.com/book/to114t/)
+- [好巧，你也是妹控？[综崩铁]](https://www.kanju788.com/book/to0vv1/)
 - [暴君偏头痛](https://www.kanju788.com/book/to0tun/)
 - [侯府打工人](https://www.kanju788.com/book/to0tp9/)
 - [好兄弟暴富后非要跟我结婚](https://www.kanju788.com/book/to0toh/)

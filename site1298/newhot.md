@@ -1,7 +1,7 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-09-04 03:30:16
+更新时间：2026-09-05 03:31:15
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
@@ -26,8 +26,8 @@
 - [我的烧烤摊超美味[美食]](https://www.kmjike.com/book/4mlvlkc/)
 - [[综英美]让我统治哥谭！！！](https://www.kmjike.com/book/4mlvlj6/)
 - [失而复得的白月光[快穿]](https://www.kmjike.com/book/4mlvlir/)
-- [阿竹与野桃](https://www.kmjike.com/book/4mlvlio/)
 - [暴君偏头痛](https://www.kmjike.com/book/4mlvlhg/)
+- [渡鬼](https://www.kmjike.com/book/4mlvlha/)
 - [[封神]圣人生欲](https://www.kmjike.com/book/4mlvlgr/)
 - [星际团宠小人鱼](https://www.kmjike.com/book/4mlvlgg/)
 - [被四皇错看成小动物后](https://www.kmjike.com/book/4mlvlgd/)
@@ -249,7 +249,6 @@
 - [摆烂后我成了邪神学院大佬](https://www.kmjike.com/book/f289af/)
 - [我的爸爸不可能叛变](https://www.kmjike.com/book/f2899f/)
 - [请别摘下超能力社恐的耳机](https://www.kmjike.com/book/f28949/)
-- [咸鱼受只想摆烂](https://www.kmjike.com/book/f288t9/)
 - [绝世美人靠脸躺赢[快穿]](https://www.kmjike.com/book/f288qs/)
 - [糊咖爱豆用动物心声破案](https://www.kmjike.com/book/f28883/)
 - [人外收集录［快穿］](https://www.kmjike.com/book/f28865/)
@@ -409,7 +408,6 @@
 - [虫族治愈师，但恐虫](https://www.kmjike.com/book/f27p5c/)
 - [当了卧底的我发现遍地熟人](https://www.kmjike.com/book/f27ovi/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.kmjike.com/book/f27ok4/)
-- [在狗血文里躺平[人外]](https://www.kmjike.com/book/f27mdf/)
 - [你也没死？](https://www.kmjike.com/book/f27kl8/)
 - [青空来信](https://www.kmjike.com/book/f27j82/)
 - [这谁的沙雕二次元心声！](https://www.kmjike.com/book/f27hnd/)

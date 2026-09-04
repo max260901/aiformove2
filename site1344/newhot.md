@@ -1,7 +1,7 @@
 
 # 国威御林小说_国威御林小说小说在线阅读
 
-更新时间：2026-09-04 03:25:54
+更新时间：2026-09-05 03:26:58
 
 国威御林小说是拥有海量的完结全本小说作品, 提供热门小说排行榜免费在线阅读, 每日更新言情、都市、穿越、青春、悬疑等作品连载。
 
@@ -21,7 +21,7 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.guoweiyulin.com/book/360q2cr/)
 - [暴君偏头痛](https://www.guoweiyulin.com/book/360q1is/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.guoweiyulin.com/book/360q1ik/)
-- [阿竹与野桃](https://www.guoweiyulin.com/book/360q1id/)
+- [渡鬼](https://www.guoweiyulin.com/book/360q1g6/)
 - [我的烧烤摊超美味[美食]](https://www.guoweiyulin.com/book/360q1et/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.guoweiyulin.com/book/360q06n/)
 - [修仙界都为我神魂颠倒](https://www.guoweiyulin.com/book/360q06h/)
@@ -154,7 +154,6 @@
 - [恋爱脑他重生了](https://www.guoweiyulin.com/book/360ni3c/)
 - [被迫跟死对头结婚后](https://www.guoweiyulin.com/book/360nhmd/)
 - [万人迷又被自己巧取豪夺了［快穿］](https://www.guoweiyulin.com/book/360nh8a/)
-- [咸鱼受只想摆烂](https://www.guoweiyulin.com/book/360nh0h/)
 - [当然是拿世界冠军啦![短道速滑]](https://www.guoweiyulin.com/book/360ngja/)
 - [ƽ��С����(�崩)](https://www.guoweiyulin.com/book/360ng96/)
 - [灰墙之下](https://www.guoweiyulin.com/book/360ng7l/)
@@ -421,7 +420,6 @@
 - [[封神]圣人生欲](https://www.guoweiyulin.com/book/360mgqq/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.guoweiyulin.com/book/360mgqb/)
 - [青空来信](https://www.guoweiyulin.com/book/360mgog/)
-- [在狗血文里躺平[人外]](https://www.guoweiyulin.com/book/360mft3/)
 - [某柯学的正义伙伴](https://www.guoweiyulin.com/book/360mfcn/)
 - [可怜的天然呆直男[快穿]](https://www.guoweiyulin.com/book/360mept/)
 - [纯爱宇智波基本恋爱法](https://www.guoweiyulin.com/book/360mee6/)
@@ -433,6 +431,7 @@
 - [刀子精手心的人偶崽崽](https://www.guoweiyulin.com/book/360m450/)
 - [[综英美]让我统治哥谭！！！](https://www.guoweiyulin.com/book/360m2s9/)
 - [盛夏晴浓](https://www.guoweiyulin.com/book/360m2ls/)
+- [好巧，你也是妹控？[综崩铁]](https://www.guoweiyulin.com/book/360luah/)
 - [好兄弟暴富后非要跟我结婚](https://www.guoweiyulin.com/book/360lr6f/)
 - [求生游戏：当邪神成为生活玩家后](https://www.guoweiyulin.com/book/360lqoe/)
 - [关于我虚构了一个男友这件事](https://www.guoweiyulin.com/book/360lqgt/)

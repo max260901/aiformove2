@@ -1,13 +1,15 @@
 
 # 都来读小说网 - 免费电子书阅读平台
 
-更新时间：2026-09-04 03:37:55
+更新时间：2026-09-05 03:38:57
 
 都来读小说网提供快速更新的海量免费小说资源，主要以TXT格式为主，致力于为读者带来优质的阅读体验。
 
 - [都来读小说网](https://www.swazs.com/)
 
 ## 最新小说
+- [cos温迪后玩到真崩铁了](https://www.swazs.com/book/1u7kj5t/)
+- [躲避原书剧情五年后](https://www.swazs.com/book/1u7kj2f/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.swazs.com/book/1u7kitl/)
 - [自知之明](https://www.swazs.com/book/1u7kis3/)
 - [清穿女回来后[天幕]](https://www.swazs.com/book/1u7kis2/)
@@ -52,9 +54,9 @@
 - [我的烧烤摊超美味[美食]](https://www.swazs.com/book/1u7j753/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.swazs.com/book/1u7j6vq/)
 - [优质攻不做恋爱脑[快穿]](https://www.swazs.com/book/1u7j6qk/)
+- [渡鬼](https://www.swazs.com/book/1u7j6ng/)
 - [五美元在哥谭活一月](https://www.swazs.com/book/1u7j67k/)
 - [可怜的天然呆直男[快穿]](https://www.swazs.com/book/1u7j66f/)
-- [阿竹与野桃](https://www.swazs.com/book/1u7j5jn/)
 - [我当县令那些年](https://www.swazs.com/book/1u7j5h6/)
 - [暗堕本丸，在线直播](https://www.swazs.com/book/1u7j5dh/)
 - [全天下都在求太子殿下别死！](https://www.swazs.com/book/1u7j5co/)
@@ -122,7 +124,6 @@
 - [我绝不可能是只NPC](https://www.swazs.com/book/1u7im8g/)
 - [黑莲花在线演我](https://www.swazs.com/book/1u7im4v/)
 - [咦？我爸爸复活啦](https://www.swazs.com/book/1u7im2m/)
-- [咸鱼受只想摆烂](https://www.swazs.com/book/1u7ilsb/)
 - [[综崩铁]谁家小鸟掉冥河了](https://www.swazs.com/book/1u7ili2/)
 - [巨星渡灵师](https://www.swazs.com/book/1u7il88/)
 - [歪剧情我是专业的[快穿]](https://www.swazs.com/book/1u7il4b/)
@@ -231,7 +232,6 @@
 - [少女妄想症](https://www.swazs.com/book/1u7i3p3/)
 - [[足球]职业模拟器但足坛](https://www.swazs.com/book/1u7i3jo/)
 - [变成龙傲天的心上猫后](https://www.swazs.com/book/1u7i3ih/)
-- [穿为清冷影后的污点A](https://www.swazs.com/book/1u7i3hl/)
 - [人外收集录［快穿］](https://www.swazs.com/book/1u7i3h5/)
 - [这谁的沙雕二次元心声！](https://www.swazs.com/book/1u7i385/)
 - [都说了我很娇纵了](https://www.swazs.com/book/1u7i35o/)
@@ -416,7 +416,6 @@
 - [关于我虚构了一个男友这件事](https://www.swazs.com/book/1u7hk4g/)
 - [穿成影后的作死前妻](https://www.swazs.com/book/1u7hk27/)
 - [让我再吃一口](https://www.swazs.com/book/1u7hjtl/)
-- [在狗血文里躺平[人外]](https://www.swazs.com/book/1u7hjkl/)
 - [癫骨](https://www.swazs.com/book/1u7hjk1/)
 - [我靠玛丽苏系统伪装神女](https://www.swazs.com/book/1u7hjhp/)
 - [刀子精手心的人偶崽崽](https://www.swazs.com/book/1u7hjfg/)
@@ -424,6 +423,7 @@
 - [吐槽役审神者会爆改幕后大boss吗](https://www.swazs.com/book/1u7hje3/)
 - [每天都在和太宰互换身体](https://www.swazs.com/book/1u7hjb0/)
 - [柯学剧本杀，但恋爱流打法](https://www.swazs.com/book/1u7hiue/)
+- [好巧，你也是妹控？[综崩铁]](https://www.swazs.com/book/1u7hih2/)
 - [我，剑圣，养生中，勿扰](https://www.swazs.com/book/1u7hi0l/)
 - [李玉灯](https://www.swazs.com/book/1u7hgsv/)
 - [盛夏晴浓](https://www.swazs.com/book/1u7hf8g/)

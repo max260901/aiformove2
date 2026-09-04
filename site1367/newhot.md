@@ -1,7 +1,7 @@
 
 # 奇幻笔趣屋 - 书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-04 03:33:59
+更新时间：2026-09-05 03:35:00
 
 奇幻笔趣屋收录整理最新最全的热门网络小说，提供所有小说首发最新章节免费阅读服务，是书友们最值得收藏的小说阅读网站。
 
@@ -31,8 +31,8 @@
 - [[足球]番外乐子集](https://www.qihuan958.com/book/4ratnbu/)
 - [我超凶的！[快穿]](https://www.qihuan958.com/book/4ratlg9/)
 - [我比反派先崩坏[快穿]](https://www.qihuan958.com/book/4ratkpb/)
-- [阿竹与野桃](https://www.qihuan958.com/book/4ratkgi/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.qihuan958.com/book/4ratkg5/)
+- [渡鬼](https://www.qihuan958.com/book/4ratkf5/)
 - [我的烧烤摊超美味[美食]](https://www.qihuan958.com/book/4ratke3/)
 - [cos温迪后玩到真崩铁了](https://www.qihuan958.com/book/4ratgbn/)
 - [从异世界穿回来后](https://www.qihuan958.com/book/4ratg48/)
@@ -139,7 +139,6 @@
 - [[综崩铁]谁家小鸟掉冥河了](https://www.qihuan958.com/book/4rariik/)
 - [长公主的六零年代](https://www.qihuan958.com/book/4rarigp/)
 - [我不可能舔一个漂亮捞子](https://www.qihuan958.com/book/4raridq/)
-- [咸鱼受只想摆烂](https://www.qihuan958.com/book/4rari1q/)
 - [可怜的天然呆直男[快穿]](https://www.qihuan958.com/book/4rari10/)
 - [陛下今天怼人了吗［快穿］](https://www.qihuan958.com/book/4rarhoi/)
 - [歪剧情我是专业的[快穿]](https://www.qihuan958.com/book/4rarhf9/)
@@ -422,7 +421,6 @@
 - [末世山居日常](https://www.qihuan958.com/book/4raqgnb/)
 - [青山不渡](https://www.qihuan958.com/book/4raqgi4/)
 - [我靠玛丽苏系统伪装神女](https://www.qihuan958.com/book/4raqgdl/)
-- [在狗血文里躺平[人外]](https://www.qihuan958.com/book/4raqf4i/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.qihuan958.com/book/4raqdft/)
 - [我最讨厌打球了！](https://www.qihuan958.com/book/4raqbtn/)
 - [刀子精手心的人偶崽崽](https://www.qihuan958.com/book/4raqbf6/)
@@ -431,6 +429,7 @@
 - [盛夏晴浓](https://www.qihuan958.com/book/4raq64f/)
 - [[足球]小小鸟堂堂来袭](https://www.qihuan958.com/book/4raq4r5/)
 - [青城玩家明明超强却过分谨慎](https://www.qihuan958.com/book/4raq4gd/)
+- [好巧，你也是妹控？[综崩铁]](https://www.qihuan958.com/book/4raq431/)
 - [法外狂猫](https://www.qihuan958.com/book/4raq0v2/)
 - [矩阵干扰](https://www.qihuan958.com/book/4raq0mn/)
 - [侯府打工人](https://www.qihuan958.com/book/4rapvs2/)
