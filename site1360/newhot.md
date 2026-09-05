@@ -1,7 +1,7 @@
 
 # 生活文学小说-质感小说文学网站|高质量文学作品与创作交流平台
 
-更新时间：2026-09-05 03:36:25
+更新时间：2026-09-06 03:37:20
 
 生活文学小说是一个专注于提供质感小说文学的网站，致力于为文学爱好者打造一个高质量的文学作品和创作交流平台，在这里可以享受到独特的夜间文学之美。
 
@@ -11,6 +11,7 @@
 - [这个替嫁让我来！](https://www.shenghuo988.com/book/86gb7o2/)
 - [清穿女回来后[天幕]](https://www.shenghuo988.com/book/86gb7no/)
 - [自知之明](https://www.shenghuo988.com/book/86gb7n1/)
+- [穿为龙傲天发妻后](https://www.shenghuo988.com/book/86gb7lr/)
 - [禁止继承限制级雌君](https://www.shenghuo988.com/book/86gb7lp/)
 - [等我吃腻了再倒闭可以吗](https://www.shenghuo988.com/book/86gb7lh/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.shenghuo988.com/book/86gb7l1/)
@@ -32,10 +33,8 @@
 - [我超凶的！[快穿]](https://www.shenghuo988.com/book/86gasb2/)
 - [我比反派先崩坏[快穿]](https://www.shenghuo988.com/book/86garfo/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shenghuo988.com/book/86gar8d/)
-- [我的烧烤摊超美味[美食]](https://www.shenghuo988.com/book/86gar85/)
 - [渡鬼](https://www.shenghuo988.com/book/86gar6m/)
 - [cos温迪后玩到真崩铁了](https://www.shenghuo988.com/book/86gan2m/)
-- [从异世界穿回来后](https://www.shenghuo988.com/book/86gamrg/)
 - [我有嘉宾](https://www.shenghuo988.com/book/86gamiq/)
 - [娇气点怎么啦？［快穿］](https://www.shenghuo988.com/book/86gamej/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.shenghuo988.com/book/86galoe/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.shenghuo988.com/book/86ga0tu/)
 - [昭暮](https://www.shenghuo988.com/book/86g9vrb/)
 - [你，后室管理员](https://www.shenghuo988.com/book/86g9rs6/)
-- [星际团宠小人鱼](https://www.shenghuo988.com/book/86g9ro3/)
 - [高调装神，猥琐发育](https://www.shenghuo988.com/book/86g9kll/)
 - [求求你们别吃了](https://www.shenghuo988.com/book/86g9ekm/)
 - [[足球]葡萄牙世界杯if线](https://www.shenghuo988.com/book/86g9ejs/)
@@ -290,7 +288,6 @@
 - [漫画路人绑定系统后](https://www.shenghuo988.com/book/86g822p/)
 - [异种大食堂[无限]](https://www.shenghuo988.com/book/86g822k/)
 - [月光白](https://www.shenghuo988.com/book/86g81so/)
-- [多梦你一会儿](https://www.shenghuo988.com/book/86g81rk/)
 - [[综英美]让我统治哥谭！！！](https://www.shenghuo988.com/book/86g81qu/)
 - [战死的阿爹回来了[年代]](https://www.shenghuo988.com/book/86g81m5/)
 - [禁止对人气角色上限制级mod！！！](https://www.shenghuo988.com/book/86g81gi/)
@@ -354,7 +351,6 @@
 - [宇智波的遗产](https://www.shenghuo988.com/book/86g7t35/)
 - [正常人成为虫母后沦陷修罗场](https://www.shenghuo988.com/book/86g7t1p/)
 - [重生之哑妻](https://www.shenghuo988.com/book/86g7ssd/)
-- [和前女友的心上人he了](https://www.shenghuo988.com/book/86g7sr3/)
 - [邪神祂总被觊觎](https://www.shenghuo988.com/book/86g7sqp/)
 - [表白现场翻车后](https://www.shenghuo988.com/book/86g7sq8/)
 - [软饭的正确吃法[快穿]](https://www.shenghuo988.com/book/86g7sls/)
@@ -400,6 +396,7 @@
 - [每天都在和太宰互换身体](https://www.shenghuo988.com/book/86g7psl/)
 - [让我再吃一口](https://www.shenghuo988.com/book/86g7pk6/)
 - [请问夫君你哪位](https://www.shenghuo988.com/book/86g7pia/)
+- [被阴湿坏女人缠上后](https://www.shenghuo988.com/book/86g7pb4/)
 - [在重男兄弟间夹缝求生](https://www.shenghuo988.com/book/86g7pb2/)
 - [顶流他姐有神豪系统](https://www.shenghuo988.com/book/86g7p3t/)
 - [青山不渡](https://www.shenghuo988.com/book/86g7p09/)
@@ -429,6 +426,7 @@
 - [[足球]小小鸟堂堂来袭](https://www.shenghuo988.com/book/86g7cdu/)
 - [盛夏晴浓](https://www.shenghuo988.com/book/86g7btt/)
 - [好巧，你也是妹控？[综崩铁]](https://www.shenghuo988.com/book/86g7b6b/)
+- [欢迎来到重生点](https://www.shenghuo988.com/book/86g796c/)
 - [青城玩家明明超强却过分谨慎](https://www.shenghuo988.com/book/86g7937/)
 - [侯府打工人](https://www.shenghuo988.com/book/86g78cd/)
 - [好兄弟暴富后非要跟我结婚](https://www.shenghuo988.com/book/86g77bd/)

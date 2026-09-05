@@ -1,13 +1,15 @@
 
 # 泡泡中文书社-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-05 03:38:14
+更新时间：2026-09-06 03:39:07
 
 泡泡中文书社是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
 - [泡泡书社](https://www.shushe818.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.shushe818.com/book/29bc5hk/)
+- [和八个男人在极寒游戏求生](https://www.shushe818.com/book/29bc5hj/)
 - [双生子反派的端水抑郁妈[九零]](https://www.shushe818.com/book/29bc5hi/)
 - [病美人重生日记](https://www.shushe818.com/book/29bc5hh/)
 - [烈火焚身[巴黎圣母院]](https://www.shushe818.com/book/29bc5he/)
@@ -52,7 +54,6 @@
 - [人，今晚土拨鼠站岗](https://www.shushe818.com/book/29bc5e7/)
 - [末世八年春，游戏降临](https://www.shushe818.com/book/29bc5e2/)
 - [爱情的肯定句](https://www.shushe818.com/book/29bc5e1/)
-- [自知之明](https://www.shushe818.com/book/29bc5dp/)
 - [仙尊心尖宠，但被魔尊抢了](https://www.shushe818.com/book/29bc5dj/)
 - [我只想上京赶考啊[聊斋]](https://www.shushe818.com/book/29bc5de/)
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.shushe818.com/book/29bc5dc/)
@@ -123,10 +124,9 @@
 - [和治君只是饭搭子的关系](https://www.shushe818.com/book/29b9047/)
 - [如何嫁给当朝首辅](https://www.shushe818.com/book/29b900c/)
 - [[封神]圣人生欲](https://www.shushe818.com/book/29b8vao/)
-- [[综英美]让我统治哥谭！！！](https://www.shushe818.com/book/29b8uhh/)
 - [阴阳师也可以打网球](https://www.shushe818.com/book/29b8u7c/)
 - [和贵志君是世界第一的好朋友](https://www.shushe818.com/book/29b8u11/)
-- [八零恶毒后妈杀疯了](https://www.shushe818.com/book/29b8t5f/)
+- [卷王后妈，八零养娃](https://www.shushe818.com/book/29b8t5f/)
 - [五条老师与他的封建妻子](https://www.shushe818.com/book/29b8sa6/)
 - [在魔法贵族学院当白月光](https://www.shushe818.com/book/29b8qqs/)
 - [我司艺人永不塌房](https://www.shushe818.com/book/29b8pq2/)
@@ -144,7 +144,6 @@
 - [带清冷女主回乡养螃蟹[种田]](https://www.shushe818.com/book/29b840r/)
 - [村霸非要入赘受气包](https://www.shushe818.com/book/29b8376/)
 - [清冷丞相怀了死对头的崽](https://www.shushe818.com/book/29b81r4/)
-- [娶了女装心机太子](https://www.shushe818.com/book/29b81cl/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.shushe818.com/book/29b8181/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.shushe818.com/book/29b80i6/)
 - [被糟蹋的老实人决定反击](https://www.shushe818.com/book/29b7ufn/)
@@ -155,17 +154,14 @@
 - [权宋一只统](https://www.shushe818.com/book/29b7njh/)
 - [爱好和平但狂拆机甲](https://www.shushe818.com/book/29b7geb/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shushe818.com/book/29b6kei/)
-- [假少爷不想活了](https://www.shushe818.com/book/29b6kd5/)
+- [假少爷离开后](https://www.shushe818.com/book/29b6kd5/)
 - [日化人生[科研]](https://www.shushe818.com/book/29b6kcf/)
 - [大瑛弟国](https://www.shushe818.com/book/29b6kak/)
 - [直男咒术师的限制级游戏](https://www.shushe818.com/book/29b6jqj/)
-- [古代种田养娃日常](https://www.shushe818.com/book/29b6jki/)
-- [猫猫也要养家糊口](https://www.shushe818.com/book/29b6jic/)
 - [全民求生:从小木屋到魔法农场](https://www.shushe818.com/book/29b6j1v/)
 - [六零之成了卷王的妹妹](https://www.shushe818.com/book/29b6j1o/)
 - [95美国贵族高中模拟](https://www.shushe818.com/book/29b6iu2/)
 - [巨物致富：回乡开钓场](https://www.shushe818.com/book/29b6irb/)
-- [绝不会喜欢五条君的！](https://www.shushe818.com/book/29b6iqg/)
 - [[娱乐圈]过分美丽的她](https://www.shushe818.com/book/29b6ii6/)
 - [我有一座安全城](https://www.shushe818.com/book/29b6idf/)
 - [我是唯一地上神国](https://www.shushe818.com/book/29b6iah/)

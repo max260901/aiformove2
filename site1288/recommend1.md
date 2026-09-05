@@ -1,13 +1,15 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-05 03:39:42
+更新时间：2026-09-06 03:40:33
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
 - [读读窝小说网](https://www.tiananfoundry.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.tiananfoundry.com/book/1ol4n2i/)
+- [揣崽丧夫后被情敌强娶了](https://www.tiananfoundry.com/book/1ol4n2h/)
 - [我们小区穿末世](https://www.tiananfoundry.com/book/1ol4n2g/)
 - [爱情的肯定句](https://www.tiananfoundry.com/book/1ol4n2f/)
 - [欲加之罪](https://www.tiananfoundry.com/book/1ol4n2e/)
@@ -62,7 +64,6 @@
 - [好心的俄罗斯人](https://www.tiananfoundry.com/book/1ol4n0s/)
 - [谁说踢球就不能成为名侦探[足球]](https://www.tiananfoundry.com/book/1ol4n0r/)
 - [魔尊闭关十年连生十一子？！](https://www.tiananfoundry.com/book/1ol4n0q/)
-- [自知之明](https://www.tiananfoundry.com/book/1ol4n0p/)
 - [你让魔王组建勇者小队？](https://www.tiananfoundry.com/book/1ol4n0o/)
 - [前妻她肯定会后悔](https://www.tiananfoundry.com/book/1ol4n0n/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.tiananfoundry.com/book/1ol4n0m/)
@@ -83,7 +84,6 @@
 - [烈火焚身[巴黎圣母院]](https://www.tiananfoundry.com/book/1ol4n07/)
 - [我们生活玩家是这样的](https://www.tiananfoundry.com/book/1ol4mtr/)
 - [我司艺人永不塌房](https://www.tiananfoundry.com/book/1ol4mt8/)
-- [[综英美]让我统治哥谭！！！](https://www.tiananfoundry.com/book/1ol4mr1/)
 - [原配夫人](https://www.tiananfoundry.com/book/1ol4mqb/)
 - [九零首富的替嫁小媳妇](https://www.tiananfoundry.com/book/1ol4mq9/)
 - [[封神]圣人生欲](https://www.tiananfoundry.com/book/1ol4mq7/)
@@ -91,14 +91,12 @@
 - [始乱终弃清冷首辅后](https://www.tiananfoundry.com/book/1ol4mpm/)
 - [星际团宠小人鱼](https://www.tiananfoundry.com/book/1ol4mol/)
 - [高调装神，猥琐发育](https://www.tiananfoundry.com/book/1ol4moe/)
-- [假少爷不想活了](https://www.tiananfoundry.com/book/1ol4mob/)
+- [假少爷离开后](https://www.tiananfoundry.com/book/1ol4mob/)
 - [直男咒术师的限制级游戏](https://www.tiananfoundry.com/book/1ol4mn6/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.tiananfoundry.com/book/1ol4mlt/)
-- [绝不会喜欢五条君的！](https://www.tiananfoundry.com/book/1ol4lc9/)
 - [六零之成了卷王的妹妹](https://www.tiananfoundry.com/book/1ol4lba/)
 - [路人攻了主角攻［快穿］](https://www.tiananfoundry.com/book/1ol4l9t/)
 - [昭暮](https://www.tiananfoundry.com/book/1ol4bmn/)
-- [古代种田养娃日常](https://www.tiananfoundry.com/book/1ol3m4b/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.tiananfoundry.com/book/1ol3lkn/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.tiananfoundry.com/book/1ol303i/)
 - [[足球]足坛人生模拟器](https://www.tiananfoundry.com/book/1ol2vsi/)
@@ -142,13 +140,12 @@
 - [妻主风流（女尊）](https://www.tiananfoundry.com/book/5lb2b9/)
 - [多梦你一会儿](https://www.tiananfoundry.com/book/5lauo5/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.tiananfoundry.com/book/5lasve/)
-- [娶了女装心机太子](https://www.tiananfoundry.com/book/5lasb9/)
 - [韩团绿卡不想忍了](https://www.tiananfoundry.com/book/5lara5/)
 - [村霸非要入赘受气包](https://www.tiananfoundry.com/book/5laqe3/)
 - [这个位面归我了！[经营]](https://www.tiananfoundry.com/book/5laq07/)
 - [被糟蹋的老实人决定反击](https://www.tiananfoundry.com/book/5laokb/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.tiananfoundry.com/book/5lanq0/)
-- [八零恶毒后妈杀疯了](https://www.tiananfoundry.com/book/5lan99/)
+- [卷王后妈，八零养娃](https://www.tiananfoundry.com/book/5lan99/)
 - [清冷丞相怀了死对头的崽](https://www.tiananfoundry.com/book/5laluo/)
 - [和山神搭伙开农场的日子](https://www.tiananfoundry.com/book/5lakd5/)
 - [心动嫌疑人](https://www.tiananfoundry.com/book/5lakbf/)
@@ -159,7 +156,6 @@
 - [死亡悖论[无限流]](https://www.tiananfoundry.com/book/5ladr1/)
 - [权宋一只统](https://www.tiananfoundry.com/book/5lacfd/)
 - [爱好和平但狂拆机甲](https://www.tiananfoundry.com/book/5lac1s/)
-- [猫猫也要养家糊口](https://www.tiananfoundry.com/book/i47b4/)
 - [高门小婢](https://www.tiananfoundry.com/book/i476h/)
 - [在魔法贵族学院当白月光](https://www.tiananfoundry.com/book/i4712/)
 - [我有一座安全城](https://www.tiananfoundry.com/book/i46uq/)

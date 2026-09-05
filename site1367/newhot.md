@@ -1,7 +1,7 @@
 
 # 奇幻笔趣屋 - 书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-05 03:35:00
+更新时间：2026-09-06 03:35:57
 
 奇幻笔趣屋收录整理最新最全的热门网络小说，提供所有小说首发最新章节免费阅读服务，是书友们最值得收藏的小说阅读网站。
 
@@ -12,6 +12,7 @@
 - [自知之明](https://www.qihuan958.com/book/4rau0uk/)
 - [这个替嫁让我来！](https://www.qihuan958.com/book/4rau0uj/)
 - [清穿女回来后[天幕]](https://www.qihuan958.com/book/4rau0ud/)
+- [穿为龙傲天发妻后](https://www.qihuan958.com/book/4rau0u4/)
 - [禁止继承限制级雌君](https://www.qihuan958.com/book/4rau0ta/)
 - [全世界名为爱的恶意](https://www.qihuan958.com/book/4rau0sj/)
 - [[综英美]和亲友群穿哥谭以后](https://www.qihuan958.com/book/4rau0rn/)
@@ -33,9 +34,7 @@
 - [我比反派先崩坏[快穿]](https://www.qihuan958.com/book/4ratkpb/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.qihuan958.com/book/4ratkg5/)
 - [渡鬼](https://www.qihuan958.com/book/4ratkf5/)
-- [我的烧烤摊超美味[美食]](https://www.qihuan958.com/book/4ratke3/)
 - [cos温迪后玩到真崩铁了](https://www.qihuan958.com/book/4ratgbn/)
-- [从异世界穿回来后](https://www.qihuan958.com/book/4ratg48/)
 - [我有嘉宾](https://www.qihuan958.com/book/4ratfrt/)
 - [娇气点怎么啦？［快穿］](https://www.qihuan958.com/book/4ratfme/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.qihuan958.com/book/4ratf09/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.qihuan958.com/book/4rasq6t/)
 - [昭暮](https://www.qihuan958.com/book/4rasovg/)
 - [你，后室管理员](https://www.qihuan958.com/book/4rasl1j/)
-- [星际团宠小人鱼](https://www.qihuan958.com/book/4rasl0k/)
 - [高调装神，猥琐发育](https://www.qihuan958.com/book/4rasdul/)
 - [被欺负的老实人[快穿]](https://www.qihuan958.com/book/4ras80h/)
 - [求求你们别吃了](https://www.qihuan958.com/book/4ras7t2/)
@@ -300,7 +298,6 @@
 - [与前妻上了同档综艺](https://www.qihuan958.com/book/4raqpso/)
 - [金发室友有肌肤饥渴症](https://www.qihuan958.com/book/4raqpsj/)
 - [贵族学院的直男跟班](https://www.qihuan958.com/book/4raqppk/)
-- [多梦你一会儿](https://www.qihuan958.com/book/4raqpp3/)
 - [月光白](https://www.qihuan958.com/book/4raqpn2/)
 - [乙骨同学很好欺负](https://www.qihuan958.com/book/4raqpme/)
 - [禁止对人气角色上限制级mod！！！](https://www.qihuan958.com/book/4raqpir/)
@@ -389,7 +386,6 @@
 - [龙傲天未婚妻不退婚了](https://www.qihuan958.com/book/4raqjri/)
 - [邪神祂总被觊觎](https://www.qihuan958.com/book/4raqjmf/)
 - [少年天师，国外爆红](https://www.qihuan958.com/book/4raqjlb/)
-- [和前女友的心上人he了](https://www.qihuan958.com/book/4raqjko/)
 - [运动番主角模拟器](https://www.qihuan958.com/book/4raqjk9/)
 - [苦咒琉璃](https://www.qihuan958.com/book/4raqjgt/)
 - [表白现场翻车后](https://www.qihuan958.com/book/4raqjc9/)
@@ -420,6 +416,7 @@
 - [神之子与排球的适配性](https://www.qihuan958.com/book/4raqgos/)
 - [末世山居日常](https://www.qihuan958.com/book/4raqgnb/)
 - [青山不渡](https://www.qihuan958.com/book/4raqgi4/)
+- [被阴湿坏女人缠上后](https://www.qihuan958.com/book/4raqggr/)
 - [我靠玛丽苏系统伪装神女](https://www.qihuan958.com/book/4raqgdl/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.qihuan958.com/book/4raqdft/)
 - [我最讨厌打球了！](https://www.qihuan958.com/book/4raqbtn/)
@@ -430,6 +427,7 @@
 - [[足球]小小鸟堂堂来袭](https://www.qihuan958.com/book/4raq4r5/)
 - [青城玩家明明超强却过分谨慎](https://www.qihuan958.com/book/4raq4gd/)
 - [好巧，你也是妹控？[综崩铁]](https://www.qihuan958.com/book/4raq431/)
+- [欢迎来到重生点](https://www.qihuan958.com/book/4raq3cg/)
 - [法外狂猫](https://www.qihuan958.com/book/4raq0v2/)
 - [矩阵干扰](https://www.qihuan958.com/book/4raq0mn/)
 - [侯府打工人](https://www.qihuan958.com/book/4rapvs2/)

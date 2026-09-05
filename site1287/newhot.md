@@ -1,13 +1,14 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-05 03:28:19
+更新时间：2026-09-06 03:29:14
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
 - [随梦小说网](https://www.hzciic.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.hzciic.com/book/1sjvhsj/)
 - [清穿女回来后[天幕]](https://www.hzciic.com/book/1sjvhse/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.hzciic.com/book/1sjvhsc/)
 - [全世界名为爱的恶意](https://www.hzciic.com/book/1sjvhrv/)
@@ -18,6 +19,7 @@
 - [等我吃腻了再倒闭可以吗](https://www.hzciic.com/book/1sjvhr5/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.hzciic.com/book/1sjvhqq/)
 - [禁止继承限制级雌君](https://www.hzciic.com/book/1sjvhqn/)
+- [穿为龙傲天发妻后](https://www.hzciic.com/book/1sjvhqg/)
 - [我骗家里的钱养你啊](https://www.hzciic.com/book/1sjvhqf/)
 - [自知之明](https://www.hzciic.com/book/1sjvhqd/)
 - [躲避原书剧情五年后](https://www.hzciic.com/book/1sjvhpc/)
@@ -26,15 +28,12 @@
 - [暴君偏头痛](https://www.hzciic.com/book/1sjvhmt/)
 - [渡鬼](https://www.hzciic.com/book/1sjvhmm/)
 - [青城玩家明明超强却过分谨慎](https://www.hzciic.com/book/1sjvhm6/)
-- [我的烧烤摊超美味[美食]](https://www.hzciic.com/book/1sjvhlb/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.hzciic.com/book/1sjvhl3/)
 - [你，后室管理员](https://www.hzciic.com/book/1sjvhkr/)
-- [星际团宠小人鱼](https://www.hzciic.com/book/1sjvhjj/)
 - [[封神]圣人生欲](https://www.hzciic.com/book/1sjvhiu/)
 - [被四皇错看成小动物后](https://www.hzciic.com/book/1sjvhim/)
 - [高调装神，猥琐发育](https://www.hzciic.com/book/1sjvhid/)
 - [直男咒术师的限制级游戏](https://www.hzciic.com/book/1sjvhgi/)
-- [从异世界穿回来后](https://www.hzciic.com/book/1sjvhf3/)
 - [京秋婚约](https://www.hzciic.com/book/1sjvhep/)
 - [阴郁路人不想被喜欢](https://www.hzciic.com/book/1sjvhee/)
 - [纯爱宇智波基本恋爱法](https://www.hzciic.com/book/1sjvhd6/)
@@ -405,6 +404,7 @@
 - [神之子与排球的适配性](https://www.hzciic.com/book/621c1c/)
 - [普通高中生，但兼职咒术师](https://www.hzciic.com/book/621c19/)
 - [忍界观察日记](https://www.hzciic.com/book/621c08/)
+- [被阴湿坏女人缠上后](https://www.hzciic.com/book/621bkv/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.hzciic.com/book/6219fp/)
 - [你也没死？](https://www.hzciic.com/book/6218kb/)
 - [青空来信](https://www.hzciic.com/book/6217n9/)
@@ -412,10 +412,8 @@
 - [老公是松散生命体](https://www.hzciic.com/book/6213e5/)
 - [我最讨厌打球了！](https://www.hzciic.com/book/62112q/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.hzciic.com/book/620sb5/)
-- [多梦你一会儿](https://www.hzciic.com/book/620qki/)
 - [误入反派培养直播后](https://www.hzciic.com/book/620pkt/)
 - [[足球]罗蜜第一志愿](https://www.hzciic.com/book/620nqt/)
-- [和前女友的心上人he了](https://www.hzciic.com/book/620i86/)
 - [哥你不能不要我](https://www.hzciic.com/book/6203sr/)
 ## 相关内容
 - [README](/README.md)

@@ -1,13 +1,15 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-09-05 03:23:02
+更新时间：2026-09-06 03:23:52
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。
 
 - [忆想小说网](https://www.bianlishihao.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.bianlishihao.com/book/2vr7aoi/)
+- [和八个男人在极寒游戏求生](https://www.bianlishihao.com/book/2vr7aoh/)
 - [我只想上京赶考啊[聊斋]](https://www.bianlishihao.com/book/2vr7aog/)
 - [我们小区穿末世](https://www.bianlishihao.com/book/2vr7aof/)
 - [在中世纪做奴隶](https://www.bianlishihao.com/book/2vr7aoe/)
@@ -72,7 +74,6 @@
 - [等我吃腻了再倒闭可以吗](https://www.bianlishihao.com/book/2vr7ami/)
 - [烈火焚身[巴黎圣母院]](https://www.bianlishihao.com/book/2vr7amh/)
 - [恐游里的邻居们[万人迷]](https://www.bianlishihao.com/book/2vr7amg/)
-- [自知之明](https://www.bianlishihao.com/book/2vr7amf/)
 - [人，今晚土拨鼠站岗](https://www.bianlishihao.com/book/2vr7ame/)
 - [强取师尊后](https://www.bianlishihao.com/book/2vr7amd/)
 - [康熙宠妃日常](https://www.bianlishihao.com/book/2vr7amc/)
@@ -83,7 +84,6 @@
 - [魔改剧本后我爆火了[娱乐圈]](https://www.bianlishihao.com/book/2vr7am7/)
 - [我们生活玩家是这样的](https://www.bianlishihao.com/book/2vr7ali/)
 - [我司艺人永不塌房](https://www.bianlishihao.com/book/2vr7al0/)
-- [[综英美]让我统治哥谭！！！](https://www.bianlishihao.com/book/2vr7aim/)
 - [原配夫人](https://www.bianlishihao.com/book/2vr7agk/)
 - [始乱终弃清冷首辅后](https://www.bianlishihao.com/book/2vr7agi/)
 - [[封神]圣人生欲](https://www.bianlishihao.com/book/2vr7afq/)
@@ -91,14 +91,12 @@
 - [九零首富的替嫁小媳妇](https://www.bianlishihao.com/book/2vr7af8/)
 - [高调装神，猥琐发育](https://www.bianlishihao.com/book/2vr7adk/)
 - [十九世纪贵族厨房（美食）](https://www.bianlishihao.com/book/2vr7acp/)
-- [假少爷不想活了](https://www.bianlishihao.com/book/2vr7ab9/)
+- [假少爷离开后](https://www.bianlishihao.com/book/2vr7ab9/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.bianlishihao.com/book/2vr7aag/)
 - [直男咒术师的限制级游戏](https://www.bianlishihao.com/book/2vr7a9e/)
 - [六零之成了卷王的妹妹](https://www.bianlishihao.com/book/2vr791i/)
-- [绝不会喜欢五条君的！](https://www.bianlishihao.com/book/2vr791g/)
 - [路人攻了主角攻［快穿］](https://www.bianlishihao.com/book/2vr790a/)
 - [昭暮](https://www.bianlishihao.com/book/2vr6vdd/)
-- [古代种田养娃日常](https://www.bianlishihao.com/book/2vr6ju9/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.bianlishihao.com/book/2vr6jbu/)
 - [上个鬼班[无限]](https://www.bianlishihao.com/book/2vr5ob4/)
 - [[足球]足坛人生模拟器](https://www.bianlishihao.com/book/2vr5ik5/)
@@ -144,12 +142,11 @@
 - [逃出金丝笼，我力挽山河开国称帝](https://www.bianlishihao.com/book/9inuje/)
 - [被糟蹋的老实人决定反击](https://www.bianlishihao.com/book/9intke/)
 - [韩团绿卡不想忍了](https://www.bianlishihao.com/book/9intg4/)
-- [娶了女装心机太子](https://www.bianlishihao.com/book/9int21/)
 - [这个位面归我了！[经营]](https://www.bianlishihao.com/book/9inqf9/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.bianlishihao.com/book/9inouc/)
 - [村霸非要入赘受气包](https://www.bianlishihao.com/book/9inolf/)
 - [清冷丞相怀了死对头的崽](https://www.bianlishihao.com/book/9inojh/)
-- [八零恶毒后妈杀疯了](https://www.bianlishihao.com/book/9inns2/)
+- [卷王后妈，八零养娃](https://www.bianlishihao.com/book/9inns2/)
 - [心动嫌疑人](https://www.bianlishihao.com/book/9inmkv/)
 - [和山神搭伙开农场的日子](https://www.bianlishihao.com/book/9inlhg/)
 - [恶犬攻绑定上司的乖狗系统](https://www.bianlishihao.com/book/9inkip/)
@@ -167,7 +164,6 @@
 - [开局绑定郭奉孝，谋定三国风云](https://www.bianlishihao.com/book/ulgg6/)
 - [海岛求生：生活玩家种田囤货](https://www.bianlishihao.com/book/ulgfv/)
 - [[娱乐圈]过分美丽的她](https://www.bianlishihao.com/book/ulgb1/)
-- [猫猫也要养家糊口](https://www.bianlishihao.com/book/ulg74/)
 - [完蛋！被恨孕男包围了！](https://www.bianlishihao.com/book/ulg2q/)
 - [我有一座安全城](https://www.bianlishihao.com/book/ulfr1/)
 - [高门小婢](https://www.bianlishihao.com/book/ulfk5/)

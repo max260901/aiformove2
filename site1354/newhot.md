@@ -1,7 +1,7 @@
 
 # 阅读大文学 - 弘扬华夏文化的综合小说阅读平台
 
-更新时间：2026-09-05 03:45:10
+更新时间：2026-09-06 03:46:00
 
 阅读大文学致力于弘扬华夏文化，提供丰富的小说资源供免费阅读，涵盖但不限于古典文学、现代文学、当代文学及各类流行小说如言情、都市、玄幻等。
 
@@ -14,6 +14,7 @@
 - [自知之明](https://www.yuedu188.com/book/1egribt/)
 - [[综英美]和亲友群穿哥谭以后](https://www.yuedu188.com/book/1egribh/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.yuedu188.com/book/1egriak/)
+- [穿为龙傲天发妻后](https://www.yuedu188.com/book/1egriag/)
 - [等我吃腻了再倒闭可以吗](https://www.yuedu188.com/book/1egria0/)
 - [清穿女回来后[天幕]](https://www.yuedu188.com/book/1egri9u/)
 - [修仙界都为我神魂颠倒](https://www.yuedu188.com/book/1egrg8e/)
@@ -31,11 +32,9 @@
 - [[足球]番外乐子集](https://www.yuedu188.com/book/1egr8t5/)
 - [我超凶的！[快穿]](https://www.yuedu188.com/book/1egr6ve/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yuedu188.com/book/1egr6ei/)
-- [我的烧烤摊超美味[美食]](https://www.yuedu188.com/book/1egr6ee/)
 - [渡鬼](https://www.yuedu188.com/book/1egr6cm/)
 - [我比反派先崩坏[快穿]](https://www.yuedu188.com/book/1egr65l/)
 - [cos温迪后玩到真崩铁了](https://www.yuedu188.com/book/1egr1n9/)
-- [从异世界穿回来后](https://www.yuedu188.com/book/1egr1ik/)
 - [我有嘉宾](https://www.yuedu188.com/book/1egr18j/)
 - [娇气点怎么啦？［快穿］](https://www.yuedu188.com/book/1egr16s/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.yuedu188.com/book/1egr0fp/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.yuedu188.com/book/1egqbii/)
 - [昭暮](https://www.yuedu188.com/book/1egqapn/)
 - [你，后室管理员](https://www.yuedu188.com/book/1egq81a/)
-- [星际团宠小人鱼](https://www.yuedu188.com/book/1egq7tn/)
 - [高调装神，猥琐发育](https://www.yuedu188.com/book/1egq124/)
 - [反派执迷不悟之后（快穿）](https://www.yuedu188.com/book/1egppeb/)
 - [我在无限游戏里假扮NPC[无限流]](https://www.yuedu188.com/book/1egposg/)
@@ -285,7 +283,6 @@
 - [被四皇错看成小动物后](https://www.yuedu188.com/book/4ku854/)
 - [金发室友有肌肤饥渴症](https://www.yuedu188.com/book/4ku83j/)
 - [奶奶蛋糕店[美食]](https://www.yuedu188.com/book/4ku7vd/)
-- [多梦你一会儿](https://www.yuedu188.com/book/4ku7mq/)
 - [如何在玛丽苏包围圈中生存](https://www.yuedu188.com/book/4ku7l6/)
 - [月光白](https://www.yuedu188.com/book/4ku7l2/)
 - [[综英美]如何获得地球户口](https://www.yuedu188.com/book/4ku7kr/)
@@ -363,7 +360,6 @@
 - [蝴蝶园](https://www.yuedu188.com/book/4ku2j8/)
 - [隔壁班的松田君](https://www.yuedu188.com/book/4ku2de/)
 - [炮灰今天也在加班[快穿]](https://www.yuedu188.com/book/4ku2ct/)
-- [和前女友的心上人he了](https://www.yuedu188.com/book/4ku2bc/)
 - [忍界观察日记](https://www.yuedu188.com/book/4ku2a7/)
 - [当了卧底的我发现遍地熟人](https://www.yuedu188.com/book/4ku296/)
 - [你男朋友我接手了](https://www.yuedu188.com/book/4ku286/)
@@ -405,6 +401,7 @@
 - [小狗向导，世界瑰宝！](https://www.yuedu188.com/book/4ktv5a/)
 - [穿成影后的作死前妻](https://www.yuedu188.com/book/4ktv58/)
 - [虫族治愈师，但恐虫](https://www.yuedu188.com/book/4ktuvo/)
+- [被阴湿坏女人缠上后](https://www.yuedu188.com/book/4ktuv9/)
 - [青山不渡](https://www.yuedu188.com/book/4ktuup/)
 - [[足球]罗蜜第一志愿](https://www.yuedu188.com/book/4ktush/)
 - [救命！猫尾巴藏不住了](https://www.yuedu188.com/book/4ktupg/)
@@ -429,6 +426,7 @@
 - [暴君偏头痛](https://www.yuedu188.com/book/4ktice/)
 - [盛夏晴浓](https://www.yuedu188.com/book/4kti5i/)
 - [[足球]小小鸟堂堂来袭](https://www.yuedu188.com/book/4kth6v/)
+- [欢迎来到重生点](https://www.yuedu188.com/book/4kth47/)
 - [青城玩家明明超强却过分谨慎](https://www.yuedu188.com/book/4ktg3i/)
 - [好巧，你也是妹控？[综崩铁]](https://www.yuedu188.com/book/4ktfq3/)
 - [幼崽假少爷选择回归寒门](https://www.yuedu188.com/book/4kteo9/)

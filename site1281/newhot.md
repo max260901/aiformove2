@@ -1,13 +1,15 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-09-05 03:23:02
+更新时间：2026-09-06 03:23:52
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。
 
 - [忆想小说网](https://www.bianlishihao.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.bianlishihao.com/book/2vr7aoj/)
+- [穿为龙傲天发妻后](https://www.bianlishihao.com/book/2vr7ao9/)
 - [全世界名为爱的恶意](https://www.bianlishihao.com/book/2vr7ao8/)
 - [我骗家里的钱养你啊](https://www.bianlishihao.com/book/2vr7ao7/)
 - [禁止继承限制级雌君](https://www.bianlishihao.com/book/2vr7ao3/)
@@ -20,7 +22,6 @@
 - [等我吃腻了再倒闭可以吗](https://www.bianlishihao.com/book/2vr7ami/)
 - [自知之明](https://www.bianlishihao.com/book/2vr7amf/)
 - [同时扮演贵族学院F4和平民校花](https://www.bianlishihao.com/book/2vr7amb/)
-- [我的烧烤摊超美味[美食]](https://www.bianlishihao.com/book/2vr7alf/)
 - [青城玩家明明超强却过分谨慎](https://www.bianlishihao.com/book/2vr7aku/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.bianlishihao.com/book/2vr7akm/)
 - [暴君偏头痛](https://www.bianlishihao.com/book/2vr7ajs/)
@@ -30,10 +31,8 @@
 - [渡鬼](https://www.bianlishihao.com/book/2vr7ahd/)
 - [你，后室管理员](https://www.bianlishihao.com/book/2vr7agr/)
 - [[封神]圣人生欲](https://www.bianlishihao.com/book/2vr7afq/)
-- [星际团宠小人鱼](https://www.bianlishihao.com/book/2vr7afa/)
 - [被四皇错看成小动物后](https://www.bianlishihao.com/book/2vr7aeh/)
 - [高调装神，猥琐发育](https://www.bianlishihao.com/book/2vr7adk/)
-- [从异世界穿回来后](https://www.bianlishihao.com/book/2vr7acn/)
 - [京秋婚约](https://www.bianlishihao.com/book/2vr7ab2/)
 - [直男咒术师的限制级游戏](https://www.bianlishihao.com/book/2vr7a9e/)
 - [阴郁路人不想被喜欢](https://www.bianlishihao.com/book/2vr7a9d/)
@@ -407,6 +406,7 @@
 - [隔壁班的松田君](https://www.bianlishihao.com/book/9ioihf/)
 - [当了卧底的我发现遍地熟人](https://www.bianlishihao.com/book/9ioida/)
 - [虫族治愈师，但恐虫](https://www.bianlishihao.com/book/9ioicl/)
+- [被阴湿坏女人缠上后](https://www.bianlishihao.com/book/9ioi4s/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.bianlishihao.com/book/9iohae/)
 - [你也没死？](https://www.bianlishihao.com/book/9iofcj/)
 - [老公是松散生命体](https://www.bianlishihao.com/book/9iobe3/)
@@ -414,10 +414,8 @@
 - [青空来信](https://www.bianlishihao.com/book/9ioaua/)
 - [我最讨厌打球了！](https://www.bianlishihao.com/book/9io449/)
 - [误入反派培养直播后](https://www.bianlishihao.com/book/9io3h5/)
-- [多梦你一会儿](https://www.bianlishihao.com/book/9io0i1/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.bianlishihao.com/book/9inu6l/)
 - [[足球]罗蜜第一志愿](https://www.bianlishihao.com/book/9int05/)
-- [和前女友的心上人he了](https://www.bianlishihao.com/book/9inq2g/)
 - [哥你不能不要我](https://www.bianlishihao.com/book/9in9s8/)
 ## 相关内容
 - [README](/README.md)

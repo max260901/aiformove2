@@ -1,13 +1,15 @@
 
 # 国威御林小说_国威御林小说小说在线阅读
 
-更新时间：2026-09-05 03:26:58
+更新时间：2026-09-06 03:27:53
 
 国威御林小说是拥有海量的完结全本小说作品, 提供热门小说排行榜免费在线阅读, 每日更新言情、都市、穿越、青春、悬疑等作品连载。
 
 - [国威御林小说](https://www.guoweiyulin.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.guoweiyulin.com/book/360q2i2/)
+- [和八个男人在极寒游戏求生](https://www.guoweiyulin.com/book/360q2i1/)
 - [万人嫌从末世回来了](https://www.guoweiyulin.com/book/360q2hv/)
 - [[全职高手]治疗什么的不干了！](https://www.guoweiyulin.com/book/360q2hu/)
 - [穿咒术，但杀猴现场](https://www.guoweiyulin.com/book/360q2hq/)
@@ -21,7 +23,6 @@
 - [八零法医，带全家致富](https://www.guoweiyulin.com/book/360q2h9/)
 - [大佬的漂亮老婆回来带崽了[八零]](https://www.guoweiyulin.com/book/360q2h3/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.guoweiyulin.com/book/360q2gu/)
-- [自知之明](https://www.guoweiyulin.com/book/360q2gs/)
 - [娘娘扶摇直上](https://www.guoweiyulin.com/book/360q2gr/)
 - [魔尊闭关十年连生十一子？！](https://www.guoweiyulin.com/book/360q2go/)
 - [穿为龙傲天发妻后](https://www.guoweiyulin.com/book/360q2gj/)
@@ -91,7 +92,7 @@
 - [在卷王和废物之间选择做吉祥物](https://www.guoweiyulin.com/book/360p0a8/)
 - [昭暮](https://www.guoweiyulin.com/book/360ot0g/)
 - [从维多利亚时代开始](https://www.guoweiyulin.com/book/360osiq/)
-- [假少爷不想活了](https://www.guoweiyulin.com/book/360om0b/)
+- [假少爷离开后](https://www.guoweiyulin.com/book/360om0b/)
 - [食明](https://www.guoweiyulin.com/book/360odk2/)
 - [诡话第一boss](https://www.guoweiyulin.com/book/360oab0/)
 - [专业女配的自我修养（快穿）](https://www.guoweiyulin.com/book/360o8qg/)
@@ -130,7 +131,7 @@
 - [我187了，你敢见我吗？](https://www.guoweiyulin.com/book/360mln2/)
 - [五条老师与他的封建妻子](https://www.guoweiyulin.com/book/360ml4n/)
 - [和姐姐的前女友欢愉后](https://www.guoweiyulin.com/book/360mkj4/)
-- [八零恶毒后妈杀疯了](https://www.guoweiyulin.com/book/360mj2v/)
+- [卷王后妈，八零养娃](https://www.guoweiyulin.com/book/360mj2v/)
 - [我司艺人永不塌房](https://www.guoweiyulin.com/book/360mhqa/)
 - [[封神]圣人生欲](https://www.guoweiyulin.com/book/360mgqq/)
 - [朕也要被强制吗？](https://www.guoweiyulin.com/book/360m9uc/)
@@ -138,11 +139,9 @@
 - [在重生文里考科举](https://www.guoweiyulin.com/book/360m70d/)
 - [韩团绿卡不想忍了](https://www.guoweiyulin.com/book/360m60o/)
 - [妻主风流（女尊）](https://www.guoweiyulin.com/book/360m5ut/)
-- [[综英美]让我统治哥谭！！！](https://www.guoweiyulin.com/book/360m2s9/)
 - [死亡悖论[无限流]](https://www.guoweiyulin.com/book/360m2f3/)
 - [这个位面归我了！[经营]](https://www.guoweiyulin.com/book/360m1r4/)
 - [心动嫌疑人](https://www.guoweiyulin.com/book/360m1ou/)
-- [娶了女装心机太子](https://www.guoweiyulin.com/book/360m03c/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.guoweiyulin.com/book/360lujm/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.guoweiyulin.com/book/360ltht/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.guoweiyulin.com/book/360ltf6/)
@@ -156,7 +155,6 @@
 - [权宋一只统](https://www.guoweiyulin.com/book/360lk0o/)
 - [爱好和平但狂拆机甲](https://www.guoweiyulin.com/book/360lcr8/)
 - [六零之成了卷王的妹妹](https://www.guoweiyulin.com/book/360khe8/)
-- [古代种田养娃日常](https://www.guoweiyulin.com/book/360khbu/)
 - [路人攻了主角攻［快穿］](https://www.guoweiyulin.com/book/360khad/)
 - [[娱乐圈]过分美丽的她](https://www.guoweiyulin.com/book/360kh29/)
 - [大瑛弟国](https://www.guoweiyulin.com/book/360kgs5/)
@@ -165,13 +163,11 @@
 - [巨物致富：回乡开钓场](https://www.guoweiyulin.com/book/360kgju/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.guoweiyulin.com/book/360kgjd/)
 - [五十年代港城日常](https://www.guoweiyulin.com/book/360kgd9/)
-- [绝不会喜欢五条君的！](https://www.guoweiyulin.com/book/360kg3b/)
 - [我是唯一地上神国](https://www.guoweiyulin.com/book/360kfv7/)
 - [海岛求生：生活玩家种田囤货](https://www.guoweiyulin.com/book/360kfuu/)
 - [我有一座安全城](https://www.guoweiyulin.com/book/360kfs6/)
 - [老实人妻，但顶级魅魔](https://www.guoweiyulin.com/book/360kfen/)
 - [95美国贵族高中模拟](https://www.guoweiyulin.com/book/360kfeb/)
-- [猫猫也要养家糊口](https://www.guoweiyulin.com/book/360kf78/)
 - [日化人生[科研]](https://www.guoweiyulin.com/book/360kejm/)
 - [高门小婢](https://www.guoweiyulin.com/book/360kehk/)
 - [成为养成系练习生后](https://www.guoweiyulin.com/book/360kebr/)

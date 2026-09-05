@@ -1,13 +1,19 @@
 
 # 湾里早市时间小说网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-05 03:41:47
+更新时间：2026-09-06 03:42:37
 
 湾里早市时间小说网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
 - [湾里早市时间小说网](https://www.wlzssj.com/)
 
 ## 最新小说
+- [修仙界都为我神魂颠倒](https://www.wlzssj.com/book/4pmffv5/)
+- [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.wlzssj.com/book/4pmffu5/)
+- [穿成年代文奇葩前妻](https://www.wlzssj.com/book/4pmffqu/)
+- [限制文中的社畜女beta](https://www.wlzssj.com/book/4pmffdk/)
+- [穿成漫画反派的我又做错了什么](https://www.wlzssj.com/book/4pmfevl/)
+- [[综英美]蝙蝠崽但脆皮](https://www.wlzssj.com/book/4pmfeog/)
 - [这个替嫁让我来！](https://www.wlzssj.com/book/4pmfea8/)
 - [我拿的可是反派剧本](https://www.wlzssj.com/book/4pmfe5h/)
 - [丧尸王有什么坏心思？](https://www.wlzssj.com/book/4pmfdkp/)
@@ -15,6 +21,7 @@
 - [自知之明](https://www.wlzssj.com/book/4pmfc75/)
 - [清穿女回来后[天幕]](https://www.wlzssj.com/book/4pmfc69/)
 - [等我吃腻了再倒闭可以吗](https://www.wlzssj.com/book/4pmfc5r/)
+- [穿为龙傲天发妻后](https://www.wlzssj.com/book/4pmfc50/)
 - [全世界名为爱的恶意](https://www.wlzssj.com/book/4pmfc4c/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.wlzssj.com/book/4pmfc3s/)
 - [禁止继承限制级雌君](https://www.wlzssj.com/book/4pmfc2p/)
@@ -29,7 +36,6 @@
 - [阴郁路人不想被喜欢](https://www.wlzssj.com/book/4pmf0sp/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.wlzssj.com/book/4pmf074/)
 - [不义世界都是我马甲[综英美]](https://www.wlzssj.com/book/4pmf00a/)
-- [从异世界穿回来后](https://www.wlzssj.com/book/4pmevml/)
 - [我有嘉宾](https://www.wlzssj.com/book/4pmev4g/)
 - [[综武侠]风流](https://www.wlzssj.com/book/4pmeuat/)
 - [孤独症崽崽穿越到狗血爽文里[穿书]](https://www.wlzssj.com/book/4pmet6o/)
@@ -39,7 +45,6 @@
 - [离开那个混蛋后](https://www.wlzssj.com/book/4pmeq9u/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wlzssj.com/book/4pmeocf/)
 - [渡鬼](https://www.wlzssj.com/book/4pmeo97/)
-- [我的烧烤摊超美味[美食]](https://www.wlzssj.com/book/4pmeo7d/)
 - [穿成反派的亡夫后[虫族]](https://www.wlzssj.com/book/4pmen2g/)
 - [氪成酒厂股东了怎么办](https://www.wlzssj.com/book/4pmemr2/)
 - [衍生穿越合订本](https://www.wlzssj.com/book/4pmemnj/)
@@ -271,7 +276,6 @@
 - [想听越前君向我告白](https://www.wlzssj.com/book/4pmcdhn/)
 - [人在综漫，但崩铁马甲](https://www.wlzssj.com/book/4pmcdhk/)
 - [[综英美]小玉有话说](https://www.wlzssj.com/book/4pmcddp/)
-- [多梦你一会儿](https://www.wlzssj.com/book/4pmcdc6/)
 - [与清冷O协议结婚后她失忆了](https://www.wlzssj.com/book/4pmcdb8/)
 - [拯救美强惨女主进行时[快穿]](https://www.wlzssj.com/book/4pmcd3f/)
 - [异种大食堂[无限]](https://www.wlzssj.com/book/4pmcd2b/)
@@ -305,7 +309,6 @@
 - [[综英美]穿越后和小红鸟灵魂互换了](https://www.wlzssj.com/book/4pmcaud/)
 - [一觉醒来老公变男大了](https://www.wlzssj.com/book/4pmcaie/)
 - [下堂驸马追妻实录](https://www.wlzssj.com/book/4pmcaar/)
-- [和前女友的心上人he了](https://www.wlzssj.com/book/4pmca9u/)
 - [从伟大航道到黑暗大陆](https://www.wlzssj.com/book/4pmca4v/)
 - [[全职高手]问就是没钱](https://www.wlzssj.com/book/4pmca2l/)
 - [这死beta老说我们不可能](https://www.wlzssj.com/book/4pmca16/)
@@ -395,6 +398,7 @@
 - [放开那个黑暗哨兵！](https://www.wlzssj.com/book/4pmc44l/)
 - [普通高中生，但兼职咒术师](https://www.wlzssj.com/book/4pmc3pb/)
 - [我靠玛丽苏系统伪装神女](https://www.wlzssj.com/book/4pmc3mg/)
+- [被阴湿坏女人缠上后](https://www.wlzssj.com/book/4pmc3hn/)
 - [国舅太难追了](https://www.wlzssj.com/book/4pmc3a7/)
 - [高冷影后逼我标记她](https://www.wlzssj.com/book/4pmc39l/)
 - [让我再吃一口](https://www.wlzssj.com/book/4pmc34a/)
@@ -426,6 +430,7 @@
 - [柯学剧本杀，但恋爱流打法](https://www.wlzssj.com/book/4pmbrfa/)
 - [矩阵干扰](https://www.wlzssj.com/book/4pmbr24/)
 - [法外狂猫](https://www.wlzssj.com/book/4pmbq55/)
+- [欢迎来到重生点](https://www.wlzssj.com/book/4pmbq0k/)
 - [盛夏晴浓](https://www.wlzssj.com/book/4pmbpdk/)
 - [好兄弟暴富后非要跟我结婚](https://www.wlzssj.com/book/4pmbni3/)
 - [我，剑圣，养生中，勿扰](https://www.wlzssj.com/book/4pmbl2g/)
@@ -443,7 +448,6 @@
 - [[封神]圣人生欲](https://www.wlzssj.com/book/4pm9vuc/)
 - [误入反派培养直播后](https://www.wlzssj.com/book/4pm9va0/)
 - [被四皇错看成小动物后](https://www.wlzssj.com/book/4pm9ul5/)
-- [星际团宠小人鱼](https://www.wlzssj.com/book/4pm9u6f/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1381/index.md)

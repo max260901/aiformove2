@@ -1,7 +1,7 @@
 
 # 泡泡中文书社-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-05 03:38:14
+更新时间：2026-09-06 03:39:07
 
 泡泡中文书社是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -16,6 +16,7 @@
 - [禁止继承限制级雌君](https://www.shushe818.com/book/29bc5f6/)
 - [[综英美]和亲友群穿哥谭以后](https://www.shushe818.com/book/29bc5eq/)
 - [自知之明](https://www.shushe818.com/book/29bc5dp/)
+- [穿为龙傲天发妻后](https://www.shushe818.com/book/29bc5ce/)
 - [修仙界都为我神魂颠倒](https://www.shushe818.com/book/29bc3df/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.shushe818.com/book/29bc39c/)
 - [穿成年代文奇葩前妻](https://www.shushe818.com/book/29bc31m/)
@@ -31,11 +32,9 @@
 - [[足球]番外乐子集](https://www.shushe818.com/book/29bbrui/)
 - [我超凶的！[快穿]](https://www.shushe818.com/book/29bbq4a/)
 - [我比反派先崩坏[快穿]](https://www.shushe818.com/book/29bbp9o/)
-- [我的烧烤摊超美味[美食]](https://www.shushe818.com/book/29bbp14/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shushe818.com/book/29bbp07/)
 - [渡鬼](https://www.shushe818.com/book/29bbou8/)
 - [cos温迪后玩到真崩铁了](https://www.shushe818.com/book/29bbkrs/)
-- [从异世界穿回来后](https://www.shushe818.com/book/29bbkk4/)
 - [我有嘉宾](https://www.shushe818.com/book/29bbkde/)
 - [娇气点怎么啦？［快穿］](https://www.shushe818.com/book/29bbk8t/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.shushe818.com/book/29bbjj6/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.shushe818.com/book/29baul5/)
 - [昭暮](https://www.shushe818.com/book/29batkp/)
 - [你，后室管理员](https://www.shushe818.com/book/29baprb/)
-- [星际团宠小人鱼](https://www.shushe818.com/book/29baph2/)
 - [高调装神，猥琐发育](https://www.shushe818.com/book/29baim3/)
 - [某横滨的时间操纵](https://www.shushe818.com/book/29bachk/)
 - [求求你们别吃了](https://www.shushe818.com/book/29bac4j/)
@@ -274,7 +272,6 @@
 - [[综英美]小玉有话说](https://www.shushe818.com/book/29b90nj/)
 - [大美人怀了enigma上司的崽](https://www.shushe818.com/book/29b90mb/)
 - [小傻子［无限］](https://www.shushe818.com/book/29b90m9/)
-- [多梦你一会儿](https://www.shushe818.com/book/29b90fl/)
 - [月光白](https://www.shushe818.com/book/29b90f8/)
 - [限时心动](https://www.shushe818.com/book/29b90f7/)
 - [好好做1](https://www.shushe818.com/book/29b90e2/)
@@ -375,7 +372,6 @@
 - [[崩铁]自恋值拉满穿越被水仙了](https://www.shushe818.com/book/29b8p58/)
 - [贵族学院F4中的第四人](https://www.shushe818.com/book/29b8p25/)
 - [骑！就要骑在宿敌头上作威作福](https://www.shushe818.com/book/29b8p1v/)
-- [和前女友的心上人he了](https://www.shushe818.com/book/29b8p1q/)
 - [在家不许汪汪大叫](https://www.shushe818.com/book/29b8p0b/)
 - [超忆症大佬在古代破案](https://www.shushe818.com/book/29b8oun/)
 - [重生之哑妻](https://www.shushe818.com/book/29b8osn/)
@@ -414,6 +410,7 @@
 - [每天都在和太宰互换身体](https://www.shushe818.com/book/29b8lnk/)
 - [放开那个黑暗哨兵！](https://www.shushe818.com/book/29b8llg/)
 - [[足球]罗蜜第一志愿](https://www.shushe818.com/book/29b8lkj/)
+- [被阴湿坏女人缠上后](https://www.shushe818.com/book/29b8lj3/)
 - [虫族治愈师，但恐虫](https://www.shushe818.com/book/29b8lfa/)
 - [举朝上下为我的神仙人设头疼中](https://www.shushe818.com/book/29b8ldo/)
 - [救命！猫尾巴藏不住了](https://www.shushe818.com/book/29b8l66/)
@@ -429,6 +426,7 @@
 - [幼崽假少爷选择回归寒门](https://www.shushe818.com/book/29b8asj/)
 - [盛夏晴浓](https://www.shushe818.com/book/29b8a8e/)
 - [好巧，你也是妹控？[综崩铁]](https://www.shushe818.com/book/29b88vs/)
+- [欢迎来到重生点](https://www.shushe818.com/book/29b88h8/)
 - [青城玩家明明超强却过分谨慎](https://www.shushe818.com/book/29b86b2/)
 - [侯府打工人](https://www.shushe818.com/book/29b852b/)
 - [法外狂猫](https://www.shushe818.com/book/29b84u0/)

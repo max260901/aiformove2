@@ -1,13 +1,15 @@
 
 # 积家健康小说 - 无弹窗无广告小说在线阅读
 
-更新时间：2026-09-05 03:28:37
+更新时间：2026-09-06 03:29:33
 
 积家健康小说提供一个干净简洁的平台让您享受无弹窗无广告的小说在线阅读体验。无论是在线阅读还是下载小说，都是完全免费的。
 
 - [积家健康小说](https://www.jijiajk.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.jijiajk.com/book/3ab2t4u/)
+- [揣崽丧夫后被情敌强娶了](https://www.jijiajk.com/book/3ab2t38/)
 - [怨明月不独照](https://www.jijiajk.com/book/3ab2pof/)
 - [前妻她肯定会后悔](https://www.jijiajk.com/book/3ab2poe/)
 - [二次分化后他怀了死对头的崽](https://www.jijiajk.com/book/3ab2pod/)
@@ -59,7 +61,6 @@
 - [乖乖女的杂货铺[八零]](https://www.jijiajk.com/book/3ab2pkn/)
 - [我只想上京赶考啊[聊斋]](https://www.jijiajk.com/book/3ab2pkm/)
 - [从1951开始](https://www.jijiajk.com/book/3ab2pki/)
-- [自知之明](https://www.jijiajk.com/book/3ab2pkh/)
 - [谁说踢球就不能成为名侦探[足球]](https://www.jijiajk.com/book/3ab2pkb/)
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.jijiajk.com/book/3ab2pk8/)
 - [失忆后和死对头有了崽](https://www.jijiajk.com/book/3ab2pk5/)
@@ -106,7 +107,6 @@
 - [死对头又在挑衅我](https://www.jijiajk.com/book/3ab0e7k/)
 - [苏娘子汴京摆摊日常（美食）](https://www.jijiajk.com/book/3ab0dst/)
 - [路人攻了主角攻［快穿］](https://www.jijiajk.com/book/3ab0d6r/)
-- [[综英美]让我统治哥谭！！！](https://www.jijiajk.com/book/3ab0cqu/)
 - [开局绑定郭奉孝，谋定三国风云](https://www.jijiajk.com/book/3ab0cpn/)
 - [美貌单出，杀穿港娱［八零］](https://www.jijiajk.com/book/3ab0cfc/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.jijiajk.com/book/3ab0c5m/)
@@ -138,26 +138,22 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.jijiajk.com/book/3aav31p/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.jijiajk.com/book/3aav2cq/)
 - [被糟蹋的老实人决定反击](https://www.jijiajk.com/book/3aav160/)
-- [娶了女装心机太子](https://www.jijiajk.com/book/3aauvqi/)
 - [和山神搭伙开农场的日子](https://www.jijiajk.com/book/3aauv9r/)
 - [村霸非要入赘受气包](https://www.jijiajk.com/book/3aauv8m/)
 - [假意逢承](https://www.jijiajk.com/book/3aausoe/)
 - [恶犬攻绑定上司的乖狗系统](https://www.jijiajk.com/book/3aauo44/)
 - [权宋一只统](https://www.jijiajk.com/book/3aaunqe/)
-- [绝不会喜欢五条君的！](https://www.jijiajk.com/book/3aauln3/)
 - [爱好和平但狂拆机甲](https://www.jijiajk.com/book/3aaui9j/)
 - [你让魔王组建勇者小队？](https://www.jijiajk.com/book/3aaufoq/)
 - [在民俗惊悚片被诸神庇护](https://www.jijiajk.com/book/3aatj93/)
 - [星际团宠小人鱼](https://www.jijiajk.com/book/3aatj10/)
-- [假少爷不想活了](https://www.jijiajk.com/book/3aatisa/)
+- [假少爷离开后](https://www.jijiajk.com/book/3aatisa/)
 - [九零首富的替嫁小媳妇](https://www.jijiajk.com/book/3aatirm/)
-- [八零恶毒后妈杀疯了](https://www.jijiajk.com/book/3aatirf/)
+- [卷王后妈，八零养娃](https://www.jijiajk.com/book/3aatirf/)
 - [[封神]圣人生欲](https://www.jijiajk.com/book/3aatin5/)
-- [古代种田养娃日常](https://www.jijiajk.com/book/3aatin1/)
 - [十九世纪贵族厨房（美食）](https://www.jijiajk.com/book/3aatik0/)
 - [海岛求生：生活玩家种田囤货](https://www.jijiajk.com/book/3aatij1/)
 - [日化人生[科研]](https://www.jijiajk.com/book/3aatibf/)
-- [猫猫也要养家糊口](https://www.jijiajk.com/book/3aati9b/)
 - [始乱终弃清冷首辅后](https://www.jijiajk.com/book/3aati43/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.jijiajk.com/book/3aati1u/)
 - [[娱乐圈]过分美丽的她](https://www.jijiajk.com/book/3aati0n/)

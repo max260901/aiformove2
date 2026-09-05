@@ -1,13 +1,15 @@
 
 # 笔架中文小说_书友必备的无弹窗小说阅读网
 
-更新时间：2026-09-05 03:23:20
+更新时间：2026-09-06 03:24:10
 
 笔架中文小说致力于打造国内最权威免费小说阅读网, 提供小说在线阅读, 小说TXT下载, 网站页面清爽简洁是广大网络小说爱好者必备的小说阅读网。
 
 - [笔架中文小说](https://www.bijia188.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.bijia188.com/book/6tolmq6/)
+- [揣崽丧夫后被情敌强娶了](https://www.bijia188.com/book/6tolmq5/)
 - [爱情的肯定句](https://www.bijia188.com/book/6tolmq1/)
 - [死遁APP](https://www.bijia188.com/book/6tolmq0/)
 - [欲加之罪](https://www.bijia188.com/book/6tolmpv/)
@@ -38,7 +40,6 @@
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.bijia188.com/book/6tolmo1/)
 - [[综英美]和亲友群穿哥谭以后](https://www.bijia188.com/book/6tolmo0/)
 - [万人嫌从末世回来了](https://www.bijia188.com/book/6tolmnu/)
-- [自知之明](https://www.bijia188.com/book/6tolmno/)
 - [恐游作精女配求生指南](https://www.bijia188.com/book/6tolmnm/)
 - [怨明月不独照](https://www.bijia188.com/book/6tolmnh/)
 - [夫人每天都在伪装](https://www.bijia188.com/book/6tolmng/)
@@ -122,11 +123,10 @@
 - [和贵志君是世界第一的好朋友](https://www.bijia188.com/book/6toihsh/)
 - [多梦你一会儿](https://www.bijia188.com/book/6toihs0/)
 - [如何嫁给当朝首辅](https://www.bijia188.com/book/6toiho5/)
-- [[综英美]让我统治哥谭！！！](https://www.bijia188.com/book/6toih79/)
 - [[封神]圣人生欲](https://www.bijia188.com/book/6toih01/)
 - [阴阳师也可以打网球](https://www.bijia188.com/book/6toigla/)
 - [和治君只是饭搭子的关系](https://www.bijia188.com/book/6toigfd/)
-- [八零恶毒后妈杀疯了](https://www.bijia188.com/book/6toidef/)
+- [卷王后妈，八零养娃](https://www.bijia188.com/book/6toidef/)
 - [在魔法贵族学院当白月光](https://www.bijia188.com/book/6toidea/)
 - [五条老师与他的封建妻子](https://www.bijia188.com/book/6toicge/)
 - [我187了，你敢见我吗？](https://www.bijia188.com/book/6toibdv/)
@@ -146,7 +146,6 @@
 - [[崩铁]请给玩家一个准确的血条！](https://www.bijia188.com/book/6tohjdu/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.bijia188.com/book/6tohj9g/)
 - [清冷丞相怀了死对头的崽](https://www.bijia188.com/book/6tohi2i/)
-- [娶了女装心机太子](https://www.bijia188.com/book/6tohhup/)
 - [被糟蹋的老实人决定反击](https://www.bijia188.com/book/6tohflo/)
 - [和山神搭伙开农场的日子](https://www.bijia188.com/book/6tohfdt/)
 - [趁她之危](https://www.bijia188.com/book/6tohd8l/)
@@ -157,19 +156,16 @@
 - [海岛求生：生活玩家种田囤货](https://www.bijia188.com/book/6tog5ji/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.bijia188.com/book/6tog5c5/)
 - [[娱乐圈]过分美丽的她](https://www.bijia188.com/book/6tog56i/)
-- [古代种田养娃日常](https://www.bijia188.com/book/6tog4o5/)
 - [清澈女大的六零年代](https://www.bijia188.com/book/6tog4ek/)
 - [全民求生:从小木屋到魔法农场](https://www.bijia188.com/book/6tog4a1/)
-- [假少爷不想活了](https://www.bijia188.com/book/6tog46n/)
+- [假少爷离开后](https://www.bijia188.com/book/6tog46n/)
 - [我有一座安全城](https://www.bijia188.com/book/6tog44v/)
-- [猫猫也要养家糊口](https://www.bijia188.com/book/6tog43v/)
 - [六零之成了卷王的妹妹](https://www.bijia188.com/book/6tog3vm/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.bijia188.com/book/6tog3lg/)
 - [我是唯一地上神国](https://www.bijia188.com/book/6tog3i4/)
 - [日化人生[科研]](https://www.bijia188.com/book/6tog3d1/)
 - [95美国贵族高中模拟](https://www.bijia188.com/book/6tog3ch/)
 - [大瑛弟国](https://www.bijia188.com/book/6tog3aa/)
-- [绝不会喜欢五条君的！](https://www.bijia188.com/book/6tog32h/)
 - [直男咒术师的限制级游戏](https://www.bijia188.com/book/6tog31j/)
 - [高门小婢](https://www.bijia188.com/book/6tog2n0/)
 - [巨物致富：回乡开钓场](https://www.bijia188.com/book/6tog2kh/)

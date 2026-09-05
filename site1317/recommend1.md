@@ -1,13 +1,15 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-05 03:47:25
+更新时间：2026-09-06 03:48:16
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。
 
 - [作品思路客](https://www.zuopin666.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.zuopin666.com/book/8befhkk/)
+- [和八个男人在极寒游戏求生](https://www.zuopin666.com/book/8befhkj/)
 - [怨明月不独照](https://www.zuopin666.com/book/8befhki/)
 - [病美人重生日记](https://www.zuopin666.com/book/8befhkh/)
 - [夫人每天都在伪装](https://www.zuopin666.com/book/8befhkg/)
@@ -42,7 +44,6 @@
 - [烈火焚身[巴黎圣母院]](https://www.zuopin666.com/book/8befhjj/)
 - [等我吃腻了再倒闭可以吗](https://www.zuopin666.com/book/8befhji/)
 - [星露谷，但日本战国](https://www.zuopin666.com/book/8befhjh/)
-- [自知之明](https://www.zuopin666.com/book/8befhjg/)
 - [娘娘扶摇直上](https://www.zuopin666.com/book/8befhjf/)
 - [全世界名为爱的恶意](https://www.zuopin666.com/book/8befhje/)
 - [占有欲Daddy是我老公？](https://www.zuopin666.com/book/8befhjd/)
@@ -82,7 +83,6 @@
 - [大佬的漂亮老婆回来带崽了[八零]](https://www.zuopin666.com/book/8befhia/)
 - [恐游里的邻居们[万人迷]](https://www.zuopin666.com/book/8befhi9/)
 - [我司艺人永不塌房](https://www.zuopin666.com/book/8befhhs/)
-- [[综英美]让我统治哥谭！！！](https://www.zuopin666.com/book/8befhhi/)
 - [我们生活玩家是这样的](https://www.zuopin666.com/book/8befhhe/)
 - [星际团宠小人鱼](https://www.zuopin666.com/book/8befhcl/)
 - [[封神]圣人生欲](https://www.zuopin666.com/book/8befhcb/)
@@ -91,14 +91,12 @@
 - [十九世纪贵族厨房（美食）](https://www.zuopin666.com/book/8befhbj/)
 - [始乱终弃清冷首辅后](https://www.zuopin666.com/book/8befhan/)
 - [高调装神，猥琐发育](https://www.zuopin666.com/book/8befhaf/)
-- [假少爷不想活了](https://www.zuopin666.com/book/8befhad/)
+- [假少爷离开后](https://www.zuopin666.com/book/8befhad/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.zuopin666.com/book/8befh7s/)
 - [直男咒术师的限制级游戏](https://www.zuopin666.com/book/8befh71/)
 - [六零之成了卷王的妹妹](https://www.zuopin666.com/book/8befftp/)
-- [绝不会喜欢五条君的！](https://www.zuopin666.com/book/8beffth/)
 - [路人攻了主角攻［快穿］](https://www.zuopin666.com/book/8beffqi/)
 - [昭暮](https://www.zuopin666.com/book/8bef68s/)
-- [古代种田养娃日常](https://www.zuopin666.com/book/8beer7n/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.zuopin666.com/book/8beeqsd/)
 - [[足球]足坛人生模拟器](https://www.zuopin666.com/book/8beds13/)
 - [上个鬼班[无限]](https://www.zuopin666.com/book/8bedqbs/)
@@ -144,9 +142,8 @@
 - [多梦你一会儿](https://www.zuopin666.com/book/qns012/)
 - [被糟蹋的老实人决定反击](https://www.zuopin666.com/book/qnrv9o/)
 - [韩团绿卡不想忍了](https://www.zuopin666.com/book/qnruu6/)
-- [娶了女装心机太子](https://www.zuopin666.com/book/qnrtgk/)
 - [清冷丞相怀了死对头的崽](https://www.zuopin666.com/book/qnrrnk/)
-- [八零恶毒后妈杀疯了](https://www.zuopin666.com/book/qnrr1i/)
+- [卷王后妈，八零养娃](https://www.zuopin666.com/book/qnrr1i/)
 - [这个位面归我了！[经营]](https://www.zuopin666.com/book/qnrq5t/)
 - [村霸非要入赘受气包](https://www.zuopin666.com/book/qnrq1o/)
 - [和山神搭伙开农场的日子](https://www.zuopin666.com/book/qnrp22/)
@@ -168,7 +165,6 @@
 - [[娱乐圈]过分美丽的她](https://www.zuopin666.com/book/2limn2/)
 - [清澈女大的六零年代](https://www.zuopin666.com/book/2lim78/)
 - [完蛋！被恨孕男包围了！](https://www.zuopin666.com/book/2lim5n/)
-- [猫猫也要养家糊口](https://www.zuopin666.com/book/2lilum/)
 - [我有一座安全城](https://www.zuopin666.com/book/8hsh1/)
 - [海岛求生：生活玩家种田囤货](https://www.zuopin666.com/book/8hsb6/)
 - [在魔法贵族学院当白月光](https://www.zuopin666.com/book/8hs8n/)

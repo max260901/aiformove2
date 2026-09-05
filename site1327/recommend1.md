@@ -1,13 +1,15 @@
 
 # 家家福顶点书包 - 免费TXT小说下载, 手机电子书资源
 
-更新时间：2026-09-05 03:28:51
+更新时间：2026-09-06 03:29:47
 
 家家福顶点书包为您提供最新最全的小说资源，包括但不限于txt电子书、手机txt小说下载等服务，所有内容均支持全本免费下载，是小说爱好者的理想选择。
 
 - [家家福顶点书包](https://www.jjfbaijia.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.jjfbaijia.com/book/8hhvkuk/)
+- [和八个男人在极寒游戏求生](https://www.jjfbaijia.com/book/8hhvkuj/)
 - [国师](https://www.jjfbaijia.com/book/8hhvkui/)
 - [穿为龙傲天发妻后](https://www.jjfbaijia.com/book/8hhvkuh/)
 - [失忆后和死对头有了崽](https://www.jjfbaijia.com/book/8hhvkug/)
@@ -39,7 +41,6 @@
 - [[原神]魔法使恋爱指南](https://www.jjfbaijia.com/book/8hhvktm/)
 - [二次分化后他怀了死对头的崽](https://www.jjfbaijia.com/book/8hhvktl/)
 - [[综英美]哥谭市民，在线抽卡](https://www.jjfbaijia.com/book/8hhvktk/)
-- [自知之明](https://www.jjfbaijia.com/book/8hhvktj/)
 - [如何正确哄睡暴君](https://www.jjfbaijia.com/book/8hhvkti/)
 - [八零法医，带全家致富](https://www.jjfbaijia.com/book/8hhvkth/)
 - [双生子反派的端水抑郁妈[九零]](https://www.jjfbaijia.com/book/8hhvktg/)
@@ -83,7 +84,6 @@
 - [禁止继承限制级雌君](https://www.jjfbaijia.com/book/8hhvks9/)
 - [我们生活玩家是这样的](https://www.jjfbaijia.com/book/8hhvkrp/)
 - [我司艺人永不塌房](https://www.jjfbaijia.com/book/8hhvkpq/)
-- [[综英美]让我统治哥谭！！！](https://www.jjfbaijia.com/book/8hhvkpo/)
 - [[封神]圣人生欲](https://www.jjfbaijia.com/book/8hhvkmp/)
 - [原配夫人](https://www.jjfbaijia.com/book/8hhvkmk/)
 - [始乱终弃清冷首辅后](https://www.jjfbaijia.com/book/8hhvkm6/)
@@ -91,14 +91,12 @@
 - [星际团宠小人鱼](https://www.jjfbaijia.com/book/8hhvkl5/)
 - [十九世纪贵族厨房（美食）](https://www.jjfbaijia.com/book/8hhvkkl/)
 - [高调装神，猥琐发育](https://www.jjfbaijia.com/book/8hhvkkh/)
-- [假少爷不想活了](https://www.jjfbaijia.com/book/8hhvkkd/)
+- [假少爷离开后](https://www.jjfbaijia.com/book/8hhvkkd/)
 - [直男咒术师的限制级游戏](https://www.jjfbaijia.com/book/8hhvki1/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.jjfbaijia.com/book/8hhvkha/)
 - [六零之成了卷王的妹妹](https://www.jjfbaijia.com/book/8hhvj8h/)
-- [绝不会喜欢五条君的！](https://www.jjfbaijia.com/book/8hhvj89/)
 - [路人攻了主角攻［快穿］](https://www.jjfbaijia.com/book/8hhvj53/)
 - [昭暮](https://www.jjfbaijia.com/book/8hhv9iq/)
-- [古代种田养娃日常](https://www.jjfbaijia.com/book/8hhuuo1/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.jjfbaijia.com/book/8hhuubg/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.jjfbaijia.com/book/8hhts2v/)
 - [[足球]足坛人生模拟器](https://www.jjfbaijia.com/book/8hhtrc9/)
@@ -142,11 +140,10 @@
 - [妻主风流（女尊）](https://www.jjfbaijia.com/book/rbdo4n/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.jjfbaijia.com/book/rbdjpe/)
 - [多梦你一会儿](https://www.jjfbaijia.com/book/rbdjeh/)
-- [娶了女装心机太子](https://www.jjfbaijia.com/book/rbdivk/)
 - [韩团绿卡不想忍了](https://www.jjfbaijia.com/book/rbdibq/)
 - [这个位面归我了！[经营]](https://www.jjfbaijia.com/book/rbdfuj/)
 - [被糟蹋的老实人决定反击](https://www.jjfbaijia.com/book/rbdegq/)
-- [八零恶毒后妈杀疯了](https://www.jjfbaijia.com/book/rbdec6/)
+- [卷王后妈，八零养娃](https://www.jjfbaijia.com/book/rbdec6/)
 - [清冷丞相怀了死对头的崽](https://www.jjfbaijia.com/book/rbddu2/)
 - [村霸非要入赘受气包](https://www.jjfbaijia.com/book/rbdddt/)
 - [和山神搭伙开农场的日子](https://www.jjfbaijia.com/book/rbdd5l/)
@@ -172,7 +169,6 @@
 - [海岛求生：生活玩家种田囤货](https://www.jjfbaijia.com/book/2nh7um/)
 - [高门小婢](https://www.jjfbaijia.com/book/8o4pt/)
 - [大瑛弟国](https://www.jjfbaijia.com/book/8o4fa/)
-- [猫猫也要养家糊口](https://www.jjfbaijia.com/book/8o4f1/)
 - [我是唯一地上神国](https://www.jjfbaijia.com/book/8o4dq/)
 - [五十年代港城日常](https://www.jjfbaijia.com/book/8o4ck/)
 ## 相关内容

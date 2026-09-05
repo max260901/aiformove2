@@ -1,13 +1,15 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-09-05 03:31:15
+更新时间：2026-09-06 03:32:11
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
 - [笔趣屋](https://www.kmjike.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.kmjike.com/book/4mlvloj/)
+- [穿为龙傲天发妻后](https://www.kmjike.com/book/4mlvlog/)
 - [同时扮演贵族学院F4和平民校花](https://www.kmjike.com/book/4mlvlod/)
 - [[足球]小小鸟堂堂来袭](https://www.kmjike.com/book/4mlvloc/)
 - [禁止继承限制级雌君](https://www.kmjike.com/book/4mlvlob/)
@@ -23,13 +25,11 @@
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kmjike.com/book/4mlvlll/)
 - [躲避原书剧情五年后](https://www.kmjike.com/book/4mlvlkt/)
 - [青城玩家明明超强却过分谨慎](https://www.kmjike.com/book/4mlvlke/)
-- [我的烧烤摊超美味[美食]](https://www.kmjike.com/book/4mlvlkc/)
 - [[综英美]让我统治哥谭！！！](https://www.kmjike.com/book/4mlvlj6/)
 - [失而复得的白月光[快穿]](https://www.kmjike.com/book/4mlvlir/)
 - [暴君偏头痛](https://www.kmjike.com/book/4mlvlhg/)
 - [渡鬼](https://www.kmjike.com/book/4mlvlha/)
 - [[封神]圣人生欲](https://www.kmjike.com/book/4mlvlgr/)
-- [星际团宠小人鱼](https://www.kmjike.com/book/4mlvlgg/)
 - [被四皇错看成小动物后](https://www.kmjike.com/book/4mlvlgd/)
 - [你，后室管理员](https://www.kmjike.com/book/4mlvlep/)
 - [高调装神，猥琐发育](https://www.kmjike.com/book/4mlvlef/)
@@ -37,7 +37,6 @@
 - [直男咒术师的限制级游戏](https://www.kmjike.com/book/4mlvld8/)
 - [京秋婚约](https://www.kmjike.com/book/4mlvlci/)
 - [阴郁路人不想被喜欢](https://www.kmjike.com/book/4mlvlaj/)
-- [从异世界穿回来后](https://www.kmjike.com/book/4mlvl9p/)
 - [求生游戏：当邪神成为生活玩家后](https://www.kmjike.com/book/4mlvl94/)
 - [昭暮](https://www.kmjike.com/book/4mlvacs/)
 - [修仙界都为我神魂颠倒](https://www.kmjike.com/book/4mlv06c/)
@@ -405,6 +404,7 @@
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.kmjike.com/book/f27q8s/)
 - [举朝上下为我的神仙人设头疼中](https://www.kmjike.com/book/f27q7c/)
 - [隔壁班的松田君](https://www.kmjike.com/book/f27psr/)
+- [被阴湿坏女人缠上后](https://www.kmjike.com/book/f27pn7/)
 - [虫族治愈师，但恐虫](https://www.kmjike.com/book/f27p5c/)
 - [当了卧底的我发现遍地熟人](https://www.kmjike.com/book/f27ovi/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.kmjike.com/book/f27ok4/)
@@ -414,10 +414,8 @@
 - [老公是松散生命体](https://www.kmjike.com/book/f27hkv/)
 - [我最讨厌打球了！](https://www.kmjike.com/book/f27dpj/)
 - [误入反派培养直播后](https://www.kmjike.com/book/f278ku/)
-- [多梦你一会儿](https://www.kmjike.com/book/f2760j/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.kmjike.com/book/f275tl/)
 - [[足球]罗蜜第一志愿](https://www.kmjike.com/book/f274bp/)
-- [和前女友的心上人he了](https://www.kmjike.com/book/f27285/)
 - [哥你不能不要我](https://www.kmjike.com/book/f26ig6/)
 ## 相关内容
 - [README](/README.md)

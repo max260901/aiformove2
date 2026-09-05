@@ -1,7 +1,7 @@
 
 # 国威御林小说_国威御林小说小说在线阅读
 
-更新时间：2026-09-05 03:26:58
+更新时间：2026-09-06 03:27:53
 
 国威御林小说是拥有海量的完结全本小说作品, 提供热门小说排行榜免费在线阅读, 每日更新言情、都市、穿越、青春、悬疑等作品连载。
 
@@ -11,6 +11,7 @@
 - [[崩铁]请给玩家一个准确的血条！](https://www.guoweiyulin.com/book/360q2gu/)
 - [自知之明](https://www.guoweiyulin.com/book/360q2gs/)
 - [这个替嫁让我来！](https://www.guoweiyulin.com/book/360q2gm/)
+- [穿为龙傲天发妻后](https://www.guoweiyulin.com/book/360q2gj/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.guoweiyulin.com/book/360q2gg/)
 - [禁止继承限制级雌君](https://www.guoweiyulin.com/book/360q2fg/)
 - [全世界名为爱的恶意](https://www.guoweiyulin.com/book/360q2ef/)
@@ -22,7 +23,6 @@
 - [暴君偏头痛](https://www.guoweiyulin.com/book/360q1is/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.guoweiyulin.com/book/360q1ik/)
 - [渡鬼](https://www.guoweiyulin.com/book/360q1g6/)
-- [我的烧烤摊超美味[美食]](https://www.guoweiyulin.com/book/360q1et/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.guoweiyulin.com/book/360q06n/)
 - [修仙界都为我神魂颠倒](https://www.guoweiyulin.com/book/360q06h/)
 - [穿成年代文奇葩前妻](https://www.guoweiyulin.com/book/360q01a/)
@@ -40,10 +40,8 @@
 - [我超凶的！[快穿]](https://www.guoweiyulin.com/book/360pn21/)
 - [我有嘉宾](https://www.guoweiyulin.com/book/360pmca/)
 - [我比反派先崩坏[快穿]](https://www.guoweiyulin.com/book/360pm8s/)
-- [从异世界穿回来后](https://www.guoweiyulin.com/book/360plkl/)
 - [cos温迪后玩到真崩铁了](https://www.guoweiyulin.com/book/360phrh/)
 - [你，后室管理员](https://www.guoweiyulin.com/book/360ph9h/)
-- [星际团宠小人鱼](https://www.guoweiyulin.com/book/360ph67/)
 - [娇气点怎么啦？［快穿］](https://www.guoweiyulin.com/book/360ph5q/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.guoweiyulin.com/book/360pgft/)
 - [不义世界都是我马甲[综英美]](https://www.guoweiyulin.com/book/360pgcj/)
@@ -337,7 +335,6 @@
 - [书穿男主给反派卖萌苟命](https://www.guoweiyulin.com/book/360mo3r/)
 - [微臣怜惜公主](https://www.guoweiyulin.com/book/360mo0f/)
 - [[综武侠]有间民宿](https://www.guoweiyulin.com/book/360mo0e/)
-- [多梦你一会儿](https://www.guoweiyulin.com/book/360mnu3/)
 - [她来赎罪](https://www.guoweiyulin.com/book/360mnr8/)
 - [女帝起家前录](https://www.guoweiyulin.com/book/360mnql/)
 - [太子妃她不干了](https://www.guoweiyulin.com/book/360mnpv/)
@@ -384,6 +381,7 @@
 - [小寡夫还有两幅面孔](https://www.guoweiyulin.com/book/360mkt6/)
 - [骑！就要骑在宿敌头上作威作福](https://www.guoweiyulin.com/book/360mkrt/)
 - [[足球]能不能好好模拟游戏](https://www.guoweiyulin.com/book/360mkri/)
+- [被阴湿坏女人缠上后](https://www.guoweiyulin.com/book/360mkr0/)
 - [咒术师，但队友是侦探](https://www.guoweiyulin.com/book/360mkq9/)
 - [普通高中生，但兼职咒术师](https://www.guoweiyulin.com/book/360mkq8/)
 - [在重男兄弟间夹缝求生](https://www.guoweiyulin.com/book/360mkm6/)
@@ -415,7 +413,6 @@
 - [青山不渡](https://www.guoweiyulin.com/book/360mi55/)
 - [小狗向导，世界瑰宝！](https://www.guoweiyulin.com/book/360mi4v/)
 - [直播捏玩具被榜一大哥撅了](https://www.guoweiyulin.com/book/360mi3d/)
-- [和前女友的心上人he了](https://www.guoweiyulin.com/book/360mi06/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.guoweiyulin.com/book/360mhvk/)
 - [[封神]圣人生欲](https://www.guoweiyulin.com/book/360mgqq/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.guoweiyulin.com/book/360mgqb/)
@@ -431,6 +428,7 @@
 - [刀子精手心的人偶崽崽](https://www.guoweiyulin.com/book/360m450/)
 - [[综英美]让我统治哥谭！！！](https://www.guoweiyulin.com/book/360m2s9/)
 - [盛夏晴浓](https://www.guoweiyulin.com/book/360m2ls/)
+- [欢迎来到重生点](https://www.guoweiyulin.com/book/360lvms/)
 - [好巧，你也是妹控？[综崩铁]](https://www.guoweiyulin.com/book/360luah/)
 - [好兄弟暴富后非要跟我结婚](https://www.guoweiyulin.com/book/360lr6f/)
 - [求生游戏：当邪神成为生活玩家后](https://www.guoweiyulin.com/book/360lqoe/)
