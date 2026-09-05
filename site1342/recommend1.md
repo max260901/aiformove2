@@ -1,13 +1,15 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-09-05 03:22:32
+更新时间：2026-09-06 03:23:23
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。
 
 - [阿舍岛小说](https://www.ashedao.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.ashedao.com/book/99d3aa2/)
+- [揣崽丧夫后被情敌强娶了](https://www.ashedao.com/book/99d3aa1/)
 - [八零法医，带全家致富](https://www.ashedao.com/book/99d3a9u/)
 - [谁说踢球就不能成为名侦探[足球]](https://www.ashedao.com/book/99d3a9r/)
 - [欲和离？夫君他目不识丁](https://www.ashedao.com/book/99d3a9p/)
@@ -38,7 +40,6 @@
 - [末世八年春，游戏降临](https://www.ashedao.com/book/99d3a7v/)
 - [强取师尊后](https://www.ashedao.com/book/99d3a7u/)
 - [魔咒请说普通话[西幻]](https://www.ashedao.com/book/99d3a7s/)
-- [自知之明](https://www.ashedao.com/book/99d3a7o/)
 - [欲加之罪](https://www.ashedao.com/book/99d3a7m/)
 - [[洪荒]成为太清妹妹后](https://www.ashedao.com/book/99d3a7j/)
 - [烈火焚身[巴黎圣母院]](https://www.ashedao.com/book/99d3a7i/)
@@ -91,7 +92,7 @@
 - [在卷王和废物之间选择做吉祥物](https://www.ashedao.com/book/99d2818/)
 - [昭暮](https://www.ashedao.com/book/99d24rt/)
 - [从维多利亚时代开始](https://www.ashedao.com/book/99d245p/)
-- [假少爷不想活了](https://www.ashedao.com/book/99d1tn0/)
+- [假少爷离开后](https://www.ashedao.com/book/99d1tn0/)
 - [食明](https://www.ashedao.com/book/99d1le9/)
 - [诡话第一boss](https://www.ashedao.com/book/99d1hvg/)
 - [十九世纪贵族厨房（美食）](https://www.ashedao.com/book/99d1go2/)
@@ -130,7 +131,7 @@
 - [我187了，你敢见我吗？](https://www.ashedao.com/book/99cvv84/)
 - [五条老师与他的封建妻子](https://www.ashedao.com/book/99cvurr/)
 - [和姐姐的前女友欢愉后](https://www.ashedao.com/book/99cvrvj/)
-- [八零恶毒后妈杀疯了](https://www.ashedao.com/book/99cvqva/)
+- [卷王后妈，八零养娃](https://www.ashedao.com/book/99cvqva/)
 - [[封神]圣人生欲](https://www.ashedao.com/book/99cvnte/)
 - [我司艺人永不塌房](https://www.ashedao.com/book/99cvnqa/)
 - [朕也要被强制吗？](https://www.ashedao.com/book/99cvit7/)
@@ -140,12 +141,10 @@
 - [妻主风流（女尊）](https://www.ashedao.com/book/99cvbdd/)
 - [心动嫌疑人](https://www.ashedao.com/book/99cva5c/)
 - [这个位面归我了！[经营]](https://www.ashedao.com/book/99cv8tv/)
-- [[综英美]让我统治哥谭！！！](https://www.ashedao.com/book/99cv8ni/)
 - [死亡悖论[无限流]](https://www.ashedao.com/book/99cv867/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.ashedao.com/book/99cv7jm/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.ashedao.com/book/99cv7cc/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.ashedao.com/book/99cv6v1/)
-- [娶了女装心机太子](https://www.ashedao.com/book/99cv5t3/)
 - [清冷丞相怀了死对头的崽](https://www.ashedao.com/book/99cv50q/)
 - [死遁的亡夫们都回来了](https://www.ashedao.com/book/99cv4kt/)
 - [被糟蹋的老实人决定反击](https://www.ashedao.com/book/99cv4j8/)
@@ -157,7 +156,6 @@
 - [爱好和平但狂拆机甲](https://www.ashedao.com/book/99cul80/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ashedao.com/book/99ctp5o/)
 - [海岛求生：生活玩家种田囤货](https://www.ashedao.com/book/99ctokm/)
-- [猫猫也要养家糊口](https://www.ashedao.com/book/99ctobt/)
 - [日化人生[科研]](https://www.ashedao.com/book/99cto61/)
 - [六零之成了卷王的妹妹](https://www.ashedao.com/book/99ctnve/)
 - [巨物致富：回乡开钓场](https://www.ashedao.com/book/99ctntj/)
@@ -166,14 +164,12 @@
 - [五十年代港城日常](https://www.ashedao.com/book/99ctnhc/)
 - [我是唯一地上神国](https://www.ashedao.com/book/99ctnbb/)
 - [清澈女大的六零年代](https://www.ashedao.com/book/99ctn3c/)
-- [古代种田养娃日常](https://www.ashedao.com/book/99ctn1l/)
 - [成为养成系练习生后](https://www.ashedao.com/book/99ctn03/)
 - [[娱乐圈]过分美丽的她](https://www.ashedao.com/book/99ctmsm/)
 - [老实人妻，但顶级魅魔](https://www.ashedao.com/book/99ctmn7/)
 - [95美国贵族高中模拟](https://www.ashedao.com/book/99ctmjl/)
 - [路人攻了主角攻［快穿］](https://www.ashedao.com/book/99ctmhc/)
 - [全民求生:从小木屋到魔法农场](https://www.ashedao.com/book/99ctmda/)
-- [绝不会喜欢五条君的！](https://www.ashedao.com/book/99ctm3u/)
 - [高门小婢](https://www.ashedao.com/book/99ctm2g/)
 ## 相关内容
 - [README](/README.md)

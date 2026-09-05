@@ -1,7 +1,7 @@
 
 # 笔看阁-最热门的免费小说网 | 玄幻、网游、言情、穿越、都市全本小说在线阅读
 
-更新时间：2026-09-05 03:25:12
+更新时间：2026-09-06 03:26:03
 
 笔看阁是最热门的免费小说网站之一，专注于提供包括玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读服务。本站承诺不设任何弹窗广告，页面简洁易用，为读者创造一个纯净舒适的阅读环境。
 
@@ -13,6 +13,7 @@
 - [等我吃腻了再倒闭可以吗](https://www.dasenluan.com/book/3jmhklv/)
 - [禁止继承限制级雌君](https://www.dasenluan.com/book/3jmhkl5/)
 - [[足球]小小鸟堂堂来袭](https://www.dasenluan.com/book/3jmhkks/)
+- [穿为龙傲天发妻后](https://www.dasenluan.com/book/3jmhkkq/)
 - [清穿女回来后[天幕]](https://www.dasenluan.com/book/3jmhkkn/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.dasenluan.com/book/3jmhkkb/)
 - [这个替嫁让我来！](https://www.dasenluan.com/book/3jmhkk7/)
@@ -21,7 +22,6 @@
 - [［综英美］蝙蝠崽？我不是啊！](https://www.dasenluan.com/book/3jmhkie/)
 - [暴君偏头痛](https://www.dasenluan.com/book/3jmhjo7/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.dasenluan.com/book/3jmhjns/)
-- [我的烧烤摊超美味[美食]](https://www.dasenluan.com/book/3jmhjm1/)
 - [渡鬼](https://www.dasenluan.com/book/3jmhjkt/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.dasenluan.com/book/3jmhie0/)
 - [修仙界都为我神魂颠倒](https://www.dasenluan.com/book/3jmhic6/)
@@ -40,10 +40,8 @@
 - [我超凶的！[快穿]](https://www.dasenluan.com/book/3jmh98s/)
 - [我有嘉宾](https://www.dasenluan.com/book/3jmh8gl/)
 - [我比反派先崩坏[快穿]](https://www.dasenluan.com/book/3jmh8ct/)
-- [从异世界穿回来后](https://www.dasenluan.com/book/3jmh7s1/)
 - [cos温迪后玩到真崩铁了](https://www.dasenluan.com/book/3jmh40g/)
 - [娇气点怎么啦？［快穿］](https://www.dasenluan.com/book/3jmh3gc/)
-- [星际团宠小人鱼](https://www.dasenluan.com/book/3jmh3e1/)
 - [你，后室管理员](https://www.dasenluan.com/book/3jmh3bc/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.dasenluan.com/book/3jmh2ln/)
 - [不义世界都是我马甲[综英美]](https://www.dasenluan.com/book/3jmh2ff/)
@@ -335,7 +333,6 @@
 - [汉武帝戾太子什么含金量](https://www.dasenluan.com/book/3jmeapv/)
 - [你猜](https://www.dasenluan.com/book/3jmeapt/)
 - [坏女人绑定攻略系统后](https://www.dasenluan.com/book/3jmeakh/)
-- [多梦你一会儿](https://www.dasenluan.com/book/3jmeaiv/)
 - [逆序布鲁斯的好大儿](https://www.dasenluan.com/book/3jmea9r/)
 - [女帝起家前录](https://www.dasenluan.com/book/3jmea5s/)
 - [[HP]我和救世主有个约会](https://www.dasenluan.com/book/3jmea2e/)
@@ -396,6 +393,7 @@
 - [癫骨](https://www.dasenluan.com/book/3jme60s/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.dasenluan.com/book/3jme5tg/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.dasenluan.com/book/3jme5sf/)
+- [被阴湿坏女人缠上后](https://www.dasenluan.com/book/3jme5sb/)
 - [隔壁班的松田君](https://www.dasenluan.com/book/3jme5s7/)
 - [让我再吃一口](https://www.dasenluan.com/book/3jme5pr/)
 - [虫族治愈师，但恐虫](https://www.dasenluan.com/book/3jme5p0/)
@@ -403,7 +401,6 @@
 - [亚当斯与韦恩的适配性](https://www.dasenluan.com/book/3jme5kt/)
 - [神之子与排球的适配性](https://www.dasenluan.com/book/3jme5jn/)
 - [高冷影后逼我标记她](https://www.dasenluan.com/book/3jme5jm/)
-- [和前女友的心上人he了](https://www.dasenluan.com/book/3jme5jk/)
 - [直播捏玩具被榜一大哥撅了](https://www.dasenluan.com/book/3jme5fk/)
 - [普通高中生，但兼职咒术师](https://www.dasenluan.com/book/3jme5ei/)
 - [无能的丈夫们](https://www.dasenluan.com/book/3jme5cd/)
@@ -431,6 +428,7 @@
 - [战死的阿爹回来了[年代]](https://www.dasenluan.com/book/3jmdlf8/)
 - [[综英美]让我统治哥谭！！！](https://www.dasenluan.com/book/3jmdl2f/)
 - [盛夏晴浓](https://www.dasenluan.com/book/3jmdkj1/)
+- [欢迎来到重生点](https://www.dasenluan.com/book/3jmdi08/)
 - [好巧，你也是妹控？[综崩铁]](https://www.dasenluan.com/book/3jmdgie/)
 - [求生游戏：当邪神成为生活玩家后](https://www.dasenluan.com/book/3jmde9k/)
 - [好兄弟暴富后非要跟我结婚](https://www.dasenluan.com/book/3jmde0k/)

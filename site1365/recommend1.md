@@ -1,13 +1,15 @@
 
 # 书城读书网_免费小说在线阅读|无弹窗广告
 
-更新时间：2026-09-05 03:37:10
+更新时间：2026-09-06 03:38:05
 
 书城读书网是最热门的免费小说网站，提供包括玄幻、都市、言情等多种类型的小说在线阅读服务。这里不仅有最新章节的实时更新，还有全面的小说排行榜，让您轻松找到喜欢的作品。阅读体验极佳，全程无弹窗广告干扰，值得收藏！
 
 - [书城读书网](https://www.shucheng168.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.shucheng168.com/book/47fpabq/)
+- [和八个男人在极寒游戏求生](https://www.shucheng168.com/book/47fpabp/)
 - [失忆后和死对头有了崽](https://www.shucheng168.com/book/47fpabm/)
 - [[综英美]和亲友群穿哥谭以后](https://www.shucheng168.com/book/47fpabg/)
 - [禁止继承限制级雌君](https://www.shucheng168.com/book/47fpabe/)
@@ -63,7 +65,6 @@
 - [欲和离？夫君他目不识丁](https://www.shucheng168.com/book/47fpa7n/)
 - [漫画取材所引发的修罗场](https://www.shucheng168.com/book/47fpa7f/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.shucheng168.com/book/47fpa7c/)
-- [自知之明](https://www.shucheng168.com/book/47fpa79/)
 - [世界伏于她刀下[无限]](https://www.shucheng168.com/book/47fpa78/)
 - [恶毒男配只想躺平](https://www.shucheng168.com/book/47fpa71/)
 - [[全职高手]治疗什么的不干了！](https://www.shucheng168.com/book/47fpa6v/)
@@ -120,13 +121,12 @@
 - [我有一座地下城](https://www.shucheng168.com/book/47fm9o9/)
 - [苏娘子汴京摆摊日常（美食）](https://www.shucheng168.com/book/47fm9gj/)
 - [多梦你一会儿](https://www.shucheng168.com/book/47fm56o/)
-- [[综英美]让我统治哥谭！！！](https://www.shucheng168.com/book/47fm510/)
 - [和治君只是饭搭子的关系](https://www.shucheng168.com/book/47fm4s8/)
 - [如何嫁给当朝首辅](https://www.shucheng168.com/book/47fm49q/)
 - [阴阳师也可以打网球](https://www.shucheng168.com/book/47fm3t1/)
 - [[封神]圣人生欲](https://www.shucheng168.com/book/47fm2va/)
 - [和贵志君是世界第一的好朋友](https://www.shucheng168.com/book/47fm2j9/)
-- [八零恶毒后妈杀疯了](https://www.shucheng168.com/book/47fm1s5/)
+- [卷王后妈，八零养娃](https://www.shucheng168.com/book/47fm1s5/)
 - [五条老师与他的封建妻子](https://www.shucheng168.com/book/47fm1kv/)
 - [在魔法贵族学院当白月光](https://www.shucheng168.com/book/47fm1et/)
 - [我187了，你敢见我吗？](https://www.shucheng168.com/book/47flur9/)
@@ -144,7 +144,6 @@
 - [带清冷女主回乡养螃蟹[种田]](https://www.shucheng168.com/book/47fl9oh/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.shucheng168.com/book/47fl80u/)
 - [清冷丞相怀了死对头的崽](https://www.shucheng168.com/book/47fl7g2/)
-- [娶了女装心机太子](https://www.shucheng168.com/book/47fl6m8/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.shucheng168.com/book/47fl69e/)
 - [村霸非要入赘受气包](https://www.shucheng168.com/book/47fl66c/)
 - [被糟蹋的老实人决定反击](https://www.shucheng168.com/book/47fl4q1/)
@@ -157,15 +156,12 @@
 - [直男咒术师的限制级游戏](https://www.shucheng168.com/book/47fjonv/)
 - [成为养成系练习生后](https://www.shucheng168.com/book/47fjomf/)
 - [大瑛弟国](https://www.shucheng168.com/book/47fjoj0/)
-- [古代种田养娃日常](https://www.shucheng168.com/book/47fjohv/)
 - [五十年代港城日常](https://www.shucheng168.com/book/47fjo8s/)
-- [假少爷不想活了](https://www.shucheng168.com/book/47fjnmm/)
+- [假少爷离开后](https://www.shucheng168.com/book/47fjnmm/)
 - [日化人生[科研]](https://www.shucheng168.com/book/47fjnjv/)
 - [高门小婢](https://www.shucheng168.com/book/47fjndg/)
 - [[娱乐圈]过分美丽的她](https://www.shucheng168.com/book/47fjn8q/)
-- [猫猫也要养家糊口](https://www.shucheng168.com/book/47fjn1t/)
 - [巨物致富：回乡开钓场](https://www.shucheng168.com/book/47fjn10/)
-- [绝不会喜欢五条君的！](https://www.shucheng168.com/book/47fjmnc/)
 - [海岛求生：生活玩家种田囤货](https://www.shucheng168.com/book/47fjmmp/)
 - [全民求生:从小木屋到魔法农场](https://www.shucheng168.com/book/47fjmj1/)
 - [我是唯一地上神国](https://www.shucheng168.com/book/47fjmfv/)

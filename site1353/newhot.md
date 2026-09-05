@@ -1,7 +1,7 @@
 
 # 书社1687小说免费-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-05 03:37:58
+更新时间：2026-09-06 03:38:52
 
 书社1687小说免费提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏书社1687小说，享受便捷的小说阅读体验。
 
@@ -9,6 +9,7 @@
 
 ## 最新小说
 - [全世界名为爱的恶意](https://www.shushe1687.com/book/489h9h2/)
+- [穿为龙傲天发妻后](https://www.shushe1687.com/book/489h9gv/)
 - [这个替嫁让我来！](https://www.shushe1687.com/book/489h9g4/)
 - [禁止继承限制级雌君](https://www.shushe1687.com/book/489h9g1/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.shushe1687.com/book/489h9f6/)
@@ -31,11 +32,9 @@
 - [[足球]番外乐子集](https://www.shushe1687.com/book/489gvvd/)
 - [我超凶的！[快穿]](https://www.shushe1687.com/book/489gu30/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shushe1687.com/book/489gtas/)
-- [我的烧烤摊超美味[美食]](https://www.shushe1687.com/book/489gt94/)
 - [我比反派先崩坏[快穿]](https://www.shushe1687.com/book/489gt93/)
 - [渡鬼](https://www.shushe1687.com/book/489gt8l/)
 - [cos温迪后玩到真崩铁了](https://www.shushe1687.com/book/489got8/)
-- [从异世界穿回来后](https://www.shushe1687.com/book/489gokg/)
 - [我有嘉宾](https://www.shushe1687.com/book/489gock/)
 - [娇气点怎么啦？［快穿］](https://www.shushe1687.com/book/489goa1/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.shushe1687.com/book/489gniu/)
@@ -57,7 +56,6 @@
 - [侦探立于百万生命之上](https://www.shushe1687.com/book/489g370/)
 - [特殊魅力值，已到账](https://www.shushe1687.com/book/489g2kk/)
 - [昭暮](https://www.shushe1687.com/book/489g1n0/)
-- [星际团宠小人鱼](https://www.shushe1687.com/book/489fuk7/)
 - [你，后室管理员](https://www.shushe1687.com/book/489fui2/)
 - [高调装神，猥琐发育](https://www.shushe1687.com/book/489fnds/)
 - [穿成猫的咒术高专生活](https://www.shushe1687.com/book/489fge4/)
@@ -275,7 +273,6 @@
 - [社畜，但是天才魔导师](https://www.shushe1687.com/book/489e4m7/)
 - [金发室友有肌肤饥渴症](https://www.shushe1687.com/book/489e4kj/)
 - [贵族学院的直男跟班](https://www.shushe1687.com/book/489e4it/)
-- [多梦你一会儿](https://www.shushe1687.com/book/489e4ge/)
 - [主角对你极度痴迷](https://www.shushe1687.com/book/489e4f7/)
 - [好好做1](https://www.shushe1687.com/book/489e49s/)
 - [陌上炊烟（种田）](https://www.shushe1687.com/book/489e46f/)
@@ -365,7 +362,6 @@
 - [养个诡异当老婆](https://www.shushe1687.com/book/489du5o/)
 - [樋口干部不干了](https://www.shushe1687.com/book/489dtsi/)
 - [御厨传人的小镇饭馆 [美食]](https://www.shushe1687.com/book/489dtr0/)
-- [和前女友的心上人he了](https://www.shushe1687.com/book/489dtpp/)
 - [校草的漂亮亲妈](https://www.shushe1687.com/book/489dtog/)
 - [重生之哑妻](https://www.shushe1687.com/book/489dtk7/)
 - [[全职高手]卸载键在哪里](https://www.shushe1687.com/book/489dtjm/)
@@ -405,6 +401,7 @@
 - [在重男兄弟间夹缝求生](https://www.shushe1687.com/book/489dqsm/)
 - [虫族治愈师，但恐虫](https://www.shushe1687.com/book/489dqru/)
 - [让我再吃一口](https://www.shushe1687.com/book/489dqql/)
+- [被阴湿坏女人缠上后](https://www.shushe1687.com/book/489dqm8/)
 - [普通高中生，但兼职咒术师](https://www.shushe1687.com/book/489dqig/)
 - [失忆后，和五条激情互演](https://www.shushe1687.com/book/489dq63/)
 - [[足球]罗蜜第一志愿](https://www.shushe1687.com/book/489dppr/)
@@ -430,6 +427,7 @@
 - [盛夏晴浓](https://www.shushe1687.com/book/489devo/)
 - [好巧，你也是妹控？[综崩铁]](https://www.shushe1687.com/book/489dcvn/)
 - [青城玩家明明超强却过分谨慎](https://www.shushe1687.com/book/489dcv0/)
+- [欢迎来到重生点](https://www.shushe1687.com/book/489daae/)
 - [侯府打工人](https://www.shushe1687.com/book/489d9i8/)
 - [自大狂](https://www.shushe1687.com/book/489d9b5/)
 - [好兄弟暴富后非要跟我结婚](https://www.shushe1687.com/book/489d95h/)

@@ -1,13 +1,15 @@
 
 # 欣怡书屋 - 免费最新章节小说阅读,全本无弹窗
 
-更新时间：2026-09-05 03:47:07
+更新时间：2026-09-06 03:47:58
 
 欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。
 
 - [欣怡书屋](https://www.znenghs.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.znenghs.com/book/5n2k96k/)
+- [揣崽丧夫后被情敌强娶了](https://www.znenghs.com/book/5n2k96j/)
 - [[全职高手]治疗什么的不干了！](https://www.znenghs.com/book/5n2k96i/)
 - [魔法种田，从退队经营农场开始](https://www.znenghs.com/book/5n2k96h/)
 - [魔尊闭关十年连生十一子？！](https://www.znenghs.com/book/5n2k96g/)
@@ -49,7 +51,6 @@
 - [娘娘扶摇直上](https://www.znenghs.com/book/5n2k95c/)
 - [漫画取材所引发的修罗场](https://www.znenghs.com/book/5n2k95b/)
 - [[足球]小小鸟堂堂来袭](https://www.znenghs.com/book/5n2k95a/)
-- [自知之明](https://www.znenghs.com/book/5n2k959/)
 - [夫人每天都在伪装](https://www.znenghs.com/book/5n2k958/)
 - [病美人重生日记](https://www.znenghs.com/book/5n2k957/)
 - [[原神]魔法使恋爱指南](https://www.znenghs.com/book/5n2k956/)
@@ -81,7 +82,6 @@
 - [同时扮演贵族学院F4和平民校花](https://www.znenghs.com/book/5n2k94b/)
 - [如何正确哄睡暴君](https://www.znenghs.com/book/5n2k94a/)
 - [恶毒男配只想躺平](https://www.znenghs.com/book/5n2k949/)
-- [[综英美]让我统治哥谭！！！](https://www.znenghs.com/book/5n2k93q/)
 - [我们生活玩家是这样的](https://www.znenghs.com/book/5n2k93j/)
 - [我司艺人永不塌房](https://www.znenghs.com/book/5n2k920/)
 - [[封神]圣人生欲](https://www.znenghs.com/book/5n2k8uq/)
@@ -91,14 +91,12 @@
 - [原配夫人](https://www.znenghs.com/book/5n2k8sp/)
 - [十九世纪贵族厨房（美食）](https://www.znenghs.com/book/5n2k8sj/)
 - [高调装神，猥琐发育](https://www.znenghs.com/book/5n2k8sf/)
-- [假少爷不想活了](https://www.znenghs.com/book/5n2k8sd/)
+- [假少爷离开后](https://www.znenghs.com/book/5n2k8sd/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.znenghs.com/book/5n2k8qh/)
 - [直男咒术师的限制级游戏](https://www.znenghs.com/book/5n2k8nt/)
-- [绝不会喜欢五条君的！](https://www.znenghs.com/book/5n2k7fi/)
 - [六零之成了卷王的妹妹](https://www.znenghs.com/book/5n2k7fh/)
 - [路人攻了主角攻［快穿］](https://www.znenghs.com/book/5n2k7cr/)
 - [昭暮](https://www.znenghs.com/book/5n2jtr8/)
-- [古代种田养娃日常](https://www.znenghs.com/book/5n2j7mo/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.znenghs.com/book/5n2j75i/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.znenghs.com/book/5n2iie5/)
 - [[足球]足坛人生模拟器](https://www.znenghs.com/book/5n2ieo0/)
@@ -143,9 +141,8 @@
 - [多梦你一会儿](https://www.znenghs.com/book/i9sfpj/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.znenghs.com/book/i9sf77/)
 - [韩团绿卡不想忍了](https://www.znenghs.com/book/i9sdal/)
-- [娶了女装心机太子](https://www.znenghs.com/book/i9scj0/)
 - [被糟蹋的老实人决定反击](https://www.znenghs.com/book/i9sbm8/)
-- [八零恶毒后妈杀疯了](https://www.znenghs.com/book/i9saao/)
+- [卷王后妈，八零养娃](https://www.znenghs.com/book/i9saao/)
 - [清冷丞相怀了死对头的崽](https://www.znenghs.com/book/i9sa2u/)
 - [这个位面归我了！[经营]](https://www.znenghs.com/book/i9s9g0/)
 - [村霸非要入赘受气包](https://www.znenghs.com/book/i9s975/)
@@ -167,7 +164,6 @@
 - [高门小婢](https://www.znenghs.com/book/1qio1t/)
 - [华夏神明震撼星际](https://www.znenghs.com/book/1qinnm/)
 - [大瑛弟国](https://www.znenghs.com/book/1qine0/)
-- [猫猫也要养家糊口](https://www.znenghs.com/book/1qinbe/)
 - [95美国贵族高中模拟](https://www.znenghs.com/book/5rfun/)
 - [我是唯一地上神国](https://www.znenghs.com/book/5rfri/)
 - [五十年代港城日常](https://www.znenghs.com/book/5rfp6/)

@@ -1,19 +1,23 @@
 
 # 佚名奇书小说 - 免费更新的小说阅读网站
 
-更新时间：2026-09-05 03:44:41
+更新时间：2026-09-06 03:45:30
 
 佚名奇书小说提供全网各类热门小说在线阅读服务，支持免费观看。这里汇集了丰富的小说资源，包括但不限于都市、玄幻、武侠等多种类型，并且保证章节更新及时，页面设计清爽无广告干扰，是广大书友不可多得的好去处。
 
 - [佚名奇书小说](https://www.yimingeduai.com/)
 
 ## 最新小说
+- [[崩铁]这丰饶孽物我当定了！](https://www.yimingeduai.com/book/6adnkm8/)
+- [不义世界都是我马甲[综英美]](https://www.yimingeduai.com/book/6adnkfl/)
+- [[综武侠]风流](https://www.yimingeduai.com/book/6adnios/)
 - [孤独症崽崽穿越到狗血爽文里[穿书]](https://www.yimingeduai.com/book/6adnhod/)
 - [我有嘉宾](https://www.yimingeduai.com/book/6adnhkp/)
 - [我，始皇闺女，未来皇帝，打钱](https://www.yimingeduai.com/book/6adnh7k/)
 - [开局给李世民盘点安史之乱](https://www.yimingeduai.com/book/6adnght/)
 - [自知之明](https://www.yimingeduai.com/book/6adng3q/)
 - [等我吃腻了再倒闭可以吗](https://www.yimingeduai.com/book/6adng3i/)
+- [穿为龙傲天发妻后](https://www.yimingeduai.com/book/6adng2r/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.yimingeduai.com/book/6adng2b/)
 - [清穿女回来后[天幕]](https://www.yimingeduai.com/book/6adng1g/)
 - [禁止继承限制级雌君](https://www.yimingeduai.com/book/6adnfvr/)
@@ -30,7 +34,6 @@
 - [侦探立于百万生命之上](https://www.yimingeduai.com/book/6adn073/)
 - [特殊魅力值，已到账](https://www.yimingeduai.com/book/6admvqa/)
 - [昭暮](https://www.yimingeduai.com/book/6admrqp/)
-- [我的烧烤摊超美味[美食]](https://www.yimingeduai.com/book/6admm3b/)
 - [渡鬼](https://www.yimingeduai.com/book/6admm0s/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yimingeduai.com/book/6admlrd/)
 - [骑！就要骑在宿敌头上作威作福](https://www.yimingeduai.com/book/6admdj6/)
@@ -89,6 +92,7 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.yimingeduai.com/book/6adm3jd/)
 - [[足球]小小鸟堂堂来袭](https://www.yimingeduai.com/book/6adm31n/)
 - [变成鲛人了怎么办](https://www.yimingeduai.com/book/6adm2u1/)
+- [被阴湿坏女人缠上后](https://www.yimingeduai.com/book/6adm2f9/)
 - [[全职高手]卸载键在哪里](https://www.yimingeduai.com/book/6adm28s/)
 - [微臣怜惜公主](https://www.yimingeduai.com/book/6adm1hj/)
 - [逝水](https://www.yimingeduai.com/book/6adm1ap/)
@@ -143,6 +147,7 @@
 - [善逸拒绝成为咒术师](https://www.yimingeduai.com/book/6adlnc8/)
 - [一见倾心[快穿]](https://www.yimingeduai.com/book/6adlnac/)
 - [小亲王他不是吉祥物](https://www.yimingeduai.com/book/6adln0j/)
+- [书呆子扮演渣攻翻车【快穿】](https://www.yimingeduai.com/book/6adlmu7/)
 - [在横滨横行霸道的那些年](https://www.yimingeduai.com/book/6adlmnk/)
 - [被迫跟死对头结婚后](https://www.yimingeduai.com/book/6adlm4p/)
 - [暗恋你](https://www.yimingeduai.com/book/6adlm37/)
@@ -229,7 +234,6 @@
 - [被双胞胎竹马轮番娇养](https://www.yimingeduai.com/book/6adl32u/)
 - [逆序布鲁斯的好大儿](https://www.yimingeduai.com/book/6adl31d/)
 - [迫害系偶像排球部出道中](https://www.yimingeduai.com/book/6adl2vp/)
-- [多梦你一会儿](https://www.yimingeduai.com/book/6adl2mo/)
 - [请别摘下超能力社恐的耳机](https://www.yimingeduai.com/book/6adl213/)
 - [老公是恐怖游戏男主](https://www.yimingeduai.com/book/6adl1ss/)
 - [李玉灯](https://www.yimingeduai.com/book/6adl1da/)
@@ -355,6 +359,7 @@
 - [某横滨的时间操纵](https://www.yimingeduai.com/book/6adk0es/)
 - [娇婚惯养](https://www.yimingeduai.com/book/6adk07q/)
 - [绑定惊吓系统但对象狂涨好感有救吗](https://www.yimingeduai.com/book/6adk02l/)
+- [欢迎来到重生点](https://www.yimingeduai.com/book/6adk018/)
 - [陌上炊烟（种田）](https://www.yimingeduai.com/book/6adjv0m/)
 - [开局一间小卖部[经营]](https://www.yimingeduai.com/book/6adjuqu/)
 - [金手指随机抽取中（快穿）](https://www.yimingeduai.com/book/6adjuam/)
@@ -438,12 +443,11 @@
 - [万人迷穿到耽美女配](https://www.yimingeduai.com/book/6adjck9/)
 - [穿成影后的作死前妻](https://www.yimingeduai.com/book/6adjcjo/)
 - [作为甚尔亡妻的我变成触手了！](https://www.yimingeduai.com/book/6adjcj4/)
-- [和前女友的心上人he了](https://www.yimingeduai.com/book/6adjc9d/)
 - [躲避原书剧情五年后](https://www.yimingeduai.com/book/6adjc8t/)
 - [在猫猫星当珍稀动物](https://www.yimingeduai.com/book/6adjc7f/)
+- [丧尸老婆喂养日记](https://www.yimingeduai.com/book/6adj7kf/)
 - [高调装神，猥琐发育](https://www.yimingeduai.com/book/6adi75l/)
 - [你，后室管理员](https://www.yimingeduai.com/book/6adi752/)
-- [星际团宠小人鱼](https://www.yimingeduai.com/book/6adi74q/)
 - [纯爱宇智波基本恋爱法](https://www.yimingeduai.com/book/6adi70i/)
 - [被四皇错看成小动物后](https://www.yimingeduai.com/book/6adi6s3/)
 - [[封神]圣人生欲](https://www.yimingeduai.com/book/6adi68f/)

@@ -1,7 +1,7 @@
 
 # 文学小说668 - 全球最新最热的小说阅读平台
 
-更新时间：2026-09-05 03:41:01
+更新时间：2026-09-06 03:41:52
 
 文学小说668是全球最新、最热的小说阅读网站之一，汇集了包括言情小说、玄幻小说、穿越小说在内的各类优质小说资源，让读者能够尽情享受阅读的乐趣。
 
@@ -15,6 +15,7 @@
 - [等我吃腻了再倒闭可以吗](https://www.wenxue668.com/book/44ff1fu/)
 - [自知之明](https://www.wenxue668.com/book/44ff1ef/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.wenxue668.com/book/44ff1ed/)
+- [穿为龙傲天发妻后](https://www.wenxue668.com/book/44ff1e8/)
 - [禁止继承限制级雌君](https://www.wenxue668.com/book/44ff1dg/)
 - [修仙界都为我神魂颠倒](https://www.wenxue668.com/book/44fevbj/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.wenxue668.com/book/44fev8t/)
@@ -31,11 +32,9 @@
 - [[足球]番外乐子集](https://www.wenxue668.com/book/44fenvo/)
 - [我超凶的！[快穿]](https://www.wenxue668.com/book/44fem2u/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wenxue668.com/book/44fel8m/)
-- [我的烧烤摊超美味[美食]](https://www.wenxue668.com/book/44fel8l/)
 - [渡鬼](https://www.wenxue668.com/book/44fel8g/)
 - [我比反派先崩坏[快穿]](https://www.wenxue668.com/book/44fel76/)
 - [cos温迪后玩到真崩铁了](https://www.wenxue668.com/book/44fegt0/)
-- [从异世界穿回来后](https://www.wenxue668.com/book/44fegkr/)
 - [我有嘉宾](https://www.wenxue668.com/book/44fegao/)
 - [娇气点怎么啦？［快穿］](https://www.wenxue668.com/book/44feg88/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.wenxue668.com/book/44fefi2/)
@@ -57,7 +56,6 @@
 - [侦探立于百万生命之上](https://www.wenxue668.com/book/44fdrcb/)
 - [特殊魅力值，已到账](https://www.wenxue668.com/book/44fdqhu/)
 - [昭暮](https://www.wenxue668.com/book/44fdpo2/)
-- [星际团宠小人鱼](https://www.wenxue668.com/book/44fdmn7/)
 - [你，后室管理员](https://www.wenxue668.com/book/44fdmc9/)
 - [高调装神，猥琐发育](https://www.wenxue668.com/book/44fdfj3/)
 - [反派执迷不悟之后（快穿）](https://www.wenxue668.com/book/44fd80i/)
@@ -291,7 +289,6 @@
 - [哥你不能不要我](https://www.wenxue668.com/book/44fbreq/)
 - [废土猫猫求生指南](https://www.wenxue668.com/book/44fbr8m/)
 - [奶奶蛋糕店[美食]](https://www.wenxue668.com/book/44fbr7v/)
-- [多梦你一会儿](https://www.wenxue668.com/book/44fbr4b/)
 - [被四皇错看成小动物后](https://www.wenxue668.com/book/44fbqvp/)
 - [陌上炊烟（种田）](https://www.wenxue668.com/book/44fbqu6/)
 - [[封神]圣人生欲](https://www.wenxue668.com/book/44fbqro/)
@@ -381,7 +378,6 @@
 - [御厨传人的小镇饭馆 [美食]](https://www.wenxue668.com/book/44fbl5d/)
 - [[全职高手]卸载键在哪里](https://www.wenxue668.com/book/44fbl55/)
 - [运动番主角模拟器](https://www.wenxue668.com/book/44fbl4o/)
-- [和前女友的心上人he了](https://www.wenxue668.com/book/44fbl26/)
 - [炮灰今天也在加班[快穿]](https://www.wenxue668.com/book/44fbl1t/)
 - [丧尸闻了闻你的恋爱脑](https://www.wenxue668.com/book/44fbkuh/)
 - [校草的漂亮亲妈](https://www.wenxue668.com/book/44fbkt8/)
@@ -412,6 +408,7 @@
 - [国舅太难追了](https://www.wenxue668.com/book/44fbi95/)
 - [让我再吃一口](https://www.wenxue668.com/book/44fbi5n/)
 - [请问夫君你哪位](https://www.wenxue668.com/book/44fbi5b/)
+- [被阴湿坏女人缠上后](https://www.wenxue668.com/book/44fbi37/)
 - [咒术师，但队友是侦探](https://www.wenxue668.com/book/44fbhuj/)
 - [直播捏玩具被榜一大哥撅了](https://www.wenxue668.com/book/44fbhtc/)
 - [举朝上下为我的神仙人设头疼中](https://www.wenxue668.com/book/44fbhpo/)
@@ -429,6 +426,7 @@
 - [[足球]小小鸟堂堂来袭](https://www.wenxue668.com/book/44fb7i3/)
 - [幼崽假少爷选择回归寒门](https://www.wenxue668.com/book/44fb6jq/)
 - [好巧，你也是妹控？[综崩铁]](https://www.wenxue668.com/book/44fb4u7/)
+- [欢迎来到重生点](https://www.wenxue668.com/book/44fb40e/)
 - [青城玩家明明超强却过分谨慎](https://www.wenxue668.com/book/44fb3jh/)
 - [暴君偏头痛](https://www.wenxue668.com/book/44fb1il/)
 - [好兄弟暴富后非要跟我结婚](https://www.wenxue668.com/book/44fb0h6/)

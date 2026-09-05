@@ -1,13 +1,15 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-09-05 03:45:26
+更新时间：2026-09-06 03:46:15
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
 - [阅读小说网](https://www.yuedu687.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.yuedu687.com/book/2bu5j0o/)
+- [和八个男人在极寒游戏求生](https://www.yuedu687.com/book/2bu5j0n/)
 - [[洪荒]成为太清妹妹后](https://www.yuedu687.com/book/2bu5j0m/)
 - [[足球]雏鸟](https://www.yuedu687.com/book/2bu5j0l/)
 - [二次分化后他怀了死对头的崽](https://www.yuedu687.com/book/2bu5j0k/)
@@ -44,7 +46,6 @@
 - [从1951开始](https://www.yuedu687.com/book/2bu5ivl/)
 - [魔改剧本后我爆火了[娱乐圈]](https://www.yuedu687.com/book/2bu5ivk/)
 - [恶毒男配只想躺平](https://www.yuedu687.com/book/2bu5ivj/)
-- [自知之明](https://www.yuedu687.com/book/2bu5ivi/)
 - [占有欲Daddy是我老公？](https://www.yuedu687.com/book/2bu5ivh/)
 - [SSS级异种都是我前任](https://www.yuedu687.com/book/2bu5ivg/)
 - [漫画取材所引发的修罗场](https://www.yuedu687.com/book/2bu5ivf/)
@@ -81,7 +82,6 @@
 - [大佬的漂亮老婆回来带崽了[八零]](https://www.yuedu687.com/book/2bu5iuf/)
 - [魔法种田，从退队经营农场开始](https://www.yuedu687.com/book/2bu5iue/)
 - [病美人重生日记](https://www.yuedu687.com/book/2bu5iud/)
-- [[综英美]让我统治哥谭！！！](https://www.yuedu687.com/book/2bu5it6/)
 - [我们生活玩家是这样的](https://www.yuedu687.com/book/2bu5isd/)
 - [我司艺人永不塌房](https://www.yuedu687.com/book/2bu5iru/)
 - [始乱终弃清冷首辅后](https://www.yuedu687.com/book/2bu5ip1/)
@@ -91,14 +91,12 @@
 - [星际团宠小人鱼](https://www.yuedu687.com/book/2bu5ink/)
 - [[封神]圣人生欲](https://www.yuedu687.com/book/2bu5ine/)
 - [高调装神，猥琐发育](https://www.yuedu687.com/book/2bu5imi/)
-- [假少爷不想活了](https://www.yuedu687.com/book/2bu5imh/)
+- [假少爷离开后](https://www.yuedu687.com/book/2bu5imh/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.yuedu687.com/book/2bu5ill/)
 - [直男咒术师的限制级游戏](https://www.yuedu687.com/book/2bu5iis/)
-- [绝不会喜欢五条君的！](https://www.yuedu687.com/book/2bu5hac/)
 - [六零之成了卷王的妹妹](https://www.yuedu687.com/book/2bu5ha2/)
 - [路人攻了主角攻［快穿］](https://www.yuedu687.com/book/2bu5h87/)
 - [昭暮](https://www.yuedu687.com/book/2bu57l3/)
-- [古代种田养娃日常](https://www.yuedu687.com/book/2bu4snc/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.yuedu687.com/book/2bu4sae/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.yuedu687.com/book/2bu40v1/)
 - [[足球]足坛人生模拟器](https://www.yuedu687.com/book/2bu3j38/)
@@ -143,10 +141,9 @@
 - [多梦你一会儿](https://www.yuedu687.com/book/7j1ck7/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.yuedu687.com/book/7j1cjb/)
 - [韩团绿卡不想忍了](https://www.yuedu687.com/book/7j1b4j/)
-- [娶了女装心机太子](https://www.yuedu687.com/book/7j1ab9/)
 - [被糟蹋的老实人决定反击](https://www.yuedu687.com/book/7j19og/)
 - [这个位面归我了！[经营]](https://www.yuedu687.com/book/7j18tj/)
-- [八零恶毒后妈杀疯了](https://www.yuedu687.com/book/7j17rv/)
+- [卷王后妈，八零养娃](https://www.yuedu687.com/book/7j17rv/)
 - [清冷丞相怀了死对头的崽](https://www.yuedu687.com/book/7j17rs/)
 - [村霸非要入赘受气包](https://www.yuedu687.com/book/7j17ju/)
 - [和山神搭伙开农场的日子](https://www.yuedu687.com/book/7j15l8/)
@@ -160,7 +157,6 @@
 - [权宋一只统](https://www.yuedu687.com/book/7j0sr4/)
 - [爱好和平但狂拆机甲](https://www.yuedu687.com/book/7j0rqf/)
 - [在魔法贵族学院当白月光](https://www.yuedu687.com/book/o9m1p/)
-- [猫猫也要养家糊口](https://www.yuedu687.com/book/o9m07/)
 - [全民求生:从小木屋到魔法农场](https://www.yuedu687.com/book/o9lib/)
 - [清澈女大的六零年代](https://www.yuedu687.com/book/o9lfu/)
 - [[娱乐圈]过分美丽的她](https://www.yuedu687.com/book/o9lcv/)

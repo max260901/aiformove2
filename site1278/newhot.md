@@ -1,14 +1,16 @@
 
 # 紫玉海小说 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-09-05 03:46:49
+更新时间：2026-09-06 03:47:40
 
 紫玉海小说网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
 - [紫玉海小说](https://www.ziyuhai.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.ziyuhai.com/book/84rn5am/)
 - [清穿女回来后[天幕]](https://www.ziyuhai.com/book/84rn5aj/)
+- [穿为龙傲天发妻后](https://www.ziyuhai.com/book/84rn5a9/)
 - [同时扮演贵族学院F4和平民校花](https://www.ziyuhai.com/book/84rn5a8/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.ziyuhai.com/book/84rn59s/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.ziyuhai.com/book/84rn59f/)
@@ -20,16 +22,13 @@
 - [等我吃腻了再倒闭可以吗](https://www.ziyuhai.com/book/84rn591/)
 - [[综英美]和亲友群穿哥谭以后](https://www.ziyuhai.com/book/84rn58k/)
 - [全世界名为爱的恶意](https://www.ziyuhai.com/book/84rn58d/)
-- [从异世界穿回来后](https://www.ziyuhai.com/book/84rn57r/)
 - [暴君偏头痛](https://www.ziyuhai.com/book/84rn57e/)
 - [[综英美]让我统治哥谭！！！](https://www.ziyuhai.com/book/84rn579/)
 - [失而复得的白月光[快穿]](https://www.ziyuhai.com/book/84rn571/)
 - [躲避原书剧情五年后](https://www.ziyuhai.com/book/84rn56h/)
-- [我的烧烤摊超美味[美食]](https://www.ziyuhai.com/book/84rn554/)
 - [渡鬼](https://www.ziyuhai.com/book/84rn54o/)
 - [青城玩家明明超强却过分谨慎](https://www.ziyuhai.com/book/84rn54h/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.ziyuhai.com/book/84rn54a/)
-- [星际团宠小人鱼](https://www.ziyuhai.com/book/84rn52t/)
 - [[封神]圣人生欲](https://www.ziyuhai.com/book/84rn52m/)
 - [你，后室管理员](https://www.ziyuhai.com/book/84rn52k/)
 - [被四皇错看成小动物后](https://www.ziyuhai.com/book/84rn521/)
@@ -406,6 +405,7 @@
 - [直播捏玩具被榜一大哥撅了](https://www.ziyuhai.com/book/q2q4r9/)
 - [作家与读者](https://www.ziyuhai.com/book/q2q43a/)
 - [隔壁班的松田君](https://www.ziyuhai.com/book/q2q3rs/)
+- [被阴湿坏女人缠上后](https://www.ziyuhai.com/book/q2q3m1/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.ziyuhai.com/book/q2q3hh/)
 - [[足球]在比利时我们只玩天赋](https://www.ziyuhai.com/book/q2q3ds/)
 - [你也没死？](https://www.ziyuhai.com/book/q2pvnh/)
@@ -415,9 +415,7 @@
 - [我最讨厌打球了！](https://www.ziyuhai.com/book/q2poph/)
 - [误入反派培养直播后](https://www.ziyuhai.com/book/q2pm7h/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.ziyuhai.com/book/q2pj08/)
-- [多梦你一会儿](https://www.ziyuhai.com/book/q2pi25/)
 - [[足球]罗蜜第一志愿](https://www.ziyuhai.com/book/q2pfeg/)
-- [和前女友的心上人he了](https://www.ziyuhai.com/book/q2pc5e/)
 - [哥你不能不要我](https://www.ziyuhai.com/book/q2os1a/)
 ## 相关内容
 - [README](/README.md)

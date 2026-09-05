@@ -1,18 +1,21 @@
 
 # 积家健康小说 - 无弹窗无广告小说在线阅读
 
-更新时间：2026-09-05 03:28:37
+更新时间：2026-09-06 03:29:33
 
 积家健康小说提供一个干净简洁的平台让您享受无弹窗无广告的小说在线阅读体验。无论是在线阅读还是下载小说，都是完全免费的。
 
 - [积家健康小说](https://www.jijiajk.com/)
 
 ## 最新小说
+- [网球带给齐木的灾难](https://www.jijiajk.com/book/3ab2ub3/)
+- [当甚尔转生成继国](https://www.jijiajk.com/book/3ab2s96/)
 - [节能型社恐靠交友存活打排球](https://www.jijiajk.com/book/3ab2rh0/)
 - [渣攻他疯了［快穿］](https://www.jijiajk.com/book/3ab2qul/)
 - [[足球]番外乐子集](https://www.jijiajk.com/book/3ab2qf2/)
 - [清穿女回来后[天幕]](https://www.jijiajk.com/book/3ab2po9/)
 - [等我吃腻了再倒闭可以吗](https://www.jijiajk.com/book/3ab2pns/)
+- [穿为龙傲天发妻后](https://www.jijiajk.com/book/3ab2pnd/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.jijiajk.com/book/3ab2pm8/)
 - [自知之明](https://www.jijiajk.com/book/3ab2pkh/)
 - [禁止继承限制级雌君](https://www.jijiajk.com/book/3ab2pk3/)
@@ -23,7 +26,6 @@
 - [娇气点怎么啦？［快穿］](https://www.jijiajk.com/book/3ab2j6p/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.jijiajk.com/book/3ab2ick/)
 - [不义世界都是我马甲[综英美]](https://www.jijiajk.com/book/3ab2i6j/)
-- [从异世界穿回来后](https://www.jijiajk.com/book/3ab2hoc/)
 - [阴郁路人不想被喜欢](https://www.jijiajk.com/book/3ab2h0a/)
 - [我有嘉宾](https://www.jijiajk.com/book/3ab2gqo/)
 - [[综武侠]风流](https://www.jijiajk.com/book/3ab2gj9/)
@@ -41,7 +43,6 @@
 - [穿书后我娶了反派皇子](https://www.jijiajk.com/book/3ab21ce/)
 - [欺负人是坏文明](https://www.jijiajk.com/book/3ab1uf6/)
 - [侦探立于百万生命之上](https://www.jijiajk.com/book/3ab1u12/)
-- [我的烧烤摊超美味[美食]](https://www.jijiajk.com/book/3ab1ttg/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.jijiajk.com/book/3ab1tr2/)
 - [渡鬼](https://www.jijiajk.com/book/3ab1tjk/)
 - [特殊魅力值，已到账](https://www.jijiajk.com/book/3ab1tf6/)
@@ -152,6 +153,7 @@
 - [全世界名为爱的恶意](https://www.jijiajk.com/book/3ab0i7v/)
 - [小猫商店，喜欢您来！](https://www.jijiajk.com/book/3ab0i6o/)
 - [豪门养子怀了大哥的崽](https://www.jijiajk.com/book/3ab0hth/)
+- [书呆子扮演渣攻翻车【快穿】](https://www.jijiajk.com/book/3ab0hq0/)
 - [恋爱脑他重生了](https://www.jijiajk.com/book/3ab0hpi/)
 - [带着刀剑穿越伟大航路后，你当上了五皇](https://www.jijiajk.com/book/3ab0ho5/)
 - [被迫跟死对头结婚后](https://www.jijiajk.com/book/3ab0hns/)
@@ -240,7 +242,6 @@
 - [强爱清冷O后她上瘾了[快穿]](https://www.jijiajk.com/book/3ab04bv/)
 - [变成龙傲天的心上猫后](https://www.jijiajk.com/book/3ab045j/)
 - [少女妄想症](https://www.jijiajk.com/book/3ab040s/)
-- [多梦你一会儿](https://www.jijiajk.com/book/3ab03ug/)
 - [和灵异片boss谈恋爱](https://www.jijiajk.com/book/3ab03ng/)
 - [反派的病弱白月光重生了](https://www.jijiajk.com/book/3ab03fl/)
 - [掉马后成了奥特带恶人](https://www.jijiajk.com/book/3ab03a0/)
@@ -277,7 +278,6 @@
 - [[综英美]穿越后和小红鸟灵魂互换了](https://www.jijiajk.com/book/3aavvc0/)
 - [禁止对人气角色上限制级mod！！！](https://www.jijiajk.com/book/3aavv9p/)
 - [漫画路人绑定系统后](https://www.jijiajk.com/book/3aavv79/)
-- [和前女友的心上人he了](https://www.jijiajk.com/book/3aavv0u/)
 - [金发室友有肌肤饥渴症](https://www.jijiajk.com/book/3aavuuc/)
 - [异种大食堂[无限]](https://www.jijiajk.com/book/3aavusu/)
 - [好好做1](https://www.jijiajk.com/book/3aavuod/)
@@ -413,6 +413,7 @@
 - [失忆后，和五条激情互演](https://www.jijiajk.com/book/3aavl37/)
 - [虫族治愈师，但恐虫](https://www.jijiajk.com/book/3aavksm/)
 - [穿成影后的作死前妻](https://www.jijiajk.com/book/3aavkoc/)
+- [被阴湿坏女人缠上后](https://www.jijiajk.com/book/3aavkic/)
 - [在女仆咖啡店兼职被校草缠上后](https://www.jijiajk.com/book/3aavkb1/)
 - [小狗向导，世界瑰宝！](https://www.jijiajk.com/book/3aavk9k/)
 - [咒术师，但队友是侦探](https://www.jijiajk.com/book/3aavk2o/)
@@ -428,6 +429,7 @@
 - [和港城大小姐先婚后爱了](https://www.jijiajk.com/book/3aavfsm/)
 - [柯学剧本杀，但恋爱流打法](https://www.jijiajk.com/book/3aavejs/)
 - [好巧，你也是妹控？[综崩铁]](https://www.jijiajk.com/book/3aavegt/)
+- [欢迎来到重生点](https://www.jijiajk.com/book/3aavefe/)
 - [人偶游戏](https://www.jijiajk.com/book/3aave95/)
 - [好兄弟暴富后非要跟我结婚](https://www.jijiajk.com/book/3aavda1/)
 - [关于我虚构了一个男友这件事](https://www.jijiajk.com/book/3aavckk/)
@@ -436,7 +438,7 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.jijiajk.com/book/3aav31p/)
 - [自大狂](https://www.jijiajk.com/book/3aav10r/)
 - [暴君偏头痛](https://www.jijiajk.com/book/3aaur8i/)
-- [星际团宠小人鱼](https://www.jijiajk.com/book/3aatj10/)
+- [丧尸老婆喂养日记](https://www.jijiajk.com/book/3aaugqt/)
 - [你，后室管理员](https://www.jijiajk.com/book/3aativ3/)
 - [误入反派培养直播后](https://www.jijiajk.com/book/3aatitm/)
 - [纯爱宇智波基本恋爱法](https://www.jijiajk.com/book/3aatiri/)

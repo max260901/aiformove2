@@ -1,7 +1,7 @@
 
 # 耽美小说 - 最新全本免费手机小说阅读推荐
 
-更新时间：2026-09-05 03:36:55
+更新时间：2026-09-06 03:37:51
 
 耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！
 
@@ -13,11 +13,11 @@
 - [自知之明](https://www.shgifts8.com/book/32ui7ua/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.shgifts8.com/book/32ui7u2/)
 - [禁止继承限制级雌君](https://www.shgifts8.com/book/32ui7th/)
+- [穿为龙傲天发妻后](https://www.shgifts8.com/book/32ui7s7/)
 - [清穿女回来后[天幕]](https://www.shgifts8.com/book/32ui7s4/)
 - [娇气点怎么啦？［快穿］](https://www.shgifts8.com/book/32ui7jg/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.shgifts8.com/book/32ui6r1/)
 - [不义世界都是我马甲[综英美]](https://www.shgifts8.com/book/32ui6m3/)
-- [从异世界穿回来后](https://www.shgifts8.com/book/32ui5ge/)
 - [[综武侠]风流](https://www.shgifts8.com/book/32ui4vo/)
 - [孤独症崽崽穿越到狗血爽文里[穿书]](https://www.shgifts8.com/book/32ui3tl/)
 - [我有嘉宾](https://www.shgifts8.com/book/32ui3s1/)
@@ -59,7 +59,6 @@
 - [优质攻不做恋爱脑[快穿]](https://www.shgifts8.com/book/32ugqd7/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shgifts8.com/book/32ugqb1/)
 - [可怜的天然呆直男[快穿]](https://www.shgifts8.com/book/32ugq70/)
-- [我的烧烤摊超美味[美食]](https://www.shgifts8.com/book/32ugq4c/)
 - [超A奶龙饲养指南](https://www.shgifts8.com/book/32ugp61/)
 - [[综英美]是谁家的小鹿](https://www.shgifts8.com/book/32ugp1c/)
 - [[足球]听克圣的话，成了米兰金童](https://www.shgifts8.com/book/32ugouc/)
@@ -224,7 +223,6 @@
 - [一见倾心[快穿]](https://www.shgifts8.com/book/32ufq6l/)
 - [直播表现美强惨的我无欲无求](https://www.shgifts8.com/book/32ufq0p/)
 - [荒谬神父是个渣](https://www.shgifts8.com/book/32ufpq9/)
-- [多梦你一会儿](https://www.shgifts8.com/book/32ufppi/)
 - [[足球]职业模拟器但足坛](https://www.shgifts8.com/book/32ufpmh/)
 - [这谁的沙雕二次元心声！](https://www.shgifts8.com/book/32ufpda/)
 - [吃瓜也能整顿豪门？](https://www.shgifts8.com/book/32ufpbe/)
@@ -262,7 +260,6 @@
 - [全世界名为爱的恶意](https://www.shgifts8.com/book/32uflle/)
 - [三代单传妈宝女[七零]](https://www.shgifts8.com/book/32uflkh/)
 - [社畜，但是天才魔导师](https://www.shgifts8.com/book/32ufljr/)
-- [和前女友的心上人he了](https://www.shgifts8.com/book/32uflg3/)
 - [忍界修罗金屋藏娇了？](https://www.shgifts8.com/book/32ufld9/)
 - [退圈后，我靠职场综艺火爆全网](https://www.shgifts8.com/book/32ufl1n/)
 - [糊咖爱豆用动物心声破案](https://www.shgifts8.com/book/32ufkv9/)
@@ -416,12 +413,14 @@
 - [无能的丈夫们](https://www.shgifts8.com/book/32uf8uv/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.shgifts8.com/book/32uf8t3/)
 - [青山不渡](https://www.shgifts8.com/book/32uf8t0/)
+- [被阴湿坏女人缠上后](https://www.shgifts8.com/book/32uf8nh/)
 - [在重男兄弟间夹缝求生](https://www.shgifts8.com/book/32uf8l0/)
 - [在女仆咖啡店兼职被校草缠上后](https://www.shgifts8.com/book/32uf8ku/)
 - [穿成影后的作死前妻](https://www.shgifts8.com/book/32uf8jo/)
 - [神之子与排球的适配性](https://www.shgifts8.com/book/32uf8fq/)
 - [失忆后，和五条激情互演](https://www.shgifts8.com/book/32uf8eu/)
 - [国舅太难追了](https://www.shgifts8.com/book/32uf8e6/)
+- [欢迎来到重生点](https://www.shgifts8.com/book/32uf7ju/)
 - [柯学剧本杀，但恋爱流打法](https://www.shgifts8.com/book/32uf6uv/)
 - [好巧，你也是妹控？[综崩铁]](https://www.shgifts8.com/book/32uf67n/)
 - [李玉灯](https://www.shgifts8.com/book/32uf626/)
@@ -431,13 +430,14 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.shgifts8.com/book/32uf22h/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.shgifts8.com/book/32uf0vn/)
 - [自大狂](https://www.shgifts8.com/book/32ueos9/)
+- [书呆子扮演渣攻翻车【快穿】](https://www.shgifts8.com/book/32ueitq/)
+- [丧尸老婆喂养日记](https://www.shgifts8.com/book/32ue67h/)
 - [被四皇错看成小动物后](https://www.shgifts8.com/book/32ud77i/)
 - [纯爱宇智波基本恋爱法](https://www.shgifts8.com/book/32ud6j3/)
 - [[封神]圣人生欲](https://www.shgifts8.com/book/32ud5t4/)
 - [高调装神，猥琐发育](https://www.shgifts8.com/book/32ud5eo/)
 - [你，后室管理员](https://www.shgifts8.com/book/32ud5d7/)
 - [误入反派培养直播后](https://www.shgifts8.com/book/32ud4t1/)
-- [星际团宠小人鱼](https://www.shgifts8.com/book/32ud4io/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1405/index.md)

@@ -1,13 +1,15 @@
 
 # 文学小说668 - 全球最新最热的小说阅读平台
 
-更新时间：2026-09-05 03:41:01
+更新时间：2026-09-06 03:41:52
 
 文学小说668是全球最新、最热的小说阅读网站之一，汇集了包括言情小说、玄幻小说、穿越小说在内的各类优质小说资源，让读者能够尽情享受阅读的乐趣。
 
 - [文学小说668](https://www.wenxue668.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.wenxue668.com/book/44ff1hn/)
+- [和八个男人在极寒游戏求生](https://www.wenxue668.com/book/44ff1hm/)
 - [我们小区穿末世](https://www.wenxue668.com/book/44ff1hl/)
 - [乖乖女的杂货铺[八零]](https://www.wenxue668.com/book/44ff1hj/)
 - [欲加之罪](https://www.wenxue668.com/book/44ff1hg/)
@@ -50,7 +52,6 @@
 - [万人嫌从末世回来了](https://www.wenxue668.com/book/44ff1em/)
 - [烈火焚身[巴黎圣母院]](https://www.wenxue668.com/book/44ff1eh/)
 - [失忆后和死对头有了崽](https://www.wenxue668.com/book/44ff1eg/)
-- [自知之明](https://www.wenxue668.com/book/44ff1ef/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.wenxue668.com/book/44ff1ed/)
 - [仙尊心尖宠，但被魔尊抢了](https://www.wenxue668.com/book/44ff1ea/)
 - [穿为龙傲天发妻后](https://www.wenxue668.com/book/44ff1e8/)
@@ -120,7 +121,6 @@
 - [苏娘子汴京摆摊日常（美食）](https://www.wenxue668.com/book/44fc1dg/)
 - [漂亮女配是万人迷［快穿］](https://www.wenxue668.com/book/44fc0p2/)
 - [如何嫁给当朝首辅](https://www.wenxue668.com/book/44fbs35/)
-- [[综英美]让我统治哥谭！！！](https://www.wenxue668.com/book/44fbrpj/)
 - [和治君只是饭搭子的关系](https://www.wenxue668.com/book/44fbr68/)
 - [多梦你一会儿](https://www.wenxue668.com/book/44fbr4b/)
 - [[封神]圣人生欲](https://www.wenxue668.com/book/44fbqro/)
@@ -128,7 +128,7 @@
 - [阴阳师也可以打网球](https://www.wenxue668.com/book/44fbqh7/)
 - [在魔法贵族学院当白月光](https://www.wenxue668.com/book/44fbpjb/)
 - [五条老师与他的封建妻子](https://www.wenxue668.com/book/44fbpg6/)
-- [八零恶毒后妈杀疯了](https://www.wenxue668.com/book/44fbp6r/)
+- [卷王后妈，八零养娃](https://www.wenxue668.com/book/44fbp6r/)
 - [我司艺人永不塌房](https://www.wenxue668.com/book/44fblo1/)
 - [我187了，你敢见我吗？](https://www.wenxue668.com/book/44fbkhv/)
 - [和姐姐的前女友欢愉后](https://www.wenxue668.com/book/44fbipm/)
@@ -144,7 +144,6 @@
 - [这个位面归我了！[经营]](https://www.wenxue668.com/book/44fb127/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.wenxue668.com/book/44favog/)
 - [清冷丞相怀了死对头的崽](https://www.wenxue668.com/book/44fav5o/)
-- [娶了女装心机太子](https://www.wenxue668.com/book/44faum4/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.wenxue668.com/book/44faui4/)
 - [村霸非要入赘受气包](https://www.wenxue668.com/book/44fatcl/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.wenxue668.com/book/44faspr/)
@@ -155,12 +154,11 @@
 - [权宋一只统](https://www.wenxue668.com/book/44fah45/)
 - [爱好和平但狂拆机甲](https://www.wenxue668.com/book/44fad2g/)
 - [95美国贵族高中模拟](https://www.wenxue668.com/book/44f9gdd/)
-- [猫猫也要养家糊口](https://www.wenxue668.com/book/44f9ga7/)
 - [清澈女大的六零年代](https://www.wenxue668.com/book/44f9fi9/)
 - [直男咒术师的限制级游戏](https://www.wenxue668.com/book/44f9fgm/)
 - [五十年代港城日常](https://www.wenxue668.com/book/44f9fbg/)
 - [大瑛弟国](https://www.wenxue668.com/book/44f9f9s/)
-- [假少爷不想活了](https://www.wenxue668.com/book/44f9f7m/)
+- [假少爷离开后](https://www.wenxue668.com/book/44f9f7m/)
 - [海岛求生：生活玩家种田囤货](https://www.wenxue668.com/book/44f9f5l/)
 - [我有一座安全城](https://www.wenxue668.com/book/44f9f17/)
 - [巨物致富：回乡开钓场](https://www.wenxue668.com/book/44f9epc/)
@@ -170,11 +168,9 @@
 - [全民求生:从小木屋到魔法农场](https://www.wenxue668.com/book/44f9ee3/)
 - [成为养成系练习生后](https://www.wenxue668.com/book/44f9eb0/)
 - [日化人生[科研]](https://www.wenxue668.com/book/44f9dtc/)
-- [古代种田养娃日常](https://www.wenxue668.com/book/44f9dsf/)
 - [高门小婢](https://www.wenxue668.com/book/44f9dhs/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.wenxue668.com/book/44f9dcn/)
 - [六零之成了卷王的妹妹](https://www.wenxue668.com/book/44f9d8a/)
-- [绝不会喜欢五条君的！](https://www.wenxue668.com/book/44f9d6j/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1349/index.md)

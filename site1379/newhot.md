@@ -1,19 +1,26 @@
 
 # 云南野人山野小说网 - 创意小说与文学作品分享平台
 
-更新时间：2026-09-05 03:44:56
+更新时间：2026-09-06 03:45:45
 
 欢迎来到云南野人山野小说网 - 专注于创意小说和文学作品分享的在线平台。探索精选的小说系列及文学佳作，加入我们，与众多才华横溢的作者交流心得，共同创造美好的阅读旅程。
 
 - [云南野人山野小说网](https://www.ynyrsy.com/)
 
 ## 最新小说
+- [修仙界都为我神魂颠倒](https://www.ynyrsy.com/book/dfe9cj/)
+- [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.ynyrsy.com/book/dfe9bh/)
+- [穿成年代文奇葩前妻](https://www.ynyrsy.com/book/dfe98h/)
+- [限制文中的社畜女beta](https://www.ynyrsy.com/book/dfe8s3/)
+- [穿成漫画反派的我又做错了什么](https://www.ynyrsy.com/book/dfe8ga/)
+- [[综英美]蝙蝠崽但脆皮](https://www.ynyrsy.com/book/dfe84j/)
 - [这个替嫁让我来！](https://www.ynyrsy.com/book/dfe7p1/)
 - [我拿的可是反派剧本](https://www.ynyrsy.com/book/dfe7if/)
 - [丧尸王有什么坏心思？](https://www.ynyrsy.com/book/dfe734/)
 - [清穿女回来后[天幕]](https://www.ynyrsy.com/book/dfe5lg/)
 - [网球带给齐木的灾难](https://www.ynyrsy.com/book/dfe5l6/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.ynyrsy.com/book/dfe5l5/)
+- [穿为龙傲天发妻后](https://www.ynyrsy.com/book/dfe5l4/)
 - [全世界名为爱的恶意](https://www.ynyrsy.com/book/dfe5ke/)
 - [禁止继承限制级雌君](https://www.ynyrsy.com/book/dfe5j2/)
 - [自知之明](https://www.ynyrsy.com/book/dfe5hv/)
@@ -29,7 +36,6 @@
 - [阴郁路人不想被喜欢](https://www.ynyrsy.com/book/dfdq9q/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.ynyrsy.com/book/dfdpm6/)
 - [不义世界都是我马甲[综英美]](https://www.ynyrsy.com/book/dfdpeh/)
-- [从异世界穿回来后](https://www.ynyrsy.com/book/dfdp4o/)
 - [我有嘉宾](https://www.ynyrsy.com/book/dfdohb/)
 - [[综武侠]风流](https://www.ynyrsy.com/book/dfdnrj/)
 - [孤独症崽崽穿越到狗血爽文里[穿书]](https://www.ynyrsy.com/book/dfdmkn/)
@@ -39,7 +45,6 @@
 - [离开那个混蛋后](https://www.ynyrsy.com/book/dfdjna/)
 - [渡鬼](https://www.ynyrsy.com/book/dfdhn8/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.ynyrsy.com/book/dfdhmj/)
-- [我的烧烤摊超美味[美食]](https://www.ynyrsy.com/book/dfdhkb/)
 - [穿成反派的亡夫后[虫族]](https://www.ynyrsy.com/book/dfdgit/)
 - [氪成酒厂股东了怎么办](https://www.ynyrsy.com/book/dfdga2/)
 - [衍生穿越合订本](https://www.ynyrsy.com/book/dfdg73/)
@@ -253,7 +258,6 @@
 - [挚友和我穿越后分了阵营](https://www.ynyrsy.com/book/dfb95m/)
 - [重回被拐那一天[千禧年代]](https://www.ynyrsy.com/book/dfb94j/)
 - [退圈后，我靠职场综艺火爆全网](https://www.ynyrsy.com/book/dfb90t/)
-- [多梦你一会儿](https://www.ynyrsy.com/book/dfb8r8/)
 - [糊咖爱豆用动物心声破案](https://www.ynyrsy.com/book/dfb8qa/)
 - [小亲王他不是吉祥物](https://www.ynyrsy.com/book/dfb8lv/)
 - [在立海大玩网球模拟器](https://www.ynyrsy.com/book/dfb8l4/)
@@ -344,7 +348,6 @@
 - [她来赎罪](https://www.ynyrsy.com/book/dfb16t/)
 - [女帝起家前录](https://www.ynyrsy.com/book/dfb16b/)
 - [从伟大航道到黑暗大陆](https://www.ynyrsy.com/book/dfb13q/)
-- [和前女友的心上人he了](https://www.ynyrsy.com/book/dfb11h/)
 - [正常人成为虫母后沦陷修罗场](https://www.ynyrsy.com/book/dfb0tc/)
 - [表白现场翻车后](https://www.ynyrsy.com/book/dfb0r5/)
 - [[足球]罗蜜第一志愿](https://www.ynyrsy.com/book/dfb0lp/)
@@ -406,6 +409,7 @@
 - [神之子与排球的适配性](https://www.ynyrsy.com/book/dfas84/)
 - [咒术师，但队友是侦探](https://www.ynyrsy.com/book/dfas1e/)
 - [穿成影后的作死前妻](https://www.ynyrsy.com/book/dfas0t/)
+- [被阴湿坏女人缠上后](https://www.ynyrsy.com/book/dfarrc/)
 - [放开那个黑暗哨兵！](https://www.ynyrsy.com/book/dfarm9/)
 - [请问夫君你哪位](https://www.ynyrsy.com/book/dfarlr/)
 - [癫骨](https://www.ynyrsy.com/book/dfarlo/)
@@ -426,6 +430,7 @@
 - [矩阵干扰](https://www.ynyrsy.com/book/dfakn9/)
 - [法外狂猫](https://www.ynyrsy.com/book/dfak0o/)
 - [盛夏晴浓](https://www.ynyrsy.com/book/dfajaj/)
+- [欢迎来到重生点](https://www.ynyrsy.com/book/dfaj4i/)
 - [柯学剧本杀，但恋爱流打法](https://www.ynyrsy.com/book/dfaio8/)
 - [好兄弟暴富后非要跟我结婚](https://www.ynyrsy.com/book/dfagl7/)
 - [我，剑圣，养生中，勿扰](https://www.ynyrsy.com/book/dfadh7/)
@@ -440,7 +445,6 @@
 - [你，后室管理员](https://www.ynyrsy.com/book/df8q1k/)
 - [纯爱宇智波基本恋爱法](https://www.ynyrsy.com/book/df8p9l/)
 - [误入反派培养直播后](https://www.ynyrsy.com/book/df8p3e/)
-- [星际团宠小人鱼](https://www.ynyrsy.com/book/df8otm/)
 - [被四皇错看成小动物后](https://www.ynyrsy.com/book/df8oq3/)
 - [高调装神，猥琐发育](https://www.ynyrsy.com/book/df8olq/)
 - [[封神]圣人生欲](https://www.ynyrsy.com/book/df8oj6/)

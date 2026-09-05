@@ -1,15 +1,16 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-09-05 03:25:41
+更新时间：2026-09-06 03:26:34
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
 - [读者香书小说](https://www.duzhe888.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.duzhe888.com/book/2koepgl/)
+- [揣崽丧夫后被情敌强娶了](https://www.duzhe888.com/book/2koepgk/)
 - [全世界名为爱的恶意](https://www.duzhe888.com/book/2koepgj/)
-- [自知之明](https://www.duzhe888.com/book/2koepgi/)
 - [二次分化后他怀了死对头的崽](https://www.duzhe888.com/book/2koepgh/)
 - [[原神]魔法使恋爱指南](https://www.duzhe888.com/book/2koepgg/)
 - [爱情的肯定句](https://www.duzhe888.com/book/2koepgf/)
@@ -82,7 +83,6 @@
 - [失忆后和死对头有了崽](https://www.duzhe888.com/book/2koepeb/)
 - [等我吃腻了再倒闭可以吗](https://www.duzhe888.com/book/2koepea/)
 - [我司艺人永不塌房](https://www.duzhe888.com/book/2koepds/)
-- [[综英美]让我统治哥谭！！！](https://www.duzhe888.com/book/2koepb2/)
 - [我们生活玩家是这样的](https://www.duzhe888.com/book/2koepad/)
 - [星际团宠小人鱼](https://www.duzhe888.com/book/2koep8p/)
 - [原配夫人](https://www.duzhe888.com/book/2koep7k/)
@@ -91,14 +91,12 @@
 - [九零首富的替嫁小媳妇](https://www.duzhe888.com/book/2koep71/)
 - [[封神]圣人生欲](https://www.duzhe888.com/book/2koep6l/)
 - [高调装神，猥琐发育](https://www.duzhe888.com/book/2koep6g/)
-- [假少爷不想活了](https://www.duzhe888.com/book/2koep6e/)
+- [假少爷离开后](https://www.duzhe888.com/book/2koep6e/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.duzhe888.com/book/2koep5g/)
 - [直男咒术师的限制级游戏](https://www.duzhe888.com/book/2koep4k/)
 - [六零之成了卷王的妹妹](https://www.duzhe888.com/book/2koenpq/)
-- [绝不会喜欢五条君的！](https://www.duzhe888.com/book/2koenpb/)
 - [路人攻了主角攻［快穿］](https://www.duzhe888.com/book/2koenn4/)
 - [昭暮](https://www.duzhe888.com/book/2koee6e/)
-- [古代种田养娃日常](https://www.duzhe888.com/book/2kodogu/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.duzhe888.com/book/2kodo12/)
 - [[足球]足坛人生模拟器](https://www.duzhe888.com/book/2koct8k/)
 - [上个鬼班[无限]](https://www.duzhe888.com/book/2kocram/)
@@ -141,13 +139,12 @@
 - [在重生文里考科举](https://www.duzhe888.com/book/8f8ue0/)
 - [妻主风流（女尊）](https://www.duzhe888.com/book/8f8ru6/)
 - [多梦你一会儿](https://www.duzhe888.com/book/8f8mep/)
-- [娶了女装心机太子](https://www.duzhe888.com/book/8f8m2k/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.duzhe888.com/book/8f8lfd/)
 - [这个位面归我了！[经营]](https://www.duzhe888.com/book/8f8k06/)
 - [韩团绿卡不想忍了](https://www.duzhe888.com/book/8f8jrm/)
 - [被糟蹋的老实人决定反击](https://www.duzhe888.com/book/8f8ip8/)
 - [村霸非要入赘受气包](https://www.duzhe888.com/book/8f8ia0/)
-- [八零恶毒后妈杀疯了](https://www.duzhe888.com/book/8f8hit/)
+- [卷王后妈，八零养娃](https://www.duzhe888.com/book/8f8hit/)
 - [清冷丞相怀了死对头的崽](https://www.duzhe888.com/book/8f8gfa/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.duzhe888.com/book/8f8fle/)
 - [心动嫌疑人](https://www.duzhe888.com/book/8f8eat/)
@@ -159,7 +156,6 @@
 - [死亡悖论[无限流]](https://www.duzhe888.com/book/8f8866/)
 - [权宋一只统](https://www.duzhe888.com/book/8f876e/)
 - [爱好和平但狂拆机甲](https://www.duzhe888.com/book/8f871a/)
-- [猫猫也要养家糊口](https://www.duzhe888.com/book/r3vsf/)
 - [在魔法贵族学院当白月光](https://www.duzhe888.com/book/r3vre/)
 - [大瑛弟国](https://www.duzhe888.com/book/r3vmo/)
 - [华夏神明震撼星际](https://www.duzhe888.com/book/r3vgv/)

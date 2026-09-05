@@ -1,13 +1,15 @@
 
 # 唯我小说网-最新小说在线阅读,好看小说全文阅读
 
-更新时间：2026-09-05 03:28:01
+更新时间：2026-09-06 03:28:56
 
 唯我小说网提供最新最热门的小说在线阅读服务，包括但不限于各类好看的小说全文内容，满足广大读者的需求。
 
 - [唯我小说网](https://www.hkffbw.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.hkffbw.com/book/4nr5rmi/)
+- [和八个男人在极寒游戏求生](https://www.hkffbw.com/book/4nr5rmh/)
 - [八零法医，带全家致富](https://www.hkffbw.com/book/4nr5rmg/)
 - [魔法种田，从退队经营农场开始](https://www.hkffbw.com/book/4nr5rmf/)
 - [全民求生，但剑三](https://www.hkffbw.com/book/4nr5rme/)
@@ -56,7 +58,6 @@
 - [SSS级异种都是我前任](https://www.hkffbw.com/book/4nr5rl2/)
 - [漫画取材所引发的修罗场](https://www.hkffbw.com/book/4nr5rl1/)
 - [欲加之罪](https://www.hkffbw.com/book/4nr5rl0/)
-- [自知之明](https://www.hkffbw.com/book/4nr5rkv/)
 - [我只想上京赶考啊[聊斋]](https://www.hkffbw.com/book/4nr5rku/)
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.hkffbw.com/book/4nr5rkt/)
 - [烈火焚身[巴黎圣母院]](https://www.hkffbw.com/book/4nr5rks/)
@@ -83,7 +84,6 @@
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.hkffbw.com/book/4nr5rk7/)
 - [我司艺人永不塌房](https://www.hkffbw.com/book/4nr5rjd/)
 - [我们生活玩家是这样的](https://www.hkffbw.com/book/4nr5ri1/)
-- [[综英美]让我统治哥谭！！！](https://www.hkffbw.com/book/4nr5rfb/)
 - [[封神]圣人生欲](https://www.hkffbw.com/book/4nr5ren/)
 - [始乱终弃清冷首辅后](https://www.hkffbw.com/book/4nr5rek/)
 - [星际团宠小人鱼](https://www.hkffbw.com/book/4nr5re4/)
@@ -91,14 +91,12 @@
 - [原配夫人](https://www.hkffbw.com/book/4nr5rd2/)
 - [十九世纪贵族厨房（美食）](https://www.hkffbw.com/book/4nr5rcu/)
 - [高调装神，猥琐发育](https://www.hkffbw.com/book/4nr5rcf/)
-- [假少爷不想活了](https://www.hkffbw.com/book/4nr5rcb/)
+- [假少爷离开后](https://www.hkffbw.com/book/4nr5rcb/)
 - [直男咒术师的限制级游戏](https://www.hkffbw.com/book/4nr5r9h/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.hkffbw.com/book/4nr5r7q/)
-- [绝不会喜欢五条君的！](https://www.hkffbw.com/book/4nr5q0d/)
 - [六零之成了卷王的妹妹](https://www.hkffbw.com/book/4nr5pv6/)
 - [路人攻了主角攻［快穿］](https://www.hkffbw.com/book/4nr5ps7/)
 - [昭暮](https://www.hkffbw.com/book/4nr5gak/)
-- [古代种田养娃日常](https://www.hkffbw.com/book/4nr4qj2/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.hkffbw.com/book/4nr4q2n/)
 - [上个鬼班[无限]](https://www.hkffbw.com/book/4nr42uh/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.hkffbw.com/book/4nr3sft/)
@@ -143,13 +141,12 @@
 - [多梦你一会儿](https://www.hkffbw.com/book/f5u911/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.hkffbw.com/book/f5u79d/)
 - [韩团绿卡不想忍了](https://www.hkffbw.com/book/f5u6na/)
-- [娶了女装心机太子](https://www.hkffbw.com/book/f5u5b0/)
 - [村霸非要入赘受气包](https://www.hkffbw.com/book/f5u448/)
 - [这个位面归我了！[经营]](https://www.hkffbw.com/book/f5u3th/)
 - [被糟蹋的老实人决定反击](https://www.hkffbw.com/book/f5u2vh/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.hkffbw.com/book/f5u0ou/)
 - [清冷丞相怀了死对头的崽](https://www.hkffbw.com/book/f5u0cp/)
-- [八零恶毒后妈杀疯了](https://www.hkffbw.com/book/f5tv4j/)
+- [卷王后妈，八零养娃](https://www.hkffbw.com/book/f5tv4j/)
 - [恶犬攻绑定上司的乖狗系统](https://www.hkffbw.com/book/f5tt7q/)
 - [心动嫌疑人](https://www.hkffbw.com/book/f5tt1s/)
 - [和山神搭伙开农场的日子](https://www.hkffbw.com/book/f5tsn7/)
@@ -163,7 +160,6 @@
 - [[娱乐圈]过分美丽的她](https://www.hkffbw.com/book/1giuv3/)
 - [五十年代港城日常](https://www.hkffbw.com/book/1giui0/)
 - [清澈女大的六零年代](https://www.hkffbw.com/book/1giu0g/)
-- [猫猫也要养家糊口](https://www.hkffbw.com/book/1gitt4/)
 - [海岛求生：生活玩家种田囤货](https://www.hkffbw.com/book/1gitqr/)
 - [我有一座安全城](https://www.hkffbw.com/book/1gitjc/)
 - [全民求生:从小木屋到魔法农场](https://www.hkffbw.com/book/1gitif/)

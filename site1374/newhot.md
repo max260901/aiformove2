@@ -1,7 +1,7 @@
 
 # 看居中文网_免费小说在线阅读|无弹窗广告值得收藏
 
-更新时间：2026-09-05 03:29:42
+更新时间：2026-09-06 03:30:38
 
 看居中文网是最热门的免费小说网站，提供包括但不限于玄幻、都市、言情等多种类型的小说在线阅读服务。本站实时更新小说最新章节列表，拥有全面的小说排行榜，致力于为读者提供一个干净舒适的阅读环境，无弹窗广告干扰，是您寻找好书的理想之地。
 
@@ -9,6 +9,7 @@
 
 ## 最新小说
 - [这个替嫁让我来！](https://www.kanju688.com/book/pb0bc4/)
+- [穿为龙傲天发妻后](https://www.kanju688.com/book/pb0bc1/)
 - [禁止继承限制级雌君](https://www.kanju688.com/book/pb0baq/)
 - [全世界名为爱的恶意](https://www.kanju688.com/book/pb0b9i/)
 - [自知之明](https://www.kanju688.com/book/pb0b9h/)
@@ -33,9 +34,7 @@
 - [我比反派先崩坏[快穿]](https://www.kanju688.com/book/pavv69/)
 - [渡鬼](https://www.kanju688.com/book/pavus0/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kanju688.com/book/pavur9/)
-- [我的烧烤摊超美味[美食]](https://www.kanju688.com/book/pavupj/)
 - [cos温迪后玩到真崩铁了](https://www.kanju688.com/book/pavqn8/)
-- [从异世界穿回来后](https://www.kanju688.com/book/pavqfv/)
 - [我有嘉宾](https://www.kanju688.com/book/pavq5g/)
 - [娇气点怎么啦？［快穿］](https://www.kanju688.com/book/pavq2g/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.kanju688.com/book/pavpe6/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.kanju688.com/book/pav4gk/)
 - [昭暮](https://www.kanju688.com/book/pav3bk/)
 - [你，后室管理员](https://www.kanju688.com/book/pauvl4/)
-- [星际团宠小人鱼](https://www.kanju688.com/book/pauvdd/)
 - [高调装神，猥琐发育](https://www.kanju688.com/book/pauoa8/)
 - [我在无限游戏里假扮NPC[无限流]](https://www.kanju688.com/book/paui9t/)
 - [伪装路人后成了反派首领](https://www.kanju688.com/book/paui9r/)
@@ -299,7 +297,6 @@
 - [穿进民国后宅从杂役做起](https://www.kanju688.com/book/pat4ri/)
 - [乙骨同学很好欺负](https://www.kanju688.com/book/pat4mb/)
 - [陌上炊烟（种田）](https://www.kanju688.com/book/pat4gn/)
-- [多梦你一会儿](https://www.kanju688.com/book/pat4e6/)
 - [拯救美强惨女主进行时[快穿]](https://www.kanju688.com/book/pat4e3/)
 - [好好做1](https://www.kanju688.com/book/pat48j/)
 - [炮灰的我该如何上位？](https://www.kanju688.com/book/pat46t/)
@@ -366,7 +363,6 @@
 - [[足球]在比利时我们只玩天赋](https://www.kanju688.com/book/pat02s/)
 - [在家不许汪汪大叫](https://www.kanju688.com/book/pasvtt/)
 - [养了一个废太子](https://www.kanju688.com/book/pasvsb/)
-- [和前女友的心上人he了](https://www.kanju688.com/book/pasvs0/)
 - [经纪人砸钱整顿内娱爆火了](https://www.kanju688.com/book/pasvqe/)
 - [小寡夫还有两幅面孔](https://www.kanju688.com/book/pasvn4/)
 - [您的榜一秦始皇已加入直播间](https://www.kanju688.com/book/pasvga/)
@@ -395,6 +391,7 @@
 - [丧尸闻了闻你的恋爱脑](https://www.kanju688.com/book/pastmb/)
 - [小狗向导，世界瑰宝！](https://www.kanju688.com/book/pastgo/)
 - [咒术师，但队友是侦探](https://www.kanju688.com/book/pastek/)
+- [被阴湿坏女人缠上后](https://www.kanju688.com/book/pastbg/)
 - [无能的丈夫们](https://www.kanju688.com/book/pasta6/)
 - [我靠玛丽苏系统伪装神女](https://www.kanju688.com/book/past96/)
 - [直播捏玩具被榜一大哥撅了](https://www.kanju688.com/book/past7j/)
@@ -430,6 +427,7 @@
 - [[足球]小小鸟堂堂来袭](https://www.kanju688.com/book/pasfg0/)
 - [好巧，你也是妹控？[综崩铁]](https://www.kanju688.com/book/pase4e/)
 - [青城玩家明明超强却过分谨慎](https://www.kanju688.com/book/pascks/)
+- [欢迎来到重生点](https://www.kanju688.com/book/pasce4/)
 - [好兄弟暴富后非要跟我结婚](https://www.kanju688.com/book/pasbtr/)
 - [侯府打工人](https://www.kanju688.com/book/pasbd9/)
 - [法外狂猫](https://www.kanju688.com/book/pasakb/)

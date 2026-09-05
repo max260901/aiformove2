@@ -1,13 +1,14 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-09-05 03:45:26
+更新时间：2026-09-06 03:46:15
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
 - [阅读小说网](https://www.yuedu687.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.yuedu687.com/book/2bu5j0p/)
 - [等我吃腻了再倒闭可以吗](https://www.yuedu687.com/book/2bu5j0f/)
 - [我骗家里的钱养你啊](https://www.yuedu687.com/book/2bu5j0b/)
 - [全世界名为爱的恶意](https://www.yuedu687.com/book/2bu5j00/)
@@ -17,6 +18,7 @@
 - [咦？我爸爸复活啦](https://www.yuedu687.com/book/2bu5iv7/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.yuedu687.com/book/2bu5iv1/)
 - [禁止继承限制级雌君](https://www.yuedu687.com/book/2bu5iv0/)
+- [穿为龙傲天发妻后](https://www.yuedu687.com/book/2bu5ius/)
 - [[综英美]和亲友群穿哥谭以后](https://www.yuedu687.com/book/2bu5ium/)
 - [清穿女回来后[天幕]](https://www.yuedu687.com/book/2bu5iuj/)
 - [[足球]小小鸟堂堂来袭](https://www.yuedu687.com/book/2bu5iug/)
@@ -27,11 +29,8 @@
 - [躲避原书剧情五年后](https://www.yuedu687.com/book/2bu5irs/)
 - [暴君偏头痛](https://www.yuedu687.com/book/2bu5irp/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yuedu687.com/book/2bu5iri/)
-- [我的烧烤摊超美味[美食]](https://www.yuedu687.com/book/2bu5iqe/)
-- [从异世界穿回来后](https://www.yuedu687.com/book/2bu5ipb/)
 - [被四皇错看成小动物后](https://www.yuedu687.com/book/2bu5ip0/)
 - [你，后室管理员](https://www.yuedu687.com/book/2bu5ioo/)
-- [星际团宠小人鱼](https://www.yuedu687.com/book/2bu5ink/)
 - [[封神]圣人生欲](https://www.yuedu687.com/book/2bu5ine/)
 - [高调装神，猥琐发育](https://www.yuedu687.com/book/2bu5imi/)
 - [京秋婚约](https://www.yuedu687.com/book/2bu5img/)
@@ -407,6 +406,7 @@
 - [[足球]在比利时我们只玩天赋](https://www.yuedu687.com/book/7j1v59/)
 - [直播捏玩具被榜一大哥撅了](https://www.yuedu687.com/book/7j1v02/)
 - [作家与读者](https://www.yuedu687.com/book/7j1uho/)
+- [被阴湿坏女人缠上后](https://www.yuedu687.com/book/7j1u52/)
 - [你也没死？](https://www.yuedu687.com/book/7j1t26/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.yuedu687.com/book/7j1rdl/)
 - [老公是松散生命体](https://www.yuedu687.com/book/7j1qih/)
@@ -415,9 +415,7 @@
 - [我最讨厌打球了！](https://www.yuedu687.com/book/7j1inm/)
 - [误入反派培养直播后](https://www.yuedu687.com/book/7j1fuf/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.yuedu687.com/book/7j1d8a/)
-- [多梦你一会儿](https://www.yuedu687.com/book/7j1ck7/)
 - [[足球]罗蜜第一志愿](https://www.yuedu687.com/book/7j1bi8/)
-- [和前女友的心上人he了](https://www.yuedu687.com/book/7j13f8/)
 - [哥你不能不要我](https://www.yuedu687.com/book/7j0o16/)
 ## 相关内容
 - [README](/README.md)

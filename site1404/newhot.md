@@ -1,23 +1,24 @@
 
 # 小顽童寻书网-最热门的免费小说阅读平台|全本玄幻言情网游穿越都市小说在线阅读
 
-更新时间：2026-09-05 03:44:09
+更新时间：2026-09-06 03:44:58
 
 小顽童寻书网提供一个无广告、无弹窗干扰的环境，让您享受纯净的小说阅读体验。涵盖玄幻、网游、言情、穿越、都市等多种类型的小说资源，在这里可以找到最新的章节更新以及完整的书籍内容。
 
 - [小顽童寻书网](https://www.xwt999.com/)
 
 ## 最新小说
+- [我比反派先崩坏[快穿]](https://www.xwt999.com/book/1u5nmfr/)
 - [cos温迪后玩到真崩铁了](https://www.xwt999.com/book/1u5ni3h/)
 - [躲避原书剧情五年后](https://www.xwt999.com/book/1u5nhvq/)
 - [自知之明](https://www.xwt999.com/book/1u5nhr0/)
 - [清穿女回来后[天幕]](https://www.xwt999.com/book/1u5nhqt/)
+- [穿为龙傲天发妻后](https://www.xwt999.com/book/1u5nhq4/)
 - [禁止继承限制级雌君](https://www.xwt999.com/book/1u5nhor/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.xwt999.com/book/1u5nhof/)
 - [娇气点怎么啦？［快穿］](https://www.xwt999.com/book/1u5nhg4/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.xwt999.com/book/1u5ngnj/)
 - [不义世界都是我马甲[综英美]](https://www.xwt999.com/book/1u5ngj2/)
-- [从异世界穿回来后](https://www.xwt999.com/book/1u5nfdr/)
 - [[综武侠]风流](https://www.xwt999.com/book/1u5nf1q/)
 - [孤独症崽崽穿越到狗血爽文里[穿书]](https://www.xwt999.com/book/1u5ndnr/)
 - [我有嘉宾](https://www.xwt999.com/book/1u5ndno/)
@@ -53,7 +54,6 @@
 - [暗堕本丸，在线直播](https://www.xwt999.com/book/1u5m6le/)
 - [可怜的天然呆直男[快穿]](https://www.xwt999.com/book/1u5m661/)
 - [女装生崽，娃爹宇智波](https://www.xwt999.com/book/1u5m5k4/)
-- [我的烧烤摊超美味[美食]](https://www.xwt999.com/book/1u5m5er/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xwt999.com/book/1u5m5df/)
 - [全天下都在求太子殿下别死！](https://www.xwt999.com/book/1u5m4rn/)
 - [我当县令那些年](https://www.xwt999.com/book/1u5m48u/)
@@ -223,7 +223,6 @@
 - [飞云之上](https://www.xwt999.com/book/1u5l472/)
 - [我养的龙是我老公[原神]](https://www.xwt999.com/book/1u5l44r/)
 - [逑丽色难得](https://www.xwt999.com/book/1u5l3sq/)
-- [多梦你一会儿](https://www.xwt999.com/book/1u5l3h8/)
 - [摆烂后我成了邪神学院大佬](https://www.xwt999.com/book/1u5l3gf/)
 - [少女妄想症](https://www.xwt999.com/book/1u5l3cu/)
 - [皇后守则[快穿]](https://www.xwt999.com/book/1u5l3c5/)
@@ -254,7 +253,6 @@
 - [小傻子［无限］](https://www.xwt999.com/book/1u5kvvj/)
 - [善逸拒绝成为咒术师](https://www.xwt999.com/book/1u5kvso/)
 - [绝世美人靠脸躺赢[快穿]](https://www.xwt999.com/book/1u5kvju/)
-- [和前女友的心上人he了](https://www.xwt999.com/book/1u5kvd4/)
 - [全世界名为爱的恶意](https://www.xwt999.com/book/1u5kvcj/)
 - [炮灰的我该如何上位？](https://www.xwt999.com/book/1u5kv4r/)
 - [当魔修反派穿成治愈系[穿书]](https://www.xwt999.com/book/1u5kv2s/)
@@ -413,6 +411,7 @@
 - [无能的丈夫们](https://www.xwt999.com/book/1u5kjl7/)
 - [每天都在和太宰互换身体](https://www.xwt999.com/book/1u5kjib/)
 - [顶流他姐有神豪系统](https://www.xwt999.com/book/1u5kjd6/)
+- [被阴湿坏女人缠上后](https://www.xwt999.com/book/1u5kj91/)
 - [神之子与排球的适配性](https://www.xwt999.com/book/1u5kj15/)
 - [青城玩家明明超强却过分谨慎](https://www.xwt999.com/book/1u5kimp/)
 - [癫骨](https://www.xwt999.com/book/1u5kilr/)
@@ -424,6 +423,7 @@
 - [青山不渡](https://www.xwt999.com/book/1u5ki8c/)
 - [我，剑圣，养生中，勿扰](https://www.xwt999.com/book/1u5ki4q/)
 - [柯学剧本杀，但恋爱流打法](https://www.xwt999.com/book/1u5khsg/)
+- [欢迎来到重生点](https://www.xwt999.com/book/1u5kgtc/)
 - [好巧，你也是妹控？[综崩铁]](https://www.xwt999.com/book/1u5kgm6/)
 - [李玉灯](https://www.xwt999.com/book/1u5kgg6/)
 - [等我吃腻了再倒闭可以吗](https://www.xwt999.com/book/1u5keds/)
@@ -431,13 +431,14 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.xwt999.com/book/1u5kc17/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.xwt999.com/book/1u5k9oh/)
 - [自大狂](https://www.xwt999.com/book/1u5k1jt/)
+- [书呆子扮演渣攻翻车【快穿】](https://www.xwt999.com/book/1u5jtks/)
+- [丧尸老婆喂养日记](https://www.xwt999.com/book/1u5jhj4/)
 - [被四皇错看成小动物后](https://www.xwt999.com/book/1u5ih1k/)
 - [高调装神，猥琐发育](https://www.xwt999.com/book/1u5igkh/)
 - [纯爱宇智波基本恋爱法](https://www.xwt999.com/book/1u5igfk/)
 - [你，后室管理员](https://www.xwt999.com/book/1u5igd7/)
 - [误入反派培养直播后](https://www.xwt999.com/book/1u5ig7j/)
 - [[封神]圣人生欲](https://www.xwt999.com/book/1u5ierl/)
-- [星际团宠小人鱼](https://www.xwt999.com/book/1u5ieem/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1404/index.md)
