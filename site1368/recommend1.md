@@ -1,16 +1,17 @@
 
 # 探秘书院-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-05 03:39:27
+更新时间：2026-09-06 03:40:18
 
 探秘书院提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
 - [探秘书院](https://www.tanmi918.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.tanmi918.com/book/80r4ss1/)
+- [揣崽丧夫后被情敌强娶了](https://www.tanmi918.com/book/80r4ss0/)
 - [禁止继承限制级雌君](https://www.tanmi918.com/book/80r4sru/)
 - [魔咒请说普通话[西幻]](https://www.tanmi918.com/book/80r4srs/)
-- [自知之明](https://www.tanmi918.com/book/80r4srk/)
 - [怨明月不独照](https://www.tanmi918.com/book/80r4sri/)
 - [娘娘扶摇直上](https://www.tanmi918.com/book/80r4srg/)
 - [恐游作精女配求生指南](https://www.tanmi918.com/book/80r4srf/)
@@ -121,14 +122,13 @@
 - [漂亮女配是万人迷［快穿］](https://www.tanmi918.com/book/80r1rtn/)
 - [和治君只是饭搭子的关系](https://www.tanmi918.com/book/80r1nm5/)
 - [阴阳师也可以打网球](https://www.tanmi918.com/book/80r1n11/)
-- [[综英美]让我统治哥谭！！！](https://www.tanmi918.com/book/80r1mak/)
 - [如何嫁给当朝首辅](https://www.tanmi918.com/book/80r1m3q/)
 - [多梦你一会儿](https://www.tanmi918.com/book/80r1lm6/)
 - [和贵志君是世界第一的好朋友](https://www.tanmi918.com/book/80r1lbg/)
 - [[封神]圣人生欲](https://www.tanmi918.com/book/80r1l4q/)
 - [五条老师与他的封建妻子](https://www.tanmi918.com/book/80r1kcd/)
 - [在魔法贵族学院当白月光](https://www.tanmi918.com/book/80r1jgb/)
-- [八零恶毒后妈杀疯了](https://www.tanmi918.com/book/80r1it3/)
+- [卷王后妈，八零养娃](https://www.tanmi918.com/book/80r1it3/)
 - [我187了，你敢见我吗？](https://www.tanmi918.com/book/80r1hu5/)
 - [我司艺人永不塌房](https://www.tanmi918.com/book/80r1hsk/)
 - [和姐姐的前女友欢愉后](https://www.tanmi918.com/book/80r1eo4/)
@@ -142,7 +142,6 @@
 - [心动嫌疑人](https://www.tanmi918.com/book/80r0usd/)
 - [这个位面归我了！[经营]](https://www.tanmi918.com/book/80r0s42/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.tanmi918.com/book/80r0r5g/)
-- [娶了女装心机太子](https://www.tanmi918.com/book/80r0qj1/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.tanmi918.com/book/80r0q2t/)
 - [村霸非要入赘受气包](https://www.tanmi918.com/book/80r0ok0/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.tanmi918.com/book/80r0ojc/)
@@ -154,16 +153,14 @@
 - [恶犬攻绑定上司的乖狗系统](https://www.tanmi918.com/book/80r0f9b/)
 - [权宋一只统](https://www.tanmi918.com/book/80r0d8q/)
 - [爱好和平但狂拆机甲](https://www.tanmi918.com/book/80r0886/)
-- [假少爷不想活了](https://www.tanmi918.com/book/80qvbnf/)
+- [假少爷离开后](https://www.tanmi918.com/book/80qvbnf/)
 - [巨物致富：回乡开钓场](https://www.tanmi918.com/book/80qvbkk/)
 - [五十年代港城日常](https://www.tanmi918.com/book/80qvbhn/)
-- [古代种田养娃日常](https://www.tanmi918.com/book/80qvbbk/)
 - [我是唯一地上神国](https://www.tanmi918.com/book/80qvasd/)
 - [全民求生:从小木屋到魔法农场](https://www.tanmi918.com/book/80qvaqb/)
 - [日化人生[科研]](https://www.tanmi918.com/book/80qvalg/)
 - [成为养成系练习生后](https://www.tanmi918.com/book/80qvahi/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.tanmi918.com/book/80qvaea/)
-- [猫猫也要养家糊口](https://www.tanmi918.com/book/80qva14/)
 - [六零之成了卷王的妹妹](https://www.tanmi918.com/book/80qv9n7/)
 - [高门小婢](https://www.tanmi918.com/book/80qv9ke/)
 - [大瑛弟国](https://www.tanmi918.com/book/80qv9e7/)
@@ -174,7 +171,6 @@
 - [[娱乐圈]过分美丽的她](https://www.tanmi918.com/book/80qv8tp/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.tanmi918.com/book/80qv8tf/)
 - [海岛求生：生活玩家种田囤货](https://www.tanmi918.com/book/80qv8pq/)
-- [绝不会喜欢五条君的！](https://www.tanmi918.com/book/80qv8mb/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1368/index.md)

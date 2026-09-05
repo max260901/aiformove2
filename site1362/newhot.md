@@ -1,7 +1,7 @@
 
 # 漫话乐文小说-免费小说阅读,无弹窗,最新章节更新快
 
-更新时间：2026-09-05 03:32:45
+更新时间：2026-09-06 03:33:41
 
 漫话乐文小说是广大书友最值得收藏的网络小说阅读网，提供当前最火热的网络小说免费阅读服务，高质量的小说最新章节更新快速，适合所有网络小说爱好者。
 
@@ -13,6 +13,7 @@
 - [清穿女回来后[天幕]](https://www.manhua958.com/book/17sctqq/)
 - [等我吃腻了再倒闭可以吗](https://www.manhua958.com/book/17sctq4/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.manhua958.com/book/17sctov/)
+- [穿为龙傲天发妻后](https://www.manhua958.com/book/17sctos/)
 - [自知之明](https://www.manhua958.com/book/17sctnq/)
 - [禁止继承限制级雌君](https://www.manhua958.com/book/17sctn8/)
 - [[综英美]和亲友群穿哥谭以后](https://www.manhua958.com/book/17sctmu/)
@@ -33,9 +34,7 @@
 - [我比反派先崩坏[快穿]](https://www.manhua958.com/book/17schk2/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.manhua958.com/book/17schck/)
 - [渡鬼](https://www.manhua958.com/book/17schaq/)
-- [我的烧烤摊超美味[美食]](https://www.manhua958.com/book/17sch9v/)
 - [cos温迪后玩到真崩铁了](https://www.manhua958.com/book/17scd4u/)
-- [从异世界穿回来后](https://www.manhua958.com/book/17sccus/)
 - [我有嘉宾](https://www.manhua958.com/book/17sccml/)
 - [娇气点怎么啦？［快穿］](https://www.manhua958.com/book/17scck8/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.manhua958.com/book/17scbut/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.manhua958.com/book/17sbn3c/)
 - [昭暮](https://www.manhua958.com/book/17sbln5/)
 - [你，后室管理员](https://www.manhua958.com/book/17sbi58/)
-- [星际团宠小人鱼](https://www.manhua958.com/book/17sbhqj/)
 - [高调装神，猥琐发育](https://www.manhua958.com/book/17sbaq2/)
 - [某横滨的时间操纵](https://www.manhua958.com/book/17sb4so/)
 - [被欺负的老实人[快穿]](https://www.manhua958.com/book/17sb4hf/)
@@ -288,7 +286,6 @@
 - [被小蜘蛛听见心声后](https://www.manhua958.com/book/17s9nt2/)
 - [禁止对人气角色上限制级mod！！！](https://www.manhua958.com/book/17s9nqs/)
 - [漫画路人绑定系统后](https://www.manhua958.com/book/17s9noi/)
-- [多梦你一会儿](https://www.manhua958.com/book/17s9nod/)
 - [哥你不能不要我](https://www.manhua958.com/book/17s9nm6/)
 - [好好做1](https://www.manhua958.com/book/17s9nm5/)
 - [月光白](https://www.manhua958.com/book/17s9nk0/)
@@ -359,7 +356,6 @@
 - [[崩铁]自恋值拉满穿越被水仙了](https://www.manhua958.com/book/17s9j0o/)
 - [炮灰今天也在加班[快穿]](https://www.manhua958.com/book/17s9irn/)
 - [邪神祂总被觊觎](https://www.manhua958.com/book/17s9ir1/)
-- [和前女友的心上人he了](https://www.manhua958.com/book/17s9ipt/)
 - [超忆症大佬在古代破案](https://www.manhua958.com/book/17s9iou/)
 - [隔壁班的松田君](https://www.manhua958.com/book/17s9io1/)
 - [经纪人砸钱整顿内娱爆火了](https://www.manhua958.com/book/17s9ij2/)
@@ -399,6 +395,7 @@
 - [穿成影后的作死前妻](https://www.manhua958.com/book/17s9frk/)
 - [小狗向导，世界瑰宝！](https://www.manhua958.com/book/17s9fh3/)
 - [我靠玛丽苏系统伪装神女](https://www.manhua958.com/book/17s9ffo/)
+- [被阴湿坏女人缠上后](https://www.manhua958.com/book/17s9fei/)
 - [青空来信](https://www.manhua958.com/book/17s9f9s/)
 - [[足球]罗蜜第一志愿](https://www.manhua958.com/book/17s9f9o/)
 - [失忆后，和五条激情互演](https://www.manhua958.com/book/17s9f1s/)
@@ -428,6 +425,7 @@
 - [[足球]小小鸟堂堂来袭](https://www.manhua958.com/book/17s93ke/)
 - [幼崽假少爷选择回归寒门](https://www.manhua958.com/book/17s92q8/)
 - [盛夏晴浓](https://www.manhua958.com/book/17s927c/)
+- [欢迎来到重生点](https://www.manhua958.com/book/17s91e9/)
 - [好巧，你也是妹控？[综崩铁]](https://www.manhua958.com/book/17s8vuk/)
 - [青城玩家明明超强却过分谨慎](https://www.manhua958.com/book/17s8vim/)
 - [好兄弟暴富后非要跟我结婚](https://www.manhua958.com/book/17s8u69/)

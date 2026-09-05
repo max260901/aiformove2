@@ -1,7 +1,7 @@
 
 # 探秘书院-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-05 03:39:27
+更新时间：2026-09-06 03:40:18
 
 探秘书院提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
@@ -12,6 +12,7 @@
 - [自知之明](https://www.tanmi918.com/book/80r4srk/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.tanmi918.com/book/80r4sq8/)
 - [[综英美]和亲友群穿哥谭以后](https://www.tanmi918.com/book/80r4spa/)
+- [穿为龙傲天发妻后](https://www.tanmi918.com/book/80r4sp5/)
 - [清穿女回来后[天幕]](https://www.tanmi918.com/book/80r4sok/)
 - [等我吃腻了再倒闭可以吗](https://www.tanmi918.com/book/80r4so6/)
 - [全世界名为爱的恶意](https://www.tanmi918.com/book/80r4snm/)
@@ -31,11 +32,9 @@
 - [[足球]番外乐子集](https://www.tanmi918.com/book/80r4j8j/)
 - [我超凶的！[快穿]](https://www.tanmi918.com/book/80r4hd7/)
 - [我比反派先崩坏[快穿]](https://www.tanmi918.com/book/80r4gj8/)
-- [我的烧烤摊超美味[美食]](https://www.tanmi918.com/book/80r4gc6/)
 - [渡鬼](https://www.tanmi918.com/book/80r4gb8/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.tanmi918.com/book/80r4g9o/)
 - [cos温迪后玩到真崩铁了](https://www.tanmi918.com/book/80r4c7c/)
-- [从异世界穿回来后](https://www.tanmi918.com/book/80r4c0l/)
 - [我有嘉宾](https://www.tanmi918.com/book/80r4bo0/)
 - [娇气点怎么啦？［快穿］](https://www.tanmi918.com/book/80r4bj8/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.tanmi918.com/book/80r4at8/)
@@ -57,7 +56,6 @@
 - [侦探立于百万生命之上](https://www.tanmi918.com/book/80r3mg0/)
 - [特殊魅力值，已到账](https://www.tanmi918.com/book/80r3m57/)
 - [昭暮](https://www.tanmi918.com/book/80r3knt/)
-- [星际团宠小人鱼](https://www.tanmi918.com/book/80r3h49/)
 - [你，后室管理员](https://www.tanmi918.com/book/80r3gsm/)
 - [高调装神，猥琐发育](https://www.tanmi918.com/book/80r3a1i/)
 - [伪装路人后成了反派首领](https://www.tanmi918.com/book/80r33k5/)
@@ -299,7 +297,6 @@
 - [[综英美]如何获得地球户口](https://www.tanmi918.com/book/80r1mah/)
 - [被小蜘蛛听见心声后](https://www.tanmi918.com/book/80r1m25/)
 - [捡到一条许愿龙](https://www.tanmi918.com/book/80r1lmh/)
-- [多梦你一会儿](https://www.tanmi918.com/book/80r1lm6/)
 - [废土猫猫求生指南](https://www.tanmi918.com/book/80r1lhv/)
 - [限时心动](https://www.tanmi918.com/book/80r1lg1/)
 - [[综武侠]万人迷小姐想要富贵荣华](https://www.tanmi918.com/book/80r1lev/)
@@ -358,7 +355,6 @@
 - [穿进忍界后每天迫害黑绝](https://www.tanmi918.com/book/80r1hv3/)
 - [您的榜一秦始皇已加入直播间](https://www.tanmi918.com/book/80r1hsc/)
 - [骑！就要骑在宿敌头上作威作福](https://www.tanmi918.com/book/80r1hlj/)
-- [和前女友的心上人he了](https://www.tanmi918.com/book/80r1hk0/)
 - [在家不许汪汪大叫](https://www.tanmi918.com/book/80r1hj6/)
 - [变成鲛人了怎么办](https://www.tanmi918.com/book/80r1hi6/)
 - [运动番主角模拟器](https://www.tanmi918.com/book/80r1hhp/)
@@ -409,6 +405,7 @@
 - [让我再吃一口](https://www.tanmi918.com/book/80r1do9/)
 - [请问夫君你哪位](https://www.tanmi918.com/book/80r1dmm/)
 - [癫骨](https://www.tanmi918.com/book/80r1dc6/)
+- [被阴湿坏女人缠上后](https://www.tanmi918.com/book/80r1d8g/)
 - [末世山居日常](https://www.tanmi918.com/book/80r1d8f/)
 - [每天都在和太宰互换身体](https://www.tanmi918.com/book/80r1d4n/)
 - [顶流他姐有神豪系统](https://www.tanmi918.com/book/80r1d2g/)
@@ -429,6 +426,7 @@
 - [幼崽假少爷选择回归寒门](https://www.tanmi918.com/book/80r11vk/)
 - [[足球]小小鸟堂堂来袭](https://www.tanmi918.com/book/80r114k/)
 - [好巧，你也是妹控？[综崩铁]](https://www.tanmi918.com/book/80r107t/)
+- [欢迎来到重生点](https://www.tanmi918.com/book/80r0um2/)
 - [青城玩家明明超强却过分谨慎](https://www.tanmi918.com/book/80r0tjc/)
 - [矩阵干扰](https://www.tanmi918.com/book/80r0t8r/)
 - [法外狂猫](https://www.tanmi918.com/book/80r0sdq/)

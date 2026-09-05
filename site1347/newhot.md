@@ -1,7 +1,7 @@
 
 # 故事来书吧-免费阅读全网最新最热小说
 
-更新时间：2026-09-05 03:27:46
+更新时间：2026-09-06 03:28:41
 
 故事来书吧提供海量免费无弹窗小说在线阅读服务，涵盖言情、都市、玄幻、武侠等多种类型，让你随时随地享受阅读的乐趣。
 
@@ -15,6 +15,7 @@
 - [［综英美］蝙蝠崽？我不是啊！](https://www.gushi688.com/book/5121crp/)
 - [[综英美]和亲友群穿哥谭以后](https://www.gushi688.com/book/5121cre/)
 - [等我吃腻了再倒闭可以吗](https://www.gushi688.com/book/5121crc/)
+- [穿为龙傲天发妻后](https://www.gushi688.com/book/5121crb/)
 - [禁止继承限制级雌君](https://www.gushi688.com/book/5121cr6/)
 - [修仙界都为我神魂颠倒](https://www.gushi688.com/book/5121aqu/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.gushi688.com/book/5121ao7/)
@@ -31,11 +32,9 @@
 - [[足球]番外乐子集](https://www.gushi688.com/book/51213d8/)
 - [我超凶的！[快穿]](https://www.gushi688.com/book/51211hf/)
 - [我比反派先崩坏[快穿]](https://www.gushi688.com/book/51210ob/)
-- [我的烧烤摊超美味[美食]](https://www.gushi688.com/book/51210o3/)
 - [渡鬼](https://www.gushi688.com/book/51210nq/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.gushi688.com/book/51210mk/)
 - [cos温迪后玩到真崩铁了](https://www.gushi688.com/book/5120s9q/)
-- [从异世界穿回来后](https://www.gushi688.com/book/5120s4f/)
 - [我有嘉宾](https://www.gushi688.com/book/5120rqu/)
 - [娇气点怎么啦？［快穿］](https://www.gushi688.com/book/5120rne/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.gushi688.com/book/5120qvo/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.gushi688.com/book/5120669/)
 - [昭暮](https://www.gushi688.com/book/512055g/)
 - [你，后室管理员](https://www.gushi688.com/book/512022j/)
-- [星际团宠小人鱼](https://www.gushi688.com/book/512021u/)
 - [高调装神，猥琐发育](https://www.gushi688.com/book/511vqpi/)
 - [伪装路人后成了反派首领](https://www.gushi688.com/book/511vjdh/)
 - [我于江湖已无敌](https://www.gushi688.com/book/511vj2u/)
@@ -285,7 +283,6 @@
 - [如何在玛丽苏包围圈中生存](https://www.gushi688.com/book/511u71q/)
 - [陌上炊烟（种田）](https://www.gushi688.com/book/511u714/)
 - [穿进民国后宅从杂役做起](https://www.gushi688.com/book/511u70b/)
-- [多梦你一会儿](https://www.gushi688.com/book/511u6un/)
 - [[综英美]如何获得地球户口](https://www.gushi688.com/book/511u6sv/)
 - [贵族学院的直男跟班](https://www.gushi688.com/book/511u6ou/)
 - [侦探小说的大忌[福尔摩斯]](https://www.gushi688.com/book/511u6gi/)
@@ -383,7 +380,6 @@
 - [随便捡小狗会出大问题](https://www.gushi688.com/book/511u080/)
 - [养个诡异当老婆](https://www.gushi688.com/book/511u05r/)
 - [[足球]在比利时我们只玩天赋](https://www.gushi688.com/book/511u03g/)
-- [和前女友的心上人he了](https://www.gushi688.com/book/511tvvm/)
 - [骑！就要骑在宿敌头上作威作福](https://www.gushi688.com/book/511tvvj/)
 - [表白现场翻车后](https://www.gushi688.com/book/511tvv4/)
 - [败类](https://www.gushi688.com/book/511tvv2/)
@@ -397,6 +393,7 @@
 - [我靠玛丽苏系统伪装神女](https://www.gushi688.com/book/511tv3t/)
 - [虫族治愈师，但恐虫](https://www.gushi688.com/book/511tv2c/)
 - [末世山居日常](https://www.gushi688.com/book/511tuut/)
+- [被阴湿坏女人缠上后](https://www.gushi688.com/book/511tuqu/)
 - [[足球]罗蜜第一志愿](https://www.gushi688.com/book/511tuoc/)
 - [癫骨](https://www.gushi688.com/book/511tunp/)
 - [举朝上下为我的神仙人设头疼中](https://www.gushi688.com/book/511tumm/)
@@ -430,6 +427,7 @@
 - [[足球]小小鸟堂堂来袭](https://www.gushi688.com/book/511thuu/)
 - [好巧，你也是妹控？[综崩铁]](https://www.gushi688.com/book/511teot/)
 - [青城玩家明明超强却过分谨慎](https://www.gushi688.com/book/511ted7/)
+- [欢迎来到重生点](https://www.gushi688.com/book/511tdo0/)
 - [侯府打工人](https://www.gushi688.com/book/511tdja/)
 - [暴君偏头痛](https://www.gushi688.com/book/511tdaa/)
 - [自大狂](https://www.gushi688.com/book/511tccs/)

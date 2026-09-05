@@ -1,13 +1,15 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-09-05 03:26:13
+更新时间：2026-09-06 03:27:07
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。
 
 - [笔下文学](https://www.fshxjd.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.fshxjd.com/book/74i3mtj/)
+- [和八个男人在极寒游戏求生](https://www.fshxjd.com/book/74i3mti/)
 - [烈火焚身[巴黎圣母院]](https://www.fshxjd.com/book/74i3mtc/)
 - [世界伏于她刀下[无限]](https://www.fshxjd.com/book/74i3mtb/)
 - [占有欲Daddy是我老公？](https://www.fshxjd.com/book/74i3mt8/)
@@ -74,7 +76,6 @@
 - [炮灰的海外亲戚回国啦！](https://www.fshxjd.com/book/74i3mog/)
 - [末世八年春，游戏降临](https://www.fshxjd.com/book/74i3moe/)
 - [怨明月不独照](https://www.fshxjd.com/book/74i3mod/)
-- [自知之明](https://www.fshxjd.com/book/74i3moa/)
 - [人，今晚土拨鼠站岗](https://www.fshxjd.com/book/74i3mo9/)
 - [我们生活玩家是这样的](https://www.fshxjd.com/book/74i3ltn/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.fshxjd.com/book/74i3gio/)
@@ -91,7 +92,7 @@
 - [完蛋！被恨孕男包围了！](https://www.fshxjd.com/book/74i2kha/)
 - [昭暮](https://www.fshxjd.com/book/74i2hg5/)
 - [从维多利亚时代开始](https://www.fshxjd.com/book/74i2grd/)
-- [假少爷不想活了](https://www.fshxjd.com/book/74i2abl/)
+- [假少爷离开后](https://www.fshxjd.com/book/74i2abl/)
 - [食明](https://www.fshxjd.com/book/74i21vs/)
 - [诡话第一boss](https://www.fshxjd.com/book/74i1up6/)
 - [十九世纪贵族厨房（美食）](https://www.fshxjd.com/book/74i1tu2/)
@@ -129,7 +130,7 @@
 - [苏娘子汴京摆摊日常（美食）](https://www.fshxjd.com/book/74i0c7u/)
 - [五条老师与他的封建妻子](https://www.fshxjd.com/book/74i0act/)
 - [我187了，你敢见我吗？](https://www.fshxjd.com/book/74i0a9q/)
-- [八零恶毒后妈杀疯了](https://www.fshxjd.com/book/74i08g8/)
+- [卷王后妈，八零养娃](https://www.fshxjd.com/book/74i08g8/)
 - [和姐姐的前女友欢愉后](https://www.fshxjd.com/book/74i07f3/)
 - [[封神]圣人生欲](https://www.fshxjd.com/book/74i053h/)
 - [我司艺人永不塌房](https://www.fshxjd.com/book/74i04gl/)
@@ -139,10 +140,8 @@
 - [妻主风流（女尊）](https://www.fshxjd.com/book/74hvo18/)
 - [韩团绿卡不想忍了](https://www.fshxjd.com/book/74hvnqo/)
 - [死亡悖论[无限流]](https://www.fshxjd.com/book/74hvn4b/)
-- [[综英美]让我统治哥谭！！！](https://www.fshxjd.com/book/74hvlbg/)
 - [心动嫌疑人](https://www.fshxjd.com/book/74hvl43/)
 - [这个位面归我了！[经营]](https://www.fshxjd.com/book/74hvkp3/)
-- [娶了女装心机太子](https://www.fshxjd.com/book/74hvjlk/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.fshxjd.com/book/74hvioi/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.fshxjd.com/book/74hvih0/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.fshxjd.com/book/74hvi48/)
@@ -169,12 +168,9 @@
 - [六零之成了卷王的妹妹](https://www.fshxjd.com/book/74hu3kj/)
 - [全民求生:从小木屋到魔法农场](https://www.fshxjd.com/book/74hu3ha/)
 - [我是唯一地上神国](https://www.fshxjd.com/book/74hu3fj/)
-- [绝不会喜欢五条君的！](https://www.fshxjd.com/book/74hu3de/)
-- [古代种田养娃日常](https://www.fshxjd.com/book/74hu3cn/)
 - [路人攻了主角攻［快穿］](https://www.fshxjd.com/book/74hu386/)
 - [高门小婢](https://www.fshxjd.com/book/74hu37m/)
 - [清澈女大的六零年代](https://www.fshxjd.com/book/74hu2vm/)
-- [猫猫也要养家糊口](https://www.fshxjd.com/book/74hu2k0/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1338/index.md)

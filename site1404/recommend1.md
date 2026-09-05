@@ -1,19 +1,19 @@
 
 # 小顽童寻书网-最热门的免费小说阅读平台|全本玄幻言情网游穿越都市小说在线阅读
 
-更新时间：2026-09-05 03:44:09
+更新时间：2026-09-06 03:44:58
 
 小顽童寻书网提供一个无广告、无弹窗干扰的环境，让您享受纯净的小说阅读体验。涵盖玄幻、网游、言情、穿越、都市等多种类型的小说资源，在这里可以找到最新的章节更新以及完整的书籍内容。
 
 - [小顽童寻书网](https://www.xwt999.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.xwt999.com/book/1u5nl8d/)
 - [炮灰的海外亲戚回国啦！](https://www.xwt999.com/book/1u5nhrc/)
 - [末世八年春，游戏降临](https://www.xwt999.com/book/1u5nhr8/)
 - [[综英美]哥谭市民，在线抽卡](https://www.xwt999.com/book/1u5nhr7/)
 - [魔咒请说普通话[西幻]](https://www.xwt999.com/book/1u5nhr6/)
 - [恶毒男配只想躺平](https://www.xwt999.com/book/1u5nhr4/)
-- [自知之明](https://www.xwt999.com/book/1u5nhr0/)
 - [清穿女回来后[天幕]](https://www.xwt999.com/book/1u5nhqt/)
 - [魔改剧本后我爆火了[娱乐圈]](https://www.xwt999.com/book/1u5nhqr/)
 - [欲加之罪](https://www.xwt999.com/book/1u5nhqp/)
@@ -101,7 +101,6 @@
 - [开局绑定郭奉孝，谋定三国风云](https://www.xwt999.com/book/1u5lf8h/)
 - [死对头又在挑衅我](https://www.xwt999.com/book/1u5lf09/)
 - [路人攻了主角攻［快穿］](https://www.xwt999.com/book/1u5lem4/)
-- [[综英美]让我统治哥谭！！！](https://www.xwt999.com/book/1u5lekc/)
 - [沈助理又在隐藏他的超能力](https://www.xwt999.com/book/1u5leil/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.xwt999.com/book/1u5lcvm/)
 - [美貌单出，杀穿港娱［八零］](https://www.xwt999.com/book/1u5lcjg/)
@@ -142,7 +141,6 @@
 - [权宋一只统](https://www.xwt999.com/book/1u5jn7b/)
 - [娘娘扶摇直上](https://www.xwt999.com/book/1u5jmrn/)
 - [恶犬攻绑定上司的乖狗系统](https://www.xwt999.com/book/1u5jlo1/)
-- [绝不会喜欢五条君的！](https://www.xwt999.com/book/1u5jjd6/)
 - [爱好和平但狂拆机甲](https://www.xwt999.com/book/1u5jgu5/)
 - [你让魔王组建勇者小队？](https://www.xwt999.com/book/1u5jdnl/)
 - [全民求生:从小木屋到魔法农场](https://www.xwt999.com/book/1u5ihme/)
@@ -152,28 +150,25 @@
 - [日化人生[科研]](https://www.xwt999.com/book/1u5ignf/)
 - [高调装神，猥琐发育](https://www.xwt999.com/book/1u5igkh/)
 - [始乱终弃清冷首辅后](https://www.xwt999.com/book/1u5igjd/)
+- [老公对不起](https://www.xwt999.com/book/1u5igh2/)
 - [在民俗惊悚片被诸神庇护](https://www.xwt999.com/book/1u5iggl/)
 - [我有一座安全城](https://www.xwt999.com/book/1u5iggd/)
 - [成为养成系练习生后](https://www.xwt999.com/book/1u5igds/)
 - [大瑛弟国](https://www.xwt999.com/book/1u5igde/)
-- [猫猫也要养家糊口](https://www.xwt999.com/book/1u5igbf/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.xwt999.com/book/1u5ig9r/)
 - [我是唯一地上神国](https://www.xwt999.com/book/1u5ig31/)
 - [六零之成了卷王的妹妹](https://www.xwt999.com/book/1u5ifvj/)
-- [古代种田养娃日常](https://www.xwt999.com/book/1u5ifs4/)
 - [95美国贵族高中模拟](https://www.xwt999.com/book/1u5ifms/)
 - [海岛求生：生活玩家种田囤货](https://www.xwt999.com/book/1u5ife7/)
 - [十九世纪贵族厨房（美食）](https://www.xwt999.com/book/1u5ifc7/)
 - [清澈女大的六零年代](https://www.xwt999.com/book/1u5ifb7/)
-- [九零首富的替嫁小媳妇](https://www.xwt999.com/book/1u5ifa8/)
 - [原配夫人](https://www.xwt999.com/book/1u5if8o/)
 - [完蛋！被恨孕男包围了！](https://www.xwt999.com/book/1u5if0d/)
 - [[封神]圣人生欲](https://www.xwt999.com/book/1u5ierl/)
 - [趁她之危](https://www.xwt999.com/book/1u5ien8/)
-- [八零恶毒后妈杀疯了](https://www.xwt999.com/book/1u5ien4/)
-- [娶了女装心机太子](https://www.xwt999.com/book/1u5ieka/)
+- [卷王后妈，八零养娃](https://www.xwt999.com/book/1u5ien4/)
 - [高门小婢](https://www.xwt999.com/book/1u5iegm/)
-- [假少爷不想活了](https://www.xwt999.com/book/1u5iefo/)
+- [假少爷离开后](https://www.xwt999.com/book/1u5iefo/)
 - [星际团宠小人鱼](https://www.xwt999.com/book/1u5ieem/)
 ## 相关内容
 - [README](/README.md)

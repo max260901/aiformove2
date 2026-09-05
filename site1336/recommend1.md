@@ -1,13 +1,15 @@
 
 # 笔看阁-最热门的免费小说网 | 玄幻、网游、言情、穿越、都市全本小说在线阅读
 
-更新时间：2026-09-05 03:25:12
+更新时间：2026-09-06 03:26:03
 
 笔看阁是最热门的免费小说网站之一，专注于提供包括玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读服务。本站承诺不设任何弹窗广告，页面简洁易用，为读者创造一个纯净舒适的阅读环境。
 
 - [笔看阁](https://www.dasenluan.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.dasenluan.com/book/3jmhknj/)
+- [揣崽丧夫后被情敌强娶了](https://www.dasenluan.com/book/3jmhkni/)
 - [我只想上京赶考啊[聊斋]](https://www.dasenluan.com/book/3jmhknd/)
 - [热恋过期需重追](https://www.dasenluan.com/book/3jmhknb/)
 - [八零法医，带全家致富](https://www.dasenluan.com/book/3jmhkna/)
@@ -47,7 +49,6 @@
 - [[崩铁]请给玩家一个准确的血条！](https://www.dasenluan.com/book/3jmhkkb/)
 - [双生子反派的端水抑郁妈[九零]](https://www.dasenluan.com/book/3jmhkk8/)
 - [[洪荒]成为太清妹妹后](https://www.dasenluan.com/book/3jmhkk6/)
-- [自知之明](https://www.dasenluan.com/book/3jmhkk5/)
 - [爱情的肯定句](https://www.dasenluan.com/book/3jmhkk1/)
 - [炮灰的海外亲戚回国啦！](https://www.dasenluan.com/book/3jmhkjs/)
 - [占有欲Daddy是我老公？](https://www.dasenluan.com/book/3jmhkjq/)
@@ -91,7 +92,7 @@
 - [在卷王和废物之间选择做吉祥物](https://www.dasenluan.com/book/3jmgifm/)
 - [昭暮](https://www.dasenluan.com/book/3jmgfde/)
 - [从维多利亚时代开始](https://www.dasenluan.com/book/3jmgej6/)
-- [假少爷不想活了](https://www.dasenluan.com/book/3jmg85e/)
+- [假少爷离开后](https://www.dasenluan.com/book/3jmg85e/)
 - [食明](https://www.dasenluan.com/book/3jmfvsd/)
 - [诡话第一boss](https://www.dasenluan.com/book/3jmfsl0/)
 - [专业女配的自我修养（快穿）](https://www.dasenluan.com/book/3jmfrih/)
@@ -129,7 +130,7 @@
 - [在魔法贵族学院当白月光](https://www.dasenluan.com/book/3jmeagh/)
 - [五条老师与他的封建妻子](https://www.dasenluan.com/book/3jme9hq/)
 - [我187了，你敢见我吗？](https://www.dasenluan.com/book/3jme8io/)
-- [八零恶毒后妈杀疯了](https://www.dasenluan.com/book/3jme56l/)
+- [卷王后妈，八零养娃](https://www.dasenluan.com/book/3jme56l/)
 - [和姐姐的前女友欢愉后](https://www.dasenluan.com/book/3jme4qv/)
 - [[封神]圣人生欲](https://www.dasenluan.com/book/3jme377/)
 - [我司艺人永不塌房](https://www.dasenluan.com/book/3jme27f/)
@@ -138,14 +139,12 @@
 - [在重生文里考科举](https://www.dasenluan.com/book/3jmdpcu/)
 - [妻主风流（女尊）](https://www.dasenluan.com/book/3jmdoc8/)
 - [韩团绿卡不想忍了](https://www.dasenluan.com/book/3jmdlfs/)
-- [[综英美]让我统治哥谭！！！](https://www.dasenluan.com/book/3jmdl2f/)
 - [死亡悖论[无限流]](https://www.dasenluan.com/book/3jmdj6c/)
 - [这个位面归我了！[经营]](https://www.dasenluan.com/book/3jmdit9/)
 - [心动嫌疑人](https://www.dasenluan.com/book/3jmdinu/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.dasenluan.com/book/3jmdh22/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.dasenluan.com/book/3jmdgjo/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.dasenluan.com/book/3jmdgjd/)
-- [娶了女装心机太子](https://www.dasenluan.com/book/3jmdg6g/)
 - [死遁的亡夫们都回来了](https://www.dasenluan.com/book/3jmdfff/)
 - [清冷丞相怀了死对头的崽](https://www.dasenluan.com/book/3jmdfc2/)
 - [村霸非要入赘受气包](https://www.dasenluan.com/book/3jmdevn/)
@@ -163,15 +162,12 @@
 - [海岛求生：生活玩家种田囤货](https://www.dasenluan.com/book/3jmc2ot/)
 - [全民求生:从小木屋到魔法农场](https://www.dasenluan.com/book/3jmc2cj/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.dasenluan.com/book/3jmc2ap/)
-- [古代种田养娃日常](https://www.dasenluan.com/book/3jmc25f/)
 - [95美国贵族高中模拟](https://www.dasenluan.com/book/3jmc1up/)
 - [老实人妻，但顶级魅魔](https://www.dasenluan.com/book/3jmc1jt/)
 - [[娱乐圈]过分美丽的她](https://www.dasenluan.com/book/3jmc1i4/)
 - [我有一座安全城](https://www.dasenluan.com/book/3jmc17r/)
 - [五十年代港城日常](https://www.dasenluan.com/book/3jmc15s/)
-- [猫猫也要养家糊口](https://www.dasenluan.com/book/3jmc0vq/)
 - [巨物致富：回乡开钓场](https://www.dasenluan.com/book/3jmc0tb/)
-- [绝不会喜欢五条君的！](https://www.dasenluan.com/book/3jmc0p6/)
 - [高门小婢](https://www.dasenluan.com/book/3jmc0lt/)
 - [清澈女大的六零年代](https://www.dasenluan.com/book/3jmc0j7/)
 - [路人攻了主角攻［快穿］](https://www.dasenluan.com/book/3jmc0in/)

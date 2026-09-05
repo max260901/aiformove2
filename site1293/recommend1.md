@@ -1,13 +1,15 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-05 03:23:50
+更新时间：2026-09-06 03:24:39
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
 - [速阅阁小说网](https://www.ccccenergy.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.ccccenergy.com/book/7car6cl/)
+- [和八个男人在极寒游戏求生](https://www.ccccenergy.com/book/7car6ck/)
 - [星露谷，但日本战国](https://www.ccccenergy.com/book/7car6cj/)
 - [恐游里的邻居们[万人迷]](https://www.ccccenergy.com/book/7car6ci/)
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.ccccenergy.com/book/7car6ch/)
@@ -19,7 +21,6 @@
 - [［综英美］蝙蝠崽？我不是啊！](https://www.ccccenergy.com/book/7car6cb/)
 - [全世界名为爱的恶意](https://www.ccccenergy.com/book/7car6ca/)
 - [仙尊心尖宠，但被魔尊抢了](https://www.ccccenergy.com/book/7car6c9/)
-- [自知之明](https://www.ccccenergy.com/book/7car6c8/)
 - [失忆后和死对头有了崽](https://www.ccccenergy.com/book/7car6c7/)
 - [你让魔王组建勇者小队？](https://www.ccccenergy.com/book/7car6c6/)
 - [大佬的漂亮老婆回来带崽了[八零]](https://www.ccccenergy.com/book/7car6c5/)
@@ -83,7 +84,6 @@
 - [我骗家里的钱养你啊](https://www.ccccenergy.com/book/7car6aa/)
 - [我司艺人永不塌房](https://www.ccccenergy.com/book/7car692/)
 - [我们生活玩家是这样的](https://www.ccccenergy.com/book/7car688/)
-- [[综英美]让我统治哥谭！！！](https://www.ccccenergy.com/book/7car660/)
 - [[封神]圣人生欲](https://www.ccccenergy.com/book/7car64n/)
 - [原配夫人](https://www.ccccenergy.com/book/7car646/)
 - [始乱终弃清冷首辅后](https://www.ccccenergy.com/book/7car63q/)
@@ -91,14 +91,12 @@
 - [十九世纪贵族厨房（美食）](https://www.ccccenergy.com/book/7car633/)
 - [九零首富的替嫁小媳妇](https://www.ccccenergy.com/book/7car630/)
 - [高调装神，猥琐发育](https://www.ccccenergy.com/book/7car62g/)
-- [假少爷不想活了](https://www.ccccenergy.com/book/7car62e/)
+- [假少爷离开后](https://www.ccccenergy.com/book/7car62e/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.ccccenergy.com/book/7car5vf/)
 - [直男咒术师的限制级游戏](https://www.ccccenergy.com/book/7car5tj/)
 - [六零之成了卷王的妹妹](https://www.ccccenergy.com/book/7car4m9/)
-- [绝不会喜欢五条君的！](https://www.ccccenergy.com/book/7car4lq/)
 - [路人攻了主角攻［快穿］](https://www.ccccenergy.com/book/7car4jc/)
 - [昭暮](https://www.ccccenergy.com/book/7caqr3e/)
-- [古代种田养娃日常](https://www.ccccenergy.com/book/7caqfap/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.ccccenergy.com/book/7caq5i1/)
 - [[足球]足坛人生模拟器](https://www.ccccenergy.com/book/7capjhh/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ccccenergy.com/book/7capi8k/)
@@ -142,13 +140,12 @@
 - [妻主风流（女尊）](https://www.ccccenergy.com/book/nka5b4/)
 - [多梦你一会儿](https://www.ccccenergy.com/book/nk9v65/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.ccccenergy.com/book/nk9ula/)
-- [娶了女装心机太子](https://www.ccccenergy.com/book/nk9s4c/)
 - [韩团绿卡不想忍了](https://www.ccccenergy.com/book/nk9rkt/)
 - [被糟蹋的老实人决定反击](https://www.ccccenergy.com/book/nk9qqh/)
 - [这个位面归我了！[经营]](https://www.ccccenergy.com/book/nk9pcg/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.ccccenergy.com/book/nk9ote/)
 - [村霸非要入赘受气包](https://www.ccccenergy.com/book/nk9osj/)
-- [八零恶毒后妈杀疯了](https://www.ccccenergy.com/book/nk9oar/)
+- [卷王后妈，八零养娃](https://www.ccccenergy.com/book/nk9oar/)
 - [清冷丞相怀了死对头的崽](https://www.ccccenergy.com/book/nk9o8r/)
 - [心动嫌疑人](https://www.ccccenergy.com/book/nk9mg1/)
 - [和山神搭伙开农场的日子](https://www.ccccenergy.com/book/nk9luo/)
@@ -171,7 +168,6 @@
 - [五十年代港城日常](https://www.ccccenergy.com/book/2bk355/)
 - [在魔法贵族学院当白月光](https://www.ccccenergy.com/book/2bk34j/)
 - [全民求生:从小木屋到魔法农场](https://www.ccccenergy.com/book/2bk325/)
-- [猫猫也要养家糊口](https://www.ccccenergy.com/book/2bk2h2/)
 - [[娱乐圈]过分美丽的她](https://www.ccccenergy.com/book/7i0t8/)
 - [海岛求生：生活玩家种田囤货](https://www.ccccenergy.com/book/7i0m6/)
 - [清澈女大的六零年代](https://www.ccccenergy.com/book/7i0ga/)

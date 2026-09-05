@@ -1,7 +1,7 @@
 
 # 哲理书客吧-全本小说免费阅读及txt下载,最新章节无弹窗
 
-更新时间：2026-09-05 03:46:34
+更新时间：2026-09-06 03:47:25
 
 哲理书客吧提供最快更新的热门网络小说最新章节，支持全本小说在线免费阅读与txt电子书打包下载服务。收录多本经典好看的小说，并承诺无广告弹窗清爽阅读体验，是小说爱好者的理想选择。
 
@@ -14,6 +14,7 @@
 - [等我吃腻了再倒闭可以吗](https://www.zheli518.com/book/4taqmkv/)
 - [这个替嫁让我来！](https://www.zheli518.com/book/4taqmk9/)
 - [[综英美]和亲友群穿哥谭以后](https://www.zheli518.com/book/4taqmj5/)
+- [穿为龙傲天发妻后](https://www.zheli518.com/book/4taqmim/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.zheli518.com/book/4taqmhq/)
 - [全世界名为爱的恶意](https://www.zheli518.com/book/4taqmgv/)
 - [修仙界都为我神魂颠倒](https://www.zheli518.com/book/4taqkfs/)
@@ -32,10 +33,8 @@
 - [我超凶的！[快穿]](https://www.zheli518.com/book/4taqb7e/)
 - [我比反派先崩坏[快穿]](https://www.zheli518.com/book/4taqad8/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.zheli518.com/book/4taqa6q/)
-- [我的烧烤摊超美味[美食]](https://www.zheli518.com/book/4taqa5u/)
 - [渡鬼](https://www.zheli518.com/book/4taqa28/)
 - [cos温迪后玩到真崩铁了](https://www.zheli518.com/book/4taq614/)
-- [从异世界穿回来后](https://www.zheli518.com/book/4taq5pu/)
 - [我有嘉宾](https://www.zheli518.com/book/4taq5hf/)
 - [娇气点怎么啦？［快穿］](https://www.zheli518.com/book/4taq5c2/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.zheli518.com/book/4taq4nd/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.zheli518.com/book/4tapfqc/)
 - [昭暮](https://www.zheli518.com/book/4tapelp/)
 - [你，后室管理员](https://www.zheli518.com/book/4tapam7/)
-- [星际团宠小人鱼](https://www.zheli518.com/book/4tapaki/)
 - [高调装神，猥琐发育](https://www.zheli518.com/book/4tap3nr/)
 - [[足球]葡萄牙世界杯if线](https://www.zheli518.com/book/4taotm9/)
 - [每天回到家都看到雄虫在装死](https://www.zheli518.com/book/4taotho/)
@@ -286,7 +284,6 @@
 - [禁止对人气角色上限制级mod！！！](https://www.zheli518.com/book/4tangmm/)
 - [限时心动](https://www.zheli518.com/book/4tangke/)
 - [奶奶蛋糕店[美食]](https://www.zheli518.com/book/4tangif/)
-- [多梦你一会儿](https://www.zheli518.com/book/4tanghb/)
 - [一觉醒来老公变男大了](https://www.zheli518.com/book/4tangbo/)
 - [被四皇错看成小动物后](https://www.zheli518.com/book/4tang9k/)
 - [[综英美]如何获得地球户口](https://www.zheli518.com/book/4tang4f/)
@@ -369,7 +366,6 @@
 - [三岁崽崽带龙王爸爸上综艺爆红](https://www.zheli518.com/book/4tanbc6/)
 - [忍界观察日记](https://www.zheli518.com/book/4tanba1/)
 - [[崩铁]自恋值拉满穿越被水仙了](https://www.zheli518.com/book/4tanavf/)
-- [和前女友的心上人he了](https://www.zheli518.com/book/4tanaqm/)
 - [龙傲天未婚妻不退婚了](https://www.zheli518.com/book/4tanaht/)
 - [蝴蝶园](https://www.zheli518.com/book/4tanafn/)
 - [运动番主角模拟器](https://www.zheli518.com/book/4tana9n/)
@@ -393,6 +389,7 @@
 - [在家不许汪汪大叫](https://www.zheli518.com/book/4tan93o/)
 - [转生成为伊路米的双生姐姐](https://www.zheli518.com/book/4tan91k/)
 - [误把钓系病美人O娇养后](https://www.zheli518.com/book/4tan91e/)
+- [被阴湿坏女人缠上后](https://www.zheli518.com/book/4tan8vc/)
 - [救命！猫尾巴藏不住了](https://www.zheli518.com/book/4tan8pc/)
 - [高冷影后逼我标记她](https://www.zheli518.com/book/4tan8ou/)
 - [青山不渡](https://www.zheli518.com/book/4tan8lf/)
@@ -428,6 +425,7 @@
 - [幼崽假少爷选择回归寒门](https://www.zheli518.com/book/4tamst4/)
 - [[足球]小小鸟堂堂来袭](https://www.zheli518.com/book/4tamr7j/)
 - [盛夏晴浓](https://www.zheli518.com/book/4tamqk6/)
+- [欢迎来到重生点](https://www.zheli518.com/book/4tampkb/)
 - [好巧，你也是妹控？[综崩铁]](https://www.zheli518.com/book/4tamp9q/)
 - [青城玩家明明超强却过分谨慎](https://www.zheli518.com/book/4tamnvr/)
 - [侯府打工人](https://www.zheli518.com/book/4tamn5j/)

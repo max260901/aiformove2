@@ -1,13 +1,15 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-05 03:28:19
+更新时间：2026-09-06 03:29:14
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
 - [随梦小说网](https://www.hzciic.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.hzciic.com/book/1sjvhsi/)
+- [揣崽丧夫后被情敌强娶了](https://www.hzciic.com/book/1sjvhsh/)
 - [失忆后和死对头有了崽](https://www.hzciic.com/book/1sjvhsg/)
 - [在年代文里跑运输](https://www.hzciic.com/book/1sjvhsf/)
 - [清穿女回来后[天幕]](https://www.hzciic.com/book/1sjvhse/)
@@ -74,7 +76,6 @@
 - [穿为龙傲天发妻后](https://www.hzciic.com/book/1sjvhqg/)
 - [我骗家里的钱养你啊](https://www.hzciic.com/book/1sjvhqf/)
 - [谁说踢球就不能成为名侦探[足球]](https://www.hzciic.com/book/1sjvhqe/)
-- [自知之明](https://www.hzciic.com/book/1sjvhqd/)
 - [强取师尊后](https://www.hzciic.com/book/1sjvhqc/)
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.hzciic.com/book/1sjvhqb/)
 - [娘娘扶摇直上](https://www.hzciic.com/book/1sjvhqa/)
@@ -83,7 +84,6 @@
 - [双生子反派的端水抑郁妈[九零]](https://www.hzciic.com/book/1sjvhq7/)
 - [我司艺人永不塌房](https://www.hzciic.com/book/1sjvhoq/)
 - [我们生活玩家是这样的](https://www.hzciic.com/book/1sjvhnq/)
-- [[综英美]让我统治哥谭！！！](https://www.hzciic.com/book/1sjvhne/)
 - [原配夫人](https://www.hzciic.com/book/1sjvhkd/)
 - [始乱终弃清冷首辅后](https://www.hzciic.com/book/1sjvhjp/)
 - [星际团宠小人鱼](https://www.hzciic.com/book/1sjvhjj/)
@@ -91,14 +91,12 @@
 - [[封神]圣人生欲](https://www.hzciic.com/book/1sjvhiu/)
 - [九零首富的替嫁小媳妇](https://www.hzciic.com/book/1sjvhip/)
 - [高调装神，猥琐发育](https://www.hzciic.com/book/1sjvhid/)
-- [假少爷不想活了](https://www.hzciic.com/book/1sjvhib/)
+- [假少爷离开后](https://www.hzciic.com/book/1sjvhib/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.hzciic.com/book/1sjvhgq/)
 - [直男咒术师的限制级游戏](https://www.hzciic.com/book/1sjvhgi/)
 - [六零之成了卷王的妹妹](https://www.hzciic.com/book/1sjvg6e/)
-- [绝不会喜欢五条君的！](https://www.hzciic.com/book/1sjvg5v/)
 - [路人攻了主角攻［快穿］](https://www.hzciic.com/book/1sjvg3f/)
 - [昭暮](https://www.hzciic.com/book/1sjv6go/)
-- [古代种田养娃日常](https://www.hzciic.com/book/1sjuh0f/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.hzciic.com/book/1sjuggq/)
 - [上个鬼班[无限]](https://www.hzciic.com/book/1sjtri4/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.hzciic.com/book/1sjtojr/)
@@ -143,12 +141,11 @@
 - [逃出金丝笼，我力挽山河开国称帝](https://www.hzciic.com/book/620rel/)
 - [多梦你一会儿](https://www.hzciic.com/book/620qki/)
 - [韩团绿卡不想忍了](https://www.hzciic.com/book/620orv/)
-- [娶了女装心机太子](https://www.hzciic.com/book/620o2o/)
 - [被糟蹋的老实人决定反击](https://www.hzciic.com/book/620l56/)
 - [清冷丞相怀了死对头的崽](https://www.hzciic.com/book/620kct/)
 - [这个位面归我了！[经营]](https://www.hzciic.com/book/620k6r/)
 - [村霸非要入赘受气包](https://www.hzciic.com/book/620ju2/)
-- [八零恶毒后妈杀疯了](https://www.hzciic.com/book/620iku/)
+- [卷王后妈，八零养娃](https://www.hzciic.com/book/620iku/)
 - [和山神搭伙开农场的日子](https://www.hzciic.com/book/620ih4/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.hzciic.com/book/620h9v/)
 - [心动嫌疑人](https://www.hzciic.com/book/620f12/)
@@ -173,7 +170,6 @@
 - [[娱乐圈]过分美丽的她](https://www.hzciic.com/book/1u2vm/)
 - [我有一座安全城](https://www.hzciic.com/book/1u2o1/)
 - [我是唯一地上神国](https://www.hzciic.com/book/1u2hn/)
-- [猫猫也要养家糊口](https://www.hzciic.com/book/1u2el/)
 - [苏娘子汴京摆摊日常（美食）](https://www.hzciic.com/book/66ko/)
 ## 相关内容
 - [README](/README.md)

@@ -1,13 +1,15 @@
 
 # 情感小说-精彩小说推荐网,涵盖言情都市历史科幻等多种类型
 
-更新时间：2026-09-05 03:35:16
+更新时间：2026-09-06 03:36:12
 
 情感小说致力于为广大书友推荐各种类型好看的小说，包括但不限于言情、都市、历史、科幻、灵异、军事、悬疑、玄幻、武侠、末世等。看小说，找小说就上书格格小说推荐网！
 
 - [情感小说](https://www.qinggan1687.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.qinggan1687.com/book/3qc5is6/)
+- [揣崽丧夫后被情敌强娶了](https://www.qinggan1687.com/book/3qc5is5/)
 - [魔咒请说普通话[西幻]](https://www.qinggan1687.com/book/3qc5is4/)
 - [在中世纪做奴隶](https://www.qinggan1687.com/book/3qc5is2/)
 - [娘娘扶摇直上](https://www.qinggan1687.com/book/3qc5is0/)
@@ -49,7 +51,6 @@
 - [国师](https://www.qinggan1687.com/book/3qc5iph/)
 - [清穿女回来后[天幕]](https://www.qinggan1687.com/book/3qc5ip8/)
 - [仙尊心尖宠，但被魔尊抢了](https://www.qinggan1687.com/book/3qc5ip0/)
-- [自知之明](https://www.qinggan1687.com/book/3qc5iov/)
 - [好心的俄罗斯人](https://www.qinggan1687.com/book/3qc5iot/)
 - [魔尊闭关十年连生十一子？！](https://www.qinggan1687.com/book/3qc5ior/)
 - [烈火焚身[巴黎圣母院]](https://www.qinggan1687.com/book/3qc5ioo/)
@@ -125,8 +126,7 @@
 - [多梦你一会儿](https://www.qinggan1687.com/book/3qc2c9j/)
 - [[封神]圣人生欲](https://www.qinggan1687.com/book/3qc2b8n/)
 - [和贵志君是世界第一的好朋友](https://www.qinggan1687.com/book/3qc2b3l/)
-- [[综英美]让我统治哥谭！！！](https://www.qinggan1687.com/book/3qc2b3i/)
-- [八零恶毒后妈杀疯了](https://www.qinggan1687.com/book/3qc2ae4/)
+- [卷王后妈，八零养娃](https://www.qinggan1687.com/book/3qc2ae4/)
 - [五条老师与他的封建妻子](https://www.qinggan1687.com/book/3qc2a34/)
 - [在魔法贵族学院当白月光](https://www.qinggan1687.com/book/3qc28s4/)
 - [我司艺人永不塌房](https://www.qinggan1687.com/book/3qc27v7/)
@@ -143,7 +143,6 @@
 - [带清冷女主回乡养螃蟹[种田]](https://www.qinggan1687.com/book/3qc1i7m/)
 - [这个位面归我了！[经营]](https://www.qinggan1687.com/book/3qc1gu9/)
 - [清冷丞相怀了死对头的崽](https://www.qinggan1687.com/book/3qc1fve/)
-- [娶了女装心机太子](https://www.qinggan1687.com/book/3qc1fv3/)
 - [村霸非要入赘受气包](https://www.qinggan1687.com/book/3qc1fam/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.qinggan1687.com/book/3qc1f7j/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.qinggan1687.com/book/3qc1evq/)
@@ -154,17 +153,14 @@
 - [恶犬攻绑定上司的乖狗系统](https://www.qinggan1687.com/book/3qc15ms/)
 - [权宋一只统](https://www.qinggan1687.com/book/3qc13b7/)
 - [爱好和平但狂拆机甲](https://www.qinggan1687.com/book/3qc0uq9/)
-- [假少爷不想活了](https://www.qinggan1687.com/book/3qc01n7/)
+- [假少爷离开后](https://www.qinggan1687.com/book/3qc01n7/)
 - [清澈女大的六零年代](https://www.qinggan1687.com/book/3qc01g1/)
-- [古代种田养娃日常](https://www.qinggan1687.com/book/3qc01ff/)
 - [五十年代港城日常](https://www.qinggan1687.com/book/3qc018i/)
-- [绝不会喜欢五条君的！](https://www.qinggan1687.com/book/3qc015i/)
 - [全民求生:从小木屋到魔法农场](https://www.qinggan1687.com/book/3qc00rh/)
 - [日化人生[科研]](https://www.qinggan1687.com/book/3qc00qd/)
 - [成为养成系练习生后](https://www.qinggan1687.com/book/3qc00p8/)
 - [95美国贵族高中模拟](https://www.qinggan1687.com/book/3qc00e3/)
 - [直男咒术师的限制级游戏](https://www.qinggan1687.com/book/3qc007n/)
-- [猫猫也要养家糊口](https://www.qinggan1687.com/book/3qbvvtk/)
 - [[娱乐圈]过分美丽的她](https://www.qinggan1687.com/book/3qbvvrj/)
 - [我是唯一地上神国](https://www.qinggan1687.com/book/3qbvvr4/)
 - [巨物致富：回乡开钓场](https://www.qinggan1687.com/book/3qbvvh9/)

@@ -1,7 +1,7 @@
 
 # 落秋文学网 - 免费全本小说阅读,最新章节更新,无弹窗广告
 
-更新时间：2026-09-05 03:41:16
+更新时间：2026-09-06 03:42:07
 
 落秋文学网提供最快最新的网络小说更新服务，推荐最好看的网络小说排行榜。全站支持无弹窗广告阅读体验，全本小说均可免费在线阅读。
 
@@ -14,6 +14,7 @@
 - [这个替嫁让我来！](https://www.wenxue868.com/book/rlcn54/)
 - [等我吃腻了再倒闭可以吗](https://www.wenxue868.com/book/rlcn4t/)
 - [自知之明](https://www.wenxue868.com/book/rlcn4r/)
+- [穿为龙傲天发妻后](https://www.wenxue868.com/book/rlcn4q/)
 - [[综英美]和亲友群穿哥谭以后](https://www.wenxue868.com/book/rlcn4n/)
 - [全世界名为爱的恶意](https://www.wenxue868.com/book/rlcn32/)
 - [修仙界都为我神魂颠倒](https://www.wenxue868.com/book/rlcl3k/)
@@ -32,10 +33,8 @@
 - [我超凶的！[快穿]](https://www.wenxue868.com/book/rlcbqd/)
 - [我比反派先崩坏[快穿]](https://www.wenxue868.com/book/rlcavl/)
 - [渡鬼](https://www.wenxue868.com/book/rlcan8/)
-- [我的烧烤摊超美味[美食]](https://www.wenxue868.com/book/rlcamj/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wenxue868.com/book/rlcaks/)
 - [cos温迪后玩到真崩铁了](https://www.wenxue868.com/book/rlc6h0/)
-- [从异世界穿回来后](https://www.wenxue868.com/book/rlc6b6/)
 - [我有嘉宾](https://www.wenxue868.com/book/rlc62r/)
 - [娇气点怎么啦？［快穿］](https://www.wenxue868.com/book/rlc5vs/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.wenxue868.com/book/rlc59h/)
@@ -57,7 +56,6 @@
 - [侦探立于百万生命之上](https://www.wenxue868.com/book/rlbgvs/)
 - [特殊魅力值，已到账](https://www.wenxue868.com/book/rlbg8t/)
 - [昭暮](https://www.wenxue868.com/book/rlbf34/)
-- [星际团宠小人鱼](https://www.wenxue868.com/book/rlbbgl/)
 - [你，后室管理员](https://www.wenxue868.com/book/rlbbca/)
 - [高调装神，猥琐发育](https://www.wenxue868.com/book/rlb4cb/)
 - [求求你们别吃了](https://www.wenxue868.com/book/rlau7s/)
@@ -282,7 +280,6 @@
 - [侦探小说的大忌[福尔摩斯]](https://www.wenxue868.com/book/rl9hnb/)
 - [废土猫猫求生指南](https://www.wenxue868.com/book/rl9hju/)
 - [修仙回来后开了间民宿](https://www.wenxue868.com/book/rl9hjh/)
-- [多梦你一会儿](https://www.wenxue868.com/book/rl9hit/)
 - [佐久早才不是洁癖！](https://www.wenxue868.com/book/rl9hfr/)
 - [漫画路人绑定系统后](https://www.wenxue868.com/book/rl9ham/)
 - [系统错绑后我成了顶级白富美](https://www.wenxue868.com/book/rl9h9m/)
@@ -383,7 +380,6 @@
 - [经纪人砸钱整顿内娱爆火了](https://www.wenxue868.com/book/rl9aco/)
 - [少年天师，国外爆红](https://www.wenxue868.com/book/rl9abb/)
 - [[足球]在比利时我们只玩天赋](https://www.wenxue868.com/book/rl9aaa/)
-- [和前女友的心上人he了](https://www.wenxue868.com/book/rl9a9h/)
 - [随便捡小狗会出大问题](https://www.wenxue868.com/book/rl9a8n/)
 - [软饭的正确吃法[快穿]](https://www.wenxue868.com/book/rl9a8g/)
 - [隔壁班的松田君](https://www.wenxue868.com/book/rl9a3u/)
@@ -403,6 +399,7 @@
 - [救命！猫尾巴藏不住了](https://www.wenxue868.com/book/rl98gi/)
 - [青山不渡](https://www.wenxue868.com/book/rl98f9/)
 - [无能的丈夫们](https://www.wenxue868.com/book/rl98eo/)
+- [被阴湿坏女人缠上后](https://www.wenxue868.com/book/rl98cg/)
 - [请问夫君你哪位](https://www.wenxue868.com/book/rl97mm/)
 - [国舅太难追了](https://www.wenxue868.com/book/rl97lu/)
 - [咒术师，但队友是侦探](https://www.wenxue868.com/book/rl97l1/)
@@ -430,6 +427,7 @@
 - [盛夏晴浓](https://www.wenxue868.com/book/rl8r09/)
 - [青城玩家明明超强却过分谨慎](https://www.wenxue868.com/book/rl8qra/)
 - [好巧，你也是妹控？[综崩铁]](https://www.wenxue868.com/book/rl8p96/)
+- [欢迎来到重生点](https://www.wenxue868.com/book/rl8olc/)
 - [法外狂猫](https://www.wenxue868.com/book/rl8nmh/)
 - [矩阵干扰](https://www.wenxue868.com/book/rl8nl3/)
 - [侯府打工人](https://www.wenxue868.com/book/rl8m40/)

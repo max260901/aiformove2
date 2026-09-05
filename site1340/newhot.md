@@ -1,7 +1,7 @@
 
 # 时光树园-热门小说大全-小说排行榜-好看的小说推荐-热门小说推荐
 
-更新时间：2026-09-05 03:31:00
+更新时间：2026-09-06 03:31:56
 
 时光树园是一个热门小说推荐网站，这里有热门全本小说大全、好看的小说推荐、小说排行榜等。您可以在这里无广告在线阅读优质的豪门总裁小说、现代言情小说、古代言情小说、都市小说、穿越小说、玄幻小说、武侠仙侠等各类热门小说。
 
@@ -19,7 +19,7 @@
 - [这个替嫁让我来！](https://www.kltbl.com/book/5achcpb/)
 - [咦？我爸爸复活啦](https://www.kltbl.com/book/5achcp0/)
 - [等我吃腻了再倒闭可以吗](https://www.kltbl.com/book/5achcou/)
-- [我的烧烤摊超美味[美食]](https://www.kltbl.com/book/5achbth/)
+- [穿为龙傲天发妻后](https://www.kltbl.com/book/5achco3/)
 - [暴君偏头痛](https://www.kltbl.com/book/5achbrs/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kltbl.com/book/5achbrc/)
 - [渡鬼](https://www.kltbl.com/book/5achbqc/)
@@ -40,9 +40,7 @@
 - [我超凶的！[快穿]](https://www.kltbl.com/book/5ach1bp/)
 - [我有嘉宾](https://www.kltbl.com/book/5ach0lu/)
 - [我比反派先崩坏[快穿]](https://www.kltbl.com/book/5ach0ir/)
-- [从异世界穿回来后](https://www.kltbl.com/book/5ach007/)
 - [cos温迪后玩到真崩铁了](https://www.kltbl.com/book/5acgs72/)
-- [星际团宠小人鱼](https://www.kltbl.com/book/5acgrm2/)
 - [你，后室管理员](https://www.kltbl.com/book/5acgrll/)
 - [娇气点怎么啦？［快穿］](https://www.kltbl.com/book/5acgrke/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.kltbl.com/book/5acgqt4/)
@@ -319,7 +317,6 @@
 - [摄政长公主穿成炮灰女配[七零]](https://www.kltbl.com/book/5ace3mj/)
 - [汉武帝戾太子什么含金量](https://www.kltbl.com/book/5ace3ik/)
 - [这死beta老说我们不可能](https://www.kltbl.com/book/5ace3ha/)
-- [多梦你一会儿](https://www.kltbl.com/book/5ace3el/)
 - [太子妃她不干了](https://www.kltbl.com/book/5ace3af/)
 - [逆序布鲁斯的好大儿](https://www.kltbl.com/book/5ace36r/)
 - [冷傲上司绑定娇妻系统后](https://www.kltbl.com/book/5ace35s/)
@@ -396,12 +393,12 @@
 - [末世山居日常](https://www.kltbl.com/book/5acdu62/)
 - [小狗向导，世界瑰宝！](https://www.kltbl.com/book/5acdu21/)
 - [青山不渡](https://www.kltbl.com/book/5acdu0f/)
-- [和前女友的心上人he了](https://www.kltbl.com/book/5acdtuj/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.kltbl.com/book/5acdtu1/)
 - [国舅太难追了](https://www.kltbl.com/book/5acdtr6/)
 - [司寝宫女](https://www.kltbl.com/book/5acdtog/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.kltbl.com/book/5acdto6/)
 - [这谁的沙雕二次元心声！](https://www.kltbl.com/book/5acdtlo/)
+- [被阴湿坏女人缠上后](https://www.kltbl.com/book/5acdtlk/)
 - [顶流他姐有神豪系统](https://www.kltbl.com/book/5acdtko/)
 - [失忆后，和五条激情互演](https://www.kltbl.com/book/5acdtk4/)
 - [咒术师，但队友是侦探](https://www.kltbl.com/book/5acdtiq/)
@@ -431,6 +428,7 @@
 - [战死的阿爹回来了[年代]](https://www.kltbl.com/book/5acde4e/)
 - [盛夏晴浓](https://www.kltbl.com/book/5acdcu5/)
 - [[综英美]让我统治哥谭！！！](https://www.kltbl.com/book/5acdb7r/)
+- [欢迎来到重生点](https://www.kltbl.com/book/5acd9mi/)
 - [好巧，你也是妹控？[综崩铁]](https://www.kltbl.com/book/5acd7pd/)
 - [好兄弟暴富后非要跟我结婚](https://www.kltbl.com/book/5acd7id/)
 - [关于我虚构了一个男友这件事](https://www.kltbl.com/book/5acd5p4/)

@@ -1,18 +1,20 @@
 
 # 唯我小说网-最新小说在线阅读,好看小说全文阅读
 
-更新时间：2026-09-05 03:28:01
+更新时间：2026-09-06 03:28:56
 
 唯我小说网提供最新最热门的小说在线阅读服务，包括但不限于各类好看的小说全文内容，满足广大读者的需求。
 
 - [唯我小说网](https://www.hkffbw.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.hkffbw.com/book/4nr5rmj/)
 - [[综英美]和亲友群穿哥谭以后](https://www.hkffbw.com/book/4nr5rmb/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.hkffbw.com/book/4nr5rm9/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.hkffbw.com/book/4nr5rlu/)
 - [咦？我爸爸复活啦](https://www.hkffbw.com/book/4nr5rls/)
 - [我骗家里的钱养你啊](https://www.hkffbw.com/book/4nr5rlq/)
+- [穿为龙傲天发妻后](https://www.hkffbw.com/book/4nr5rlm/)
 - [全世界名为爱的恶意](https://www.hkffbw.com/book/4nr5rlk/)
 - [等我吃腻了再倒闭可以吗](https://www.hkffbw.com/book/4nr5rld/)
 - [自知之明](https://www.hkffbw.com/book/4nr5rkv/)
@@ -24,20 +26,17 @@
 - [暴君偏头痛](https://www.hkffbw.com/book/4nr5rif/)
 - [躲避原书剧情五年后](https://www.hkffbw.com/book/4nr5rhn/)
 - [青城玩家明明超强却过分谨慎](https://www.hkffbw.com/book/4nr5rh8/)
-- [我的烧烤摊超美味[美食]](https://www.hkffbw.com/book/4nr5rg5/)
 - [[综英美]让我统治哥谭！！！](https://www.hkffbw.com/book/4nr5rfb/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.hkffbw.com/book/4nr5rf8/)
 - [失而复得的白月光[快穿]](https://www.hkffbw.com/book/4nr5rf5/)
 - [[封神]圣人生欲](https://www.hkffbw.com/book/4nr5ren/)
 - [你，后室管理员](https://www.hkffbw.com/book/4nr5rec/)
-- [星际团宠小人鱼](https://www.hkffbw.com/book/4nr5re4/)
 - [被四皇错看成小动物后](https://www.hkffbw.com/book/4nr5rd8/)
 - [高调装神，猥琐发育](https://www.hkffbw.com/book/4nr5rcf/)
 - [京秋婚约](https://www.hkffbw.com/book/4nr5rae/)
 - [阴郁路人不想被喜欢](https://www.hkffbw.com/book/4nr5r9m/)
 - [直男咒术师的限制级游戏](https://www.hkffbw.com/book/4nr5r9h/)
 - [纯爱宇智波基本恋爱法](https://www.hkffbw.com/book/4nr5r9a/)
-- [从异世界穿回来后](https://www.hkffbw.com/book/4nr5r7l/)
 - [求生游戏：当邪神成为生活玩家后](https://www.hkffbw.com/book/4nr5r75/)
 - [昭暮](https://www.hkffbw.com/book/4nr5gak/)
 - [修仙界都为我神魂颠倒](https://www.hkffbw.com/book/4nr550g/)
@@ -395,6 +394,7 @@
 - [[足球]在比利时我们只玩天赋](https://www.hkffbw.com/book/f5uqv4/)
 - [咒术师，但队友是侦探](https://www.hkffbw.com/book/f5uqu4/)
 - [作家与读者](https://www.hkffbw.com/book/f5uqif/)
+- [被阴湿坏女人缠上后](https://www.hkffbw.com/book/f5uqi6/)
 - [癫骨](https://www.hkffbw.com/book/f5uqh7/)
 - [举朝上下为我的神仙人设头疼中](https://www.hkffbw.com/book/f5uqfv/)
 - [失忆后，和五条激情互演](https://www.hkffbw.com/book/f5uqbd/)
@@ -412,10 +412,8 @@
 - [老公是松散生命体](https://www.hkffbw.com/book/f5uhrl/)
 - [我最讨厌打球了！](https://www.hkffbw.com/book/f5ufj9/)
 - [误入反派培养直播后](https://www.hkffbw.com/book/f5u9od/)
-- [多梦你一会儿](https://www.hkffbw.com/book/f5u911/)
 - [[足球]罗蜜第一志愿](https://www.hkffbw.com/book/f5u6mh/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.hkffbw.com/book/f5u4rv/)
-- [和前女友的心上人he了](https://www.hkffbw.com/book/f5tv67/)
 - [哥你不能不要我](https://www.hkffbw.com/book/f5tj2g/)
 ## 相关内容
 - [README](/README.md)

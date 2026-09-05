@@ -1,16 +1,19 @@
 
 # 宁波慈绿农垦小说-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-05 03:33:15
+更新时间：2026-09-06 03:34:11
 
 宁波慈绿农垦小说提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
 - [宁波慈绿农垦小说](https://www.nbcxnk.com/)
 
 ## 最新小说
+- [网球带给齐木的灾难](https://www.nbcxnk.com/book/2ss0vvv/)
+- [当甚尔转生成继国](https://www.nbcxnk.com/book/2ss0tuf/)
 - [节能型社恐靠交友存活打排球](https://www.nbcxnk.com/book/2ss0t8c/)
 - [渣攻他疯了［快穿］](https://www.nbcxnk.com/book/2ss0smj/)
 - [[足球]番外乐子集](https://www.nbcxnk.com/book/2ss0s7e/)
+- [穿为龙傲天发妻后](https://www.nbcxnk.com/book/2ss0rev/)
 - [禁止继承限制级雌君](https://www.nbcxnk.com/book/2ss0rdp/)
 - [清穿女回来后[天幕]](https://www.nbcxnk.com/book/2ss0rdi/)
 - [等我吃腻了再倒闭可以吗](https://www.nbcxnk.com/book/2ss0rdh/)
@@ -23,7 +26,6 @@
 - [娇气点怎么啦？［快穿］](https://www.nbcxnk.com/book/2ss0kt5/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.nbcxnk.com/book/2ss0k4s/)
 - [不义世界都是我马甲[综英美]](https://www.nbcxnk.com/book/2ss0k0a/)
-- [从异世界穿回来后](https://www.nbcxnk.com/book/2ss0jgf/)
 - [阴郁路人不想被喜欢](https://www.nbcxnk.com/book/2ss0iln/)
 - [我有嘉宾](https://www.nbcxnk.com/book/2ss0ig7/)
 - [[综武侠]风流](https://www.nbcxnk.com/book/2ss0i95/)
@@ -42,7 +44,6 @@
 - [欺负人是坏文明](https://www.nbcxnk.com/book/2ss0079/)
 - [侦探立于百万生命之上](https://www.nbcxnk.com/book/2srvvr4/)
 - [渡鬼](https://www.nbcxnk.com/book/2srvvjg/)
-- [我的烧烤摊超美味[美食]](https://www.nbcxnk.com/book/2srvvgi/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.nbcxnk.com/book/2srvvda/)
 - [特殊魅力值，已到账](https://www.nbcxnk.com/book/2srvv4b/)
 - [昭暮](https://www.nbcxnk.com/book/2srvs2p/)
@@ -153,6 +154,7 @@
 - [带着刀剑穿越伟大航路后，你当上了五皇](https://www.nbcxnk.com/book/2sruk4a/)
 - [ƽ��С����(�崩)](https://www.nbcxnk.com/book/2srujvf/)
 - [七零知青有空间](https://www.nbcxnk.com/book/2srujkk/)
+- [书呆子扮演渣攻翻车【快穿】](https://www.nbcxnk.com/book/2srujj5/)
 - [被迫跟死对头结婚后](https://www.nbcxnk.com/book/2srujcg/)
 - [恋爱脑他重生了](https://www.nbcxnk.com/book/2sruj5c/)
 - [咦？我爸爸复活啦](https://www.nbcxnk.com/book/2sruj2h/)
@@ -244,7 +246,6 @@
 - [[足球]职业模拟器但足坛](https://www.nbcxnk.com/book/2sru5jn/)
 - [强爱清冷O后她上瘾了[快穿]](https://www.nbcxnk.com/book/2sru5iu/)
 - [少女妄想症](https://www.nbcxnk.com/book/2sru5f8/)
-- [多梦你一会儿](https://www.nbcxnk.com/book/2sru57h/)
 - [和灵异片boss谈恋爱](https://www.nbcxnk.com/book/2sru4tc/)
 - [人外收集录［快穿］](https://www.nbcxnk.com/book/2sru4mo/)
 - [变成龙傲天的心上猫后](https://www.nbcxnk.com/book/2sru4l0/)
@@ -289,7 +290,6 @@
 - [主角对你极度痴迷](https://www.nbcxnk.com/book/2sru0ac/)
 - [废土猫猫求生指南](https://www.nbcxnk.com/book/2sru084/)
 - [[足球]能不能好好模拟游戏](https://www.nbcxnk.com/book/2sru057/)
-- [和前女友的心上人he了](https://www.nbcxnk.com/book/2sru03e/)
 - [金发室友有肌肤饥渴症](https://www.nbcxnk.com/book/2srtvs1/)
 - [修仙回来后开了间民宿](https://www.nbcxnk.com/book/2srtvr6/)
 - [[综武侠]万人迷小姐想要富贵荣华](https://www.nbcxnk.com/book/2srtvqs/)
@@ -397,6 +397,7 @@
 - [在女仆咖啡店兼职被校草缠上后](https://www.nbcxnk.com/book/2srtnrg/)
 - [咒术师，但队友是侦探](https://www.nbcxnk.com/book/2srtnqv/)
 - [求生游戏：当邪神成为生活玩家后](https://www.nbcxnk.com/book/2srtnqu/)
+- [被阴湿坏女人缠上后](https://www.nbcxnk.com/book/2srtnk3/)
 - [放开那个黑暗哨兵！](https://www.nbcxnk.com/book/2srtnja/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.nbcxnk.com/book/2srtnh5/)
 - [小狗向导，世界瑰宝！](https://www.nbcxnk.com/book/2srtn8h/)
@@ -424,6 +425,7 @@
 - [矩阵干扰](https://www.nbcxnk.com/book/2srtjti/)
 - [刀子精手心的人偶崽崽](https://www.nbcxnk.com/book/2srtim4/)
 - [撕毁女配剧本的我被神之子读心了](https://www.nbcxnk.com/book/2srtijd/)
+- [欢迎来到重生点](https://www.nbcxnk.com/book/2srtibi/)
 - [柯学剧本杀，但恋爱流打法](https://www.nbcxnk.com/book/2srthgr/)
 - [人偶游戏](https://www.nbcxnk.com/book/2srthb5/)
 - [盛夏晴浓](https://www.nbcxnk.com/book/2srtgor/)
@@ -436,8 +438,8 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.nbcxnk.com/book/2srt5uf/)
 - [自大狂](https://www.nbcxnk.com/book/2srt1h2/)
 - [暴君偏头痛](https://www.nbcxnk.com/book/2srsrvk/)
+- [丧尸老婆喂养日记](https://www.nbcxnk.com/book/2srskeh/)
 - [被四皇错看成小动物后](https://www.nbcxnk.com/book/2srrk7l/)
-- [星际团宠小人鱼](https://www.nbcxnk.com/book/2srrjt3/)
 - [高调装神，猥琐发育](https://www.nbcxnk.com/book/2srrj6v/)
 - [误入反派培养直播后](https://www.nbcxnk.com/book/2srrj4e/)
 - [你，后室管理员](https://www.nbcxnk.com/book/2srrj1p/)
