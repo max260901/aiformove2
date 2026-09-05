@@ -1,13 +1,15 @@
 
 # 笔趣阁小说网 - 免费在线阅读百万小说
 
-更新时间：2026-09-05 03:43:18
+更新时间：2026-09-06 03:44:07
 
 笔趣阁小说网提供免费的小说在线阅读服务，包括但不限于各类热门小说、经典文学等。网站支持书架同步功能，确保用户阅读进度永不丢失。快来加入我们，享受无障碍、无广告的纯净阅读体验吧！
 
 - [笔趣阁小说网](https://www.xiaoshuo139.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.xiaoshuo139.com/book/2ch7u8i/)
+- [揣崽丧夫后被情敌强娶了](https://www.xiaoshuo139.com/book/2ch7u8h/)
 - [谁说踢球就不能成为名侦探[足球]](https://www.xiaoshuo139.com/book/2ch7u8g/)
 - [[足球]雏鸟](https://www.xiaoshuo139.com/book/2ch7u8f/)
 - [穿为龙傲天发妻后](https://www.xiaoshuo139.com/book/2ch7u8e/)
@@ -24,7 +26,6 @@
 - [夫人每天都在伪装](https://www.xiaoshuo139.com/book/2ch7u83/)
 - [仙尊心尖宠，但被魔尊抢了](https://www.xiaoshuo139.com/book/2ch7u82/)
 - [世界伏于她刀下[无限]](https://www.xiaoshuo139.com/book/2ch7u81/)
-- [自知之明](https://www.xiaoshuo139.com/book/2ch7u80/)
 - [恐游里的邻居们[万人迷]](https://www.xiaoshuo139.com/book/2ch7u7v/)
 - [[原神]魔法使恋爱指南](https://www.xiaoshuo139.com/book/2ch7u7u/)
 - [八零法医，带全家致富](https://www.xiaoshuo139.com/book/2ch7u7t/)
@@ -82,7 +83,6 @@
 - [咦？我爸爸复活啦](https://www.xiaoshuo139.com/book/2ch7u68/)
 - [烈火焚身[巴黎圣母院]](https://www.xiaoshuo139.com/book/2ch7u67/)
 - [我司艺人永不塌房](https://www.xiaoshuo139.com/book/2ch7u5s/)
-- [[综英美]让我统治哥谭！！！](https://www.xiaoshuo139.com/book/2ch7u5d/)
 - [我们生活玩家是这样的](https://www.xiaoshuo139.com/book/2ch7u18/)
 - [十九世纪贵族厨房（美食）](https://www.xiaoshuo139.com/book/2ch7u01/)
 - [原配夫人](https://www.xiaoshuo139.com/book/2ch7tvu/)
@@ -91,14 +91,12 @@
 - [始乱终弃清冷首辅后](https://www.xiaoshuo139.com/book/2ch7tuh/)
 - [星际团宠小人鱼](https://www.xiaoshuo139.com/book/2ch7tug/)
 - [高调装神，猥琐发育](https://www.xiaoshuo139.com/book/2ch7tuc/)
-- [假少爷不想活了](https://www.xiaoshuo139.com/book/2ch7tub/)
+- [假少爷离开后](https://www.xiaoshuo139.com/book/2ch7tub/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.xiaoshuo139.com/book/2ch7tqb/)
 - [直男咒术师的限制级游戏](https://www.xiaoshuo139.com/book/2ch7tqa/)
 - [六零之成了卷王的妹妹](https://www.xiaoshuo139.com/book/2ch7si5/)
-- [绝不会喜欢五条君的！](https://www.xiaoshuo139.com/book/2ch7si1/)
 - [路人攻了主角攻［快穿］](https://www.xiaoshuo139.com/book/2ch7sdm/)
 - [昭暮](https://www.xiaoshuo139.com/book/2ch7its/)
-- [古代种田养娃日常](https://www.xiaoshuo139.com/book/2ch77p4/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.xiaoshuo139.com/book/2ch77ao/)
 - [[足球]足坛人生模拟器](https://www.xiaoshuo139.com/book/2ch6apm/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.xiaoshuo139.com/book/2ch664u/)
@@ -142,11 +140,10 @@
 - [妻主风流（女尊）](https://www.xiaoshuo139.com/book/7kugj8/)
 - [多梦你一会儿](https://www.xiaoshuo139.com/book/7kue2e/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.xiaoshuo139.com/book/7kudtt/)
-- [娶了女装心机太子](https://www.xiaoshuo139.com/book/7kucvl/)
 - [被糟蹋的老实人决定反击](https://www.xiaoshuo139.com/book/7kuauj/)
 - [韩团绿卡不想忍了](https://www.xiaoshuo139.com/book/7kuaof/)
 - [清冷丞相怀了死对头的崽](https://www.xiaoshuo139.com/book/7ku9co/)
-- [八零恶毒后妈杀疯了](https://www.xiaoshuo139.com/book/7ku873/)
+- [卷王后妈，八零养娃](https://www.xiaoshuo139.com/book/7ku873/)
 - [这个位面归我了！[经营]](https://www.xiaoshuo139.com/book/7ku7rv/)
 - [村霸非要入赘受气包](https://www.xiaoshuo139.com/book/7ku7n7/)
 - [和山神搭伙开农场的日子](https://www.xiaoshuo139.com/book/7ku6e1/)
@@ -170,7 +167,6 @@
 - [95美国贵族高中模拟](https://www.xiaoshuo139.com/book/ofnbq/)
 - [清澈女大的六零年代](https://www.xiaoshuo139.com/book/2ecg9/)
 - [全民求生:从小木屋到魔法农场](https://www.xiaoshuo139.com/book/2ecfl/)
-- [猫猫也要养家糊口](https://www.xiaoshuo139.com/book/2ecep/)
 - [五十年代港城日常](https://www.xiaoshuo139.com/book/2ec8m/)
 - [大瑛弟国](https://www.xiaoshuo139.com/book/2ec88/)
 - [完蛋！被恨孕男包围了！](https://www.xiaoshuo139.com/book/2ec50/)

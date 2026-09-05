@@ -1,13 +1,15 @@
 
 # 生活文学小说-质感小说文学网站|高质量文学作品与创作交流平台
 
-更新时间：2026-09-05 03:36:25
+更新时间：2026-09-06 03:37:20
 
 生活文学小说是一个专注于提供质感小说文学的网站，致力于为文学爱好者打造一个高质量的文学作品和创作交流平台，在这里可以享受到独特的夜间文学之美。
 
 - [生活文学小说](https://www.shenghuo988.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.shenghuo988.com/book/86gb7o5/)
+- [揣崽丧夫后被情敌强娶了](https://www.shenghuo988.com/book/86gb7o4/)
 - [穿咒术，但杀猴现场](https://www.shenghuo988.com/book/86gb7o3/)
 - [世界伏于她刀下[无限]](https://www.shenghuo988.com/book/86gb7o0/)
 - [[综英美]哥谭市民，在线抽卡](https://www.shenghuo988.com/book/86gb7nu/)
@@ -24,7 +26,6 @@
 - [炮灰的海外亲戚回国啦！](https://www.shenghuo988.com/book/86gb7n5/)
 - [死遁APP](https://www.shenghuo988.com/book/86gb7n3/)
 - [二次分化后他怀了死对头的崽](https://www.shenghuo988.com/book/86gb7n2/)
-- [自知之明](https://www.shenghuo988.com/book/86gb7n1/)
 - [在年代文里跑运输](https://www.shenghuo988.com/book/86gb7n0/)
 - [欲加之罪](https://www.shenghuo988.com/book/86gb7mt/)
 - [夫人每天都在伪装](https://www.shenghuo988.com/book/86gb7mr/)
@@ -122,11 +123,10 @@
 - [[封神]圣人生欲](https://www.shenghuo988.com/book/86g82aq/)
 - [阴阳师也可以打网球](https://www.shenghuo988.com/book/86g81sh/)
 - [多梦你一会儿](https://www.shenghuo988.com/book/86g81rk/)
-- [[综英美]让我统治哥谭！！！](https://www.shenghuo988.com/book/86g81qu/)
 - [和治君只是饭搭子的关系](https://www.shenghuo988.com/book/86g80sj/)
 - [如何嫁给当朝首辅](https://www.shenghuo988.com/book/86g808k/)
 - [和贵志君是世界第一的好朋友](https://www.shenghuo988.com/book/86g8089/)
-- [八零恶毒后妈杀疯了](https://www.shenghuo988.com/book/86g7vbp/)
+- [卷王后妈，八零养娃](https://www.shenghuo988.com/book/86g7vbp/)
 - [在魔法贵族学院当白月光](https://www.shenghuo988.com/book/86g7tpi/)
 - [五条老师与他的封建妻子](https://www.shenghuo988.com/book/86g7t24/)
 - [我司艺人永不塌房](https://www.shenghuo988.com/book/86g7rer/)
@@ -143,7 +143,6 @@
 - [带清冷女主回乡养螃蟹[种田]](https://www.shenghuo988.com/book/86g7896/)
 - [这个位面归我了！[经营]](https://www.shenghuo988.com/book/86g77mk/)
 - [村霸非要入赘受气包](https://www.shenghuo988.com/book/86g75he/)
-- [娶了女装心机太子](https://www.shenghuo988.com/book/86g745b/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.shenghuo988.com/book/86g7410/)
 - [清冷丞相怀了死对头的崽](https://www.shenghuo988.com/book/86g73pf/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.shenghuo988.com/book/86g72um/)
@@ -157,12 +156,10 @@
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.shenghuo988.com/book/86g5mjn/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shenghuo988.com/book/86g5mim/)
 - [[娱乐圈]过分美丽的她](https://www.shenghuo988.com/book/86g5mgt/)
-- [绝不会喜欢五条君的！](https://www.shenghuo988.com/book/86g5mbs/)
-- [猫猫也要养家糊口](https://www.shenghuo988.com/book/86g5m1v/)
 - [高门小婢](https://www.shenghuo988.com/book/86g5lqi/)
 - [海岛求生：生活玩家种田囤货](https://www.shenghuo988.com/book/86g5lot/)
 - [95美国贵族高中模拟](https://www.shenghuo988.com/book/86g5lj2/)
-- [假少爷不想活了](https://www.shenghuo988.com/book/86g5lb9/)
+- [假少爷离开后](https://www.shenghuo988.com/book/86g5lb9/)
 - [成为养成系练习生后](https://www.shenghuo988.com/book/86g5l83/)
 - [直男咒术师的限制级游戏](https://www.shenghuo988.com/book/86g5l2b/)
 - [我是唯一地上神国](https://www.shenghuo988.com/book/86g5kru/)
@@ -171,7 +168,6 @@
 - [全民求生:从小木屋到魔法农场](https://www.shenghuo988.com/book/86g5k8j/)
 - [清澈女大的六零年代](https://www.shenghuo988.com/book/86g5js3/)
 - [大瑛弟国](https://www.shenghuo988.com/book/86g5jrg/)
-- [古代种田养娃日常](https://www.shenghuo988.com/book/86g5jml/)
 - [六零之成了卷王的妹妹](https://www.shenghuo988.com/book/86g5ji4/)
 - [五十年代港城日常](https://www.shenghuo988.com/book/86g5jhv/)
 - [我有一座安全城](https://www.shenghuo988.com/book/86g5jbs/)

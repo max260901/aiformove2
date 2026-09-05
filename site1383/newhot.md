@@ -1,16 +1,19 @@
 
 # 紫竹原始小说 - 最新最全的小说文学网站
 
-更新时间：2026-09-05 03:24:43
+更新时间：2026-09-06 03:25:33
 
 紫竹原始小说是一个专注于分享最新、最全的小说文学作品的网站。我们致力于为读者带来全新的阅读体验，欢迎访问我们的网站，尽情享受文学的魅力。
 
 - [紫竹原始小说](https://www.cnysxc.com/)
 
 ## 最新小说
+- [网球带给齐木的灾难](https://www.cnysxc.com/book/8ee0neb/)
+- [当甚尔转生成继国](https://www.cnysxc.com/book/8ee0ld2/)
 - [节能型社恐靠交友存活打排球](https://www.cnysxc.com/book/8ee0km9/)
 - [渣攻他疯了［快穿］](https://www.cnysxc.com/book/8ee0k2q/)
 - [[足球]番外乐子集](https://www.cnysxc.com/book/8ee0jkv/)
+- [穿为龙傲天发妻后](https://www.cnysxc.com/book/8ee0irk/)
 - [禁止继承限制级雌君](https://www.cnysxc.com/book/8ee0ipu/)
 - [清穿女回来后[天幕]](https://www.cnysxc.com/book/8ee0iph/)
 - [自知之明](https://www.cnysxc.com/book/8ee0ip6/)
@@ -23,7 +26,6 @@
 - [娇气点怎么啦？［快穿］](https://www.cnysxc.com/book/8ee0c9a/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.cnysxc.com/book/8ee0bg9/)
 - [不义世界都是我马甲[综英美]](https://www.cnysxc.com/book/8ee0bb8/)
-- [从异世界穿回来后](https://www.cnysxc.com/book/8ee0asg/)
 - [阴郁路人不想被喜欢](https://www.cnysxc.com/book/8ee0a6m/)
 - [我有嘉宾](https://www.cnysxc.com/book/8ee09rk/)
 - [[综武侠]风流](https://www.cnysxc.com/book/8ee09on/)
@@ -42,7 +44,6 @@
 - [欺负人是坏文明](https://www.cnysxc.com/book/8edvnji/)
 - [侦探立于百万生命之上](https://www.cnysxc.com/book/8edvn8t/)
 - [渡鬼](https://www.cnysxc.com/book/8edvmv2/)
-- [我的烧烤摊超美味[美食]](https://www.cnysxc.com/book/8edvmqg/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.cnysxc.com/book/8edvmoh/)
 - [特殊魅力值，已到账](https://www.cnysxc.com/book/8edvmi5/)
 - [昭暮](https://www.cnysxc.com/book/8edvjfc/)
@@ -154,6 +155,7 @@
 - [咦？我爸爸复活啦](https://www.cnysxc.com/book/8edubnh/)
 - [京秋婚约](https://www.cnysxc.com/book/8edubfv/)
 - [万人迷又被自己巧取豪夺了［快穿］](https://www.cnysxc.com/book/8edubda/)
+- [书呆子扮演渣攻翻车【快穿】](https://www.cnysxc.com/book/8edub92/)
 - [七零知青有空间](https://www.cnysxc.com/book/8edub0i/)
 - [带着刀剑穿越伟大航路后，你当上了五皇](https://www.cnysxc.com/book/8eduabv/)
 - [全世界名为爱的恶意](https://www.cnysxc.com/book/8edua79/)
@@ -232,7 +234,6 @@
 - [在立海大玩网球模拟器](https://www.cnysxc.com/book/8edtudq/)
 - [蜜蜂膝盖银子弹](https://www.cnysxc.com/book/8edtudp/)
 - [反派的病弱白月光重生了](https://www.cnysxc.com/book/8edtu8e/)
-- [多梦你一会儿](https://www.cnysxc.com/book/8edtu70/)
 - [[足球]职业模拟器但足坛](https://www.cnysxc.com/book/8edtu69/)
 - [摆烂后我成了邪神学院大佬](https://www.cnysxc.com/book/8edtu56/)
 - [荒谬神父是个渣](https://www.cnysxc.com/book/8edtu4t/)
@@ -293,7 +294,6 @@
 - [[西汉]我打工给全家改命](https://www.cnysxc.com/book/8edtmm7/)
 - [漫画路人绑定系统后](https://www.cnysxc.com/book/8edtmea/)
 - [善逸拒绝成为咒术师](https://www.cnysxc.com/book/8edtmcb/)
-- [和前女友的心上人he了](https://www.cnysxc.com/book/8edtm8e/)
 - [与前妻上了同档综艺](https://www.cnysxc.com/book/8edtm6g/)
 - [金发室友有肌肤饥渴症](https://www.cnysxc.com/book/8edtm55/)
 - [[综英美]如何获得地球户口](https://www.cnysxc.com/book/8edtm4p/)
@@ -410,6 +410,7 @@
 - [[足球]小小鸟堂堂来袭](https://www.cnysxc.com/book/8edte1h/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.cnysxc.com/book/8edtduc/)
 - [幼崽假少爷选择回归寒门](https://www.cnysxc.com/book/8edtdq1/)
+- [被阴湿坏女人缠上后](https://www.cnysxc.com/book/8edtdm2/)
 - [穿成影后的作死前妻](https://www.cnysxc.com/book/8edtdit/)
 - [在重男兄弟间夹缝求生](https://www.cnysxc.com/book/8edtdap/)
 - [我最讨厌打球了！](https://www.cnysxc.com/book/8edtd5j/)
@@ -426,6 +427,7 @@
 - [刀子精手心的人偶崽崽](https://www.cnysxc.com/book/8edta7g/)
 - [和港城大小姐先婚后爱了](https://www.cnysxc.com/book/8edt81h/)
 - [好巧，你也是妹控？[综崩铁]](https://www.cnysxc.com/book/8edt7vt/)
+- [欢迎来到重生点](https://www.cnysxc.com/book/8edt7nj/)
 - [人偶游戏](https://www.cnysxc.com/book/8edt7fm/)
 - [盛夏晴浓](https://www.cnysxc.com/book/8edt7an/)
 - [柯学剧本杀，但恋爱流打法](https://www.cnysxc.com/book/8edt72p/)
@@ -436,12 +438,12 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.cnysxc.com/book/8edsstu/)
 - [自大狂](https://www.cnysxc.com/book/8edsqsr/)
 - [暴君偏头痛](https://www.cnysxc.com/book/8edsl35/)
+- [丧尸老婆喂养日记](https://www.cnysxc.com/book/8edsb5i/)
 - [纯爱宇智波基本恋爱法](https://www.cnysxc.com/book/8edrbfo/)
 - [被四皇错看成小动物后](https://www.cnysxc.com/book/8edrb7m/)
 - [你，后室管理员](https://www.cnysxc.com/book/8edrauk/)
 - [[封神]圣人生欲](https://www.cnysxc.com/book/8edrare/)
 - [高调装神，猥琐发育](https://www.cnysxc.com/book/8edraiu/)
-- [星际团宠小人鱼](https://www.cnysxc.com/book/8edr9sk/)
 - [误入反派培养直播后](https://www.cnysxc.com/book/8edr9od/)
 ## 相关内容
 - [README](/README.md)

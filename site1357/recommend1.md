@@ -1,13 +1,15 @@
 
 # 书香小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-05 03:38:29
+更新时间：2026-09-06 03:39:21
 
 书香小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
 - [书香小说网](https://www.shuxiang368.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.shuxiang368.com/book/3qko7u0/)
+- [和八个男人在极寒游戏求生](https://www.shuxiang368.com/book/3qko7tv/)
 - [怨明月不独照](https://www.shuxiang368.com/book/3qko7tu/)
 - [病美人重生日记](https://www.shuxiang368.com/book/3qko7tt/)
 - [爱情的肯定句](https://www.shuxiang368.com/book/3qko7ts/)
@@ -34,7 +36,6 @@
 - [全民求生，但剑三](https://www.shuxiang368.com/book/3qko7s2/)
 - [仙尊心尖宠，但被魔尊抢了](https://www.shuxiang368.com/book/3qko7rt/)
 - [我们小区穿末世](https://www.shuxiang368.com/book/3qko7rr/)
-- [自知之明](https://www.shuxiang368.com/book/3qko7ro/)
 - [末世八年春，游戏降临](https://www.shuxiang368.com/book/3qko7rl/)
 - [魔改剧本后我爆火了[娱乐圈]](https://www.shuxiang368.com/book/3qko7rk/)
 - [[综英美]哥谭市民，在线抽卡](https://www.shuxiang368.com/book/3qko7ri/)
@@ -120,7 +121,6 @@
 - [苏娘子汴京摆摊日常（美食）](https://www.shuxiang368.com/book/3qkl8d2/)
 - [我有一座地下城](https://www.shuxiang368.com/book/3qkl7k0/)
 - [如何嫁给当朝首辅](https://www.shuxiang368.com/book/3qkl2uh/)
-- [[综英美]让我统治哥谭！！！](https://www.shuxiang368.com/book/3qkl2uc/)
 - [和贵志君是世界第一的好朋友](https://www.shuxiang368.com/book/3qkl2o9/)
 - [[封神]圣人生欲](https://www.shuxiang368.com/book/3qkl21q/)
 - [和治君只是饭搭子的关系](https://www.shuxiang368.com/book/3qkl1t6/)
@@ -128,7 +128,7 @@
 - [阴阳师也可以打网球](https://www.shuxiang368.com/book/3qkl09g/)
 - [五条老师与他的封建妻子](https://www.shuxiang368.com/book/3qkkulf/)
 - [在魔法贵族学院当白月光](https://www.shuxiang368.com/book/3qkku6s/)
-- [八零恶毒后妈杀疯了](https://www.shuxiang368.com/book/3qkktu8/)
+- [卷王后妈，八零养娃](https://www.shuxiang368.com/book/3qkktu8/)
 - [我司艺人永不塌房](https://www.shuxiang368.com/book/3qkkrq4/)
 - [我187了，你敢见我吗？](https://www.shuxiang368.com/book/3qkkr73/)
 - [和姐姐的前女友欢愉后](https://www.shuxiang368.com/book/3qkknbr/)
@@ -144,7 +144,6 @@
 - [带清冷女主回乡养螃蟹[种田]](https://www.shuxiang368.com/book/3qkk68n/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.shuxiang368.com/book/3qkk5n5/)
 - [清冷丞相怀了死对头的崽](https://www.shuxiang368.com/book/3qkk52t/)
-- [娶了女装心机太子](https://www.shuxiang368.com/book/3qkk4lh/)
 - [村霸非要入赘受气包](https://www.shuxiang368.com/book/3qkk3lp/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.shuxiang368.com/book/3qkk3dm/)
 - [和山神搭伙开农场的日子](https://www.shuxiang368.com/book/3qkk1ht/)
@@ -155,25 +154,22 @@
 - [权宋一只统](https://www.shuxiang368.com/book/3qkjngk/)
 - [爱好和平但狂拆机甲](https://www.shuxiang368.com/book/3qkjj5h/)
 - [五十年代港城日常](https://www.shuxiang368.com/book/3qkimo7/)
-- [猫猫也要养家糊口](https://www.shuxiang368.com/book/3qkimim/)
 - [95美国贵族高中模拟](https://www.shuxiang368.com/book/3qkimhc/)
 - [全民求生:从小木屋到魔法农场](https://www.shuxiang368.com/book/3qkimh2/)
 - [海岛求生：生活玩家种田囤货](https://www.shuxiang368.com/book/3qkimgp/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shuxiang368.com/book/3qkim77/)
 - [我有一座安全城](https://www.shuxiang368.com/book/3qkim3l/)
-- [古代种田养娃日常](https://www.shuxiang368.com/book/3qkilno/)
 - [清澈女大的六零年代](https://www.shuxiang368.com/book/3qkilhq/)
 - [直男咒术师的限制级游戏](https://www.shuxiang368.com/book/3qkilev/)
 - [巨物致富：回乡开钓场](https://www.shuxiang368.com/book/3qkileq/)
 - [[娱乐圈]过分美丽的她](https://www.shuxiang368.com/book/3qkil43/)
 - [我是唯一地上神国](https://www.shuxiang368.com/book/3qkil1c/)
-- [绝不会喜欢五条君的！](https://www.shuxiang368.com/book/3qkiktn/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.shuxiang368.com/book/3qkiktc/)
 - [日化人生[科研]](https://www.shuxiang368.com/book/3qkikdh/)
 - [大瑛弟国](https://www.shuxiang368.com/book/3qkik16/)
 - [六零之成了卷王的妹妹](https://www.shuxiang368.com/book/3qkijr5/)
 - [高门小婢](https://www.shuxiang368.com/book/3qkijou/)
-- [假少爷不想活了](https://www.shuxiang368.com/book/3qkijoi/)
+- [假少爷离开后](https://www.shuxiang368.com/book/3qkijoi/)
 - [成为养成系练习生后](https://www.shuxiang368.com/book/3qkijib/)
 ## 相关内容
 - [README](/README.md)

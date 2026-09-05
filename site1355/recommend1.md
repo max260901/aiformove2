@@ -1,13 +1,15 @@
 
 # 梦翔橙子小说网-全本小说最值得收藏的在线阅读平台
 
-更新时间：2026-09-05 03:33:00
+更新时间：2026-09-06 03:33:56
 
 梦翔橙子小说网为您提供最新、最热门的小说资源，拥有全网最全面的小说库。无论是全本还是连载中，都能在这里找到。是解决书荒问题的理想选择，让您的阅读体验更加流畅愉快。
 
 - [梦翔橙子小说网](https://www.mengxiang668.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.mengxiang668.com/book/2nrq7fv/)
+- [和八个男人在极寒游戏求生](https://www.mengxiang668.com/book/2nrq7fu/)
 - [国师](https://www.mengxiang668.com/book/2nrq7ft/)
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.mengxiang668.com/book/2nrq7fr/)
 - [[洪荒]成为太清妹妹后](https://www.mengxiang668.com/book/2nrq7fk/)
@@ -50,7 +52,6 @@
 - [死遁APP](https://www.mengxiang668.com/book/2nrq7ck/)
 - [魔改剧本后我爆火了[娱乐圈]](https://www.mengxiang668.com/book/2nrq7cg/)
 - [[综英美]和亲友群穿哥谭以后](https://www.mengxiang668.com/book/2nrq7ce/)
-- [自知之明](https://www.mengxiang668.com/book/2nrq7ca/)
 - [占有欲Daddy是我老公？](https://www.mengxiang668.com/book/2nrq7c7/)
 - [炮灰的海外亲戚回国啦！](https://www.mengxiang668.com/book/2nrq7c2/)
 - [恐游里的邻居们[万人迷]](https://www.mengxiang668.com/book/2nrq7c0/)
@@ -125,9 +126,8 @@
 - [和治君只是饭搭子的关系](https://www.mengxiang668.com/book/2nrn19b/)
 - [和贵志君是世界第一的好朋友](https://www.mengxiang668.com/book/2nrn180/)
 - [如何嫁给当朝首辅](https://www.mengxiang668.com/book/2nrn11a/)
-- [[综英美]让我统治哥谭！！！](https://www.mengxiang668.com/book/2nrn0b1/)
 - [五条老师与他的封建妻子](https://www.mengxiang668.com/book/2nrmurm/)
-- [八零恶毒后妈杀疯了](https://www.mengxiang668.com/book/2nrmtt1/)
+- [卷王后妈，八零养娃](https://www.mengxiang668.com/book/2nrmtt1/)
 - [在魔法贵族学院当白月光](https://www.mengxiang668.com/book/2nrmtdt/)
 - [我187了，你敢见我吗？](https://www.mengxiang668.com/book/2nrmrt4/)
 - [我司艺人永不塌房](https://www.mengxiang668.com/book/2nrmrsh/)
@@ -145,7 +145,6 @@
 - [逃出金丝笼，我力挽山河开国称帝](https://www.mengxiang668.com/book/2nrm54n/)
 - [村霸非要入赘受气包](https://www.mengxiang668.com/book/2nrm4pl/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.mengxiang668.com/book/2nrm4j7/)
-- [娶了女装心机太子](https://www.mengxiang668.com/book/2nrm41l/)
 - [清冷丞相怀了死对头的崽](https://www.mengxiang668.com/book/2nrm37q/)
 - [被糟蹋的老实人决定反击](https://www.mengxiang668.com/book/2nrm0if/)
 - [和山神搭伙开农场的日子](https://www.mengxiang668.com/book/2nrlvm7/)
@@ -155,12 +154,11 @@
 - [权宋一只统](https://www.mengxiang668.com/book/2nrlms1/)
 - [爱好和平但狂拆机甲](https://www.mengxiang668.com/book/2nrlide/)
 - [清澈女大的六零年代](https://www.mengxiang668.com/book/2nrkm1t/)
-- [猫猫也要养家糊口](https://www.mengxiang668.com/book/2nrkm1j/)
 - [成为养成系练习生后](https://www.mengxiang668.com/book/2nrklvv/)
 - [海岛求生：生活玩家种田囤货](https://www.mengxiang668.com/book/2nrklou/)
 - [巨物致富：回乡开钓场](https://www.mengxiang668.com/book/2nrklaj/)
 - [95美国贵族高中模拟](https://www.mengxiang668.com/book/2nrklag/)
-- [假少爷不想活了](https://www.mengxiang668.com/book/2nrkl3u/)
+- [假少爷离开后](https://www.mengxiang668.com/book/2nrkl3u/)
 - [[娱乐圈]过分美丽的她](https://www.mengxiang668.com/book/2nrkl3p/)
 - [高门小婢](https://www.mengxiang668.com/book/2nrkkm3/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.mengxiang668.com/book/2nrkkie/)
@@ -168,12 +166,10 @@
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.mengxiang668.com/book/2nrkkc9/)
 - [我有一座安全城](https://www.mengxiang668.com/book/2nrkk9q/)
 - [全民求生:从小木屋到魔法农场](https://www.mengxiang668.com/book/2nrkk5p/)
-- [绝不会喜欢五条君的！](https://www.mengxiang668.com/book/2nrkjrs/)
 - [五十年代港城日常](https://www.mengxiang668.com/book/2nrkjjj/)
 - [日化人生[科研]](https://www.mengxiang668.com/book/2nrkjib/)
 - [直男咒术师的限制级游戏](https://www.mengxiang668.com/book/2nrkjf6/)
 - [我是唯一地上神国](https://www.mengxiang668.com/book/2nrkj84/)
-- [古代种田养娃日常](https://www.mengxiang668.com/book/2nrkj5u/)
 - [六零之成了卷王的妹妹](https://www.mengxiang668.com/book/2nrkj3r/)
 ## 相关内容
 - [README](/README.md)

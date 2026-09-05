@@ -1,13 +1,19 @@
 
 # 电子洗砂机小说网-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-09-05 03:25:59
+更新时间：2026-09-06 03:26:52
 
 电子洗砂机小说网提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
 
 - [电子洗砂机小说网](https://www.dzxishaji.com/)
 
 ## 最新小说
+- [修仙界都为我神魂颠倒](https://www.dzxishaji.com/book/70un0ti/)
+- [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.dzxishaji.com/book/70un0se/)
+- [穿成年代文奇葩前妻](https://www.dzxishaji.com/book/70un0nk/)
+- [限制文中的社畜女beta](https://www.dzxishaji.com/book/70un0ap/)
+- [穿成漫画反派的我又做错了什么](https://www.dzxishaji.com/book/70umvvo/)
+- [[综英美]蝙蝠崽但脆皮](https://www.dzxishaji.com/book/70umvk8/)
 - [这个替嫁让我来！](https://www.dzxishaji.com/book/70umva9/)
 - [我拿的可是反派剧本](https://www.dzxishaji.com/book/70umv39/)
 - [丧尸王有什么坏心思？](https://www.dzxishaji.com/book/70umuid/)
@@ -15,6 +21,7 @@
 - [等我吃腻了再倒闭可以吗](https://www.dzxishaji.com/book/70umt4i/)
 - [自知之明](https://www.dzxishaji.com/book/70umt42/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.dzxishaji.com/book/70umt34/)
+- [穿为龙傲天发妻后](https://www.dzxishaji.com/book/70umt30/)
 - [网球带给齐木的灾难](https://www.dzxishaji.com/book/70umt1c/)
 - [清穿女回来后[天幕]](https://www.dzxishaji.com/book/70umt18/)
 - [全世界名为爱的恶意](https://www.dzxishaji.com/book/70umt14/)
@@ -29,7 +36,6 @@
 - [阴郁路人不想被喜欢](https://www.dzxishaji.com/book/70umhs4/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.dzxishaji.com/book/70umh5p/)
 - [不义世界都是我马甲[综英美]](https://www.dzxishaji.com/book/70umgto/)
-- [从异世界穿回来后](https://www.dzxishaji.com/book/70umglf/)
 - [我有嘉宾](https://www.dzxishaji.com/book/70umg64/)
 - [[综武侠]风流](https://www.dzxishaji.com/book/70umfcr/)
 - [孤独症崽崽穿越到狗血爽文里[穿书]](https://www.dzxishaji.com/book/70ume5r/)
@@ -39,7 +45,6 @@
 - [离开那个混蛋后](https://www.dzxishaji.com/book/70umb56/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.dzxishaji.com/book/70um997/)
 - [渡鬼](https://www.dzxishaji.com/book/70um970/)
-- [我的烧烤摊超美味[美食]](https://www.dzxishaji.com/book/70um94m/)
 - [穿成反派的亡夫后[虫族]](https://www.dzxishaji.com/book/70um802/)
 - [氪成酒厂股东了怎么办](https://www.dzxishaji.com/book/70um7sh/)
 - [衍生穿越合订本](https://www.dzxishaji.com/book/70um7oh/)
@@ -251,7 +256,6 @@
 - [当魔修反派穿成治愈系[穿书]](https://www.dzxishaji.com/book/70uk0r9/)
 - [重回被拐那一天[千禧年代]](https://www.dzxishaji.com/book/70uk0ot/)
 - [如何登顶反派第一](https://www.dzxishaji.com/book/70uk0n9/)
-- [多梦你一会儿](https://www.dzxishaji.com/book/70uk0me/)
 - [小傻子［无限］](https://www.dzxishaji.com/book/70uk0kl/)
 - [野比春子穿越事件簿](https://www.dzxishaji.com/book/70uk0jk/)
 - [揍敌客大小姐好难攻略](https://www.dzxishaji.com/book/70uk0it/)
@@ -323,7 +327,6 @@
 - [师妹为何要如此](https://www.dzxishaji.com/book/70ujpv1/)
 - [银发死鱼眼也要打排球](https://www.dzxishaji.com/book/70ujptv/)
 - [白月光拒绝拯救反派](https://www.dzxishaji.com/book/70ujpru/)
-- [和前女友的心上人he了](https://www.dzxishaji.com/book/70ujpqr/)
 - [女帝起家前录](https://www.dzxishaji.com/book/70ujpps/)
 - [书穿男主给反派卖萌苟命](https://www.dzxishaji.com/book/70ujppo/)
 - [豪门狗血文里的天才后妈](https://www.dzxishaji.com/book/70ujpnu/)
@@ -411,6 +414,7 @@
 - [虫族治愈师，但恐虫](https://www.dzxishaji.com/book/70ujjd1/)
 - [救命！猫尾巴藏不住了](https://www.dzxishaji.com/book/70ujjcd/)
 - [国舅太难追了](https://www.dzxishaji.com/book/70ujj7p/)
+- [被阴湿坏女人缠上后](https://www.dzxishaji.com/book/70ujiuf/)
 - [我最讨厌打球了！](https://www.dzxishaji.com/book/70ujisu/)
 - [直播捏玩具被榜一大哥撅了](https://www.dzxishaji.com/book/70ujisi/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.dzxishaji.com/book/70ujiro/)
@@ -425,6 +429,7 @@
 - [好巧，你也是妹控？[综崩铁]](https://www.dzxishaji.com/book/70ujcqf/)
 - [矩阵干扰](https://www.dzxishaji.com/book/70ujb6r/)
 - [盛夏晴浓](https://www.dzxishaji.com/book/70ujb5i/)
+- [欢迎来到重生点](https://www.dzxishaji.com/book/70ujat0/)
 - [法外狂猫](https://www.dzxishaji.com/book/70ujap5/)
 - [柯学剧本杀，但恋爱流打法](https://www.dzxishaji.com/book/70ujaj0/)
 - [好兄弟暴富后非要跟我结婚](https://www.dzxishaji.com/book/70uj6s7/)
@@ -439,7 +444,6 @@
 - [暴君偏头痛](https://www.dzxishaji.com/book/70uiif5/)
 - [[封神]圣人生欲](https://www.dzxishaji.com/book/70uhhfu/)
 - [被四皇错看成小动物后](https://www.dzxishaji.com/book/70uhh1q/)
-- [星际团宠小人鱼](https://www.dzxishaji.com/book/70uhgia/)
 - [误入反派培养直播后](https://www.dzxishaji.com/book/70uhg14/)
 - [你，后室管理员](https://www.dzxishaji.com/book/70uhevh/)
 - [纯爱宇智波基本恋爱法](https://www.dzxishaji.com/book/70uheqn/)

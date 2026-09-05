@@ -1,7 +1,7 @@
 
 # 燃文故事小说网 - 无弹窗全本小说免费阅读
 
-更新时间：2026-09-05 03:27:31
+更新时间：2026-09-06 03:28:26
 
 燃文故事小说网提供无弹窗干扰的小说阅读体验，支持全本小说在线免费阅读。
 
@@ -14,6 +14,7 @@
 - [这个替嫁让我来！](https://www.gushi687.com/book/63qvdb3/)
 - [禁止继承限制级雌君](https://www.gushi687.com/book/63qvdac/)
 - [全世界名为爱的恶意](https://www.gushi687.com/book/63qvd8t/)
+- [穿为龙傲天发妻后](https://www.gushi687.com/book/63qvd8r/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.gushi687.com/book/63qvd8p/)
 - [清穿女回来后[天幕]](https://www.gushi687.com/book/63qvd88/)
 - [修仙界都为我神魂颠倒](https://www.gushi687.com/book/63qvb82/)
@@ -32,10 +33,8 @@
 - [我超凶的！[快穿]](https://www.gushi687.com/book/63qv1v6/)
 - [我比反派先崩坏[快穿]](https://www.gushi687.com/book/63qv16q/)
 - [渡鬼](https://www.gushi687.com/book/63qv0to/)
-- [我的烧烤摊超美味[美食]](https://www.gushi687.com/book/63qv0rb/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.gushi687.com/book/63qv0qq/)
 - [cos温迪后玩到真崩铁了](https://www.gushi687.com/book/63qusn6/)
-- [从异世界穿回来后](https://www.gushi687.com/book/63qusie/)
 - [我有嘉宾](https://www.gushi687.com/book/63qus6k/)
 - [娇气点怎么啦？［快穿］](https://www.gushi687.com/book/63qus48/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.gushi687.com/book/63qure6/)
@@ -57,7 +56,6 @@
 - [侦探立于百万生命之上](https://www.gushi687.com/book/63qu74f/)
 - [特殊魅力值，已到账](https://www.gushi687.com/book/63qu6m5/)
 - [昭暮](https://www.gushi687.com/book/63qu5ci/)
-- [星际团宠小人鱼](https://www.gushi687.com/book/63qu1ll/)
 - [你，后室管理员](https://www.gushi687.com/book/63qu1hk/)
 - [高调装神，猥琐发育](https://www.gushi687.com/book/63qtqic/)
 - [每天回到家都看到雄虫在装死](https://www.gushi687.com/book/63qtkem/)
@@ -291,7 +289,6 @@
 - [异种大食堂[无限]](https://www.gushi687.com/book/63qs79q/)
 - [与前妻上了同档综艺](https://www.gushi687.com/book/63qs790/)
 - [乙骨同学很好欺负](https://www.gushi687.com/book/63qs6vb/)
-- [多梦你一会儿](https://www.gushi687.com/book/63qs6v5/)
 - [[综英美]穿越后和小红鸟灵魂互换了](https://www.gushi687.com/book/63qs6nj/)
 - [一觉醒来老公变男大了](https://www.gushi687.com/book/63qs6md/)
 - [被小蜘蛛听见心声后](https://www.gushi687.com/book/63qs6ls/)
@@ -369,7 +366,6 @@
 - [养了一个废太子](https://www.gushi687.com/book/63qs1ld/)
 - [小寡夫还有两幅面孔](https://www.gushi687.com/book/63qs1ho/)
 - [隔壁班的松田君](https://www.gushi687.com/book/63qs1h7/)
-- [和前女友的心上人he了](https://www.gushi687.com/book/63qs155/)
 - [[综英美]是追到小红鸟的超人之子](https://www.gushi687.com/book/63qs12s/)
 - [贵族学院F4中的第四人](https://www.gushi687.com/book/63qs11v/)
 - [御厨传人的小镇饭馆 [美食]](https://www.gushi687.com/book/63qs0vt/)
@@ -408,6 +404,7 @@
 - [我靠玛丽苏系统伪装神女](https://www.gushi687.com/book/63qrujs/)
 - [小狗向导，世界瑰宝！](https://www.gushi687.com/book/63qruha/)
 - [国舅太难追了](https://www.gushi687.com/book/63qrue9/)
+- [被阴湿坏女人缠上后](https://www.gushi687.com/book/63qru9f/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.gushi687.com/book/63qru22/)
 - [青空来信](https://www.gushi687.com/book/63qrtvg/)
 - [救命！猫尾巴藏不住了](https://www.gushi687.com/book/63qrtu4/)
@@ -428,6 +425,7 @@
 - [幼崽假少爷选择回归寒门](https://www.gushi687.com/book/63qrjfk/)
 - [[足球]小小鸟堂堂来袭](https://www.gushi687.com/book/63qribj/)
 - [盛夏晴浓](https://www.gushi687.com/book/63qrhai/)
+- [欢迎来到重生点](https://www.gushi687.com/book/63qrg97/)
 - [好巧，你也是妹控？[综崩铁]](https://www.gushi687.com/book/63qrg73/)
 - [青城玩家明明超强却过分谨慎](https://www.gushi687.com/book/63qre7i/)
 - [法外狂猫](https://www.gushi687.com/book/63qrdlo/)

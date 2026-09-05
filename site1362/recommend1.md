@@ -1,13 +1,15 @@
 
 # 漫话乐文小说-免费小说阅读,无弹窗,最新章节更新快
 
-更新时间：2026-09-05 03:32:45
+更新时间：2026-09-06 03:33:41
 
 漫话乐文小说是广大书友最值得收藏的网络小说阅读网，提供当前最火热的网络小说免费阅读服务，高质量的小说最新章节更新快速，适合所有网络小说爱好者。
 
 - [漫话乐文小说](https://www.manhua958.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.manhua958.com/book/17scts1/)
+- [和八个男人在极寒游戏求生](https://www.manhua958.com/book/17scts0/)
 - [烈火焚身[巴黎圣母院]](https://www.manhua958.com/book/17sctrs/)
 - [康熙宠妃日常](https://www.manhua958.com/book/17sctrq/)
 - [欲和离？夫君他目不识丁](https://www.manhua958.com/book/17sctrl/)
@@ -61,7 +63,6 @@
 - [二次分化后他怀了死对头的崽](https://www.manhua958.com/book/17sctnv/)
 - [八零法医，带全家致富](https://www.manhua958.com/book/17sctnt/)
 - [大佬的漂亮老婆回来带崽了[八零]](https://www.manhua958.com/book/17sctnr/)
-- [自知之明](https://www.manhua958.com/book/17sctnq/)
 - [娘娘扶摇直上](https://www.manhua958.com/book/17sctnp/)
 - [双生子反派的端水抑郁妈[九零]](https://www.manhua958.com/book/17sctno/)
 - [魔咒请说普通话[西幻]](https://www.manhua958.com/book/17sctnn/)
@@ -120,7 +121,6 @@
 - [苏娘子汴京摆摊日常（美食）](https://www.manhua958.com/book/17s9tus/)
 - [漂亮女配是万人迷［快穿］](https://www.manhua958.com/book/17s9rtk/)
 - [如何嫁给当朝首辅](https://www.manhua958.com/book/17s9oec/)
-- [[综英美]让我统治哥谭！！！](https://www.manhua958.com/book/17s9o4m/)
 - [和贵志君是世界第一的好朋友](https://www.manhua958.com/book/17s9npn/)
 - [多梦你一会儿](https://www.manhua958.com/book/17s9nod/)
 - [阴阳师也可以打网球](https://www.manhua958.com/book/17s9mms/)
@@ -128,7 +128,7 @@
 - [和治君只是饭搭子的关系](https://www.manhua958.com/book/17s9mg7/)
 - [在魔法贵族学院当白月光](https://www.manhua958.com/book/17s9k8u/)
 - [五条老师与他的封建妻子](https://www.manhua958.com/book/17s9k3b/)
-- [八零恶毒后妈杀疯了](https://www.manhua958.com/book/17s9j88/)
+- [卷王后妈，八零养娃](https://www.manhua958.com/book/17s9j88/)
 - [我187了，你敢见我吗？](https://www.manhua958.com/book/17s9ijb/)
 - [我司艺人永不塌房](https://www.manhua958.com/book/17s9hse/)
 - [和姐姐的前女友欢愉后](https://www.manhua958.com/book/17s9faq/)
@@ -146,7 +146,6 @@
 - [逃出金丝笼，我力挽山河开国称帝](https://www.manhua958.com/book/17s8qqe/)
 - [村霸非要入赘受气包](https://www.manhua958.com/book/17s8qhk/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.manhua958.com/book/17s8pku/)
-- [娶了女装心机太子](https://www.manhua958.com/book/17s8p7v/)
 - [和山神搭伙开农场的日子](https://www.manhua958.com/book/17s8mpv/)
 - [被糟蹋的老实人决定反击](https://www.manhua958.com/book/17s8mcp/)
 - [趁她之危](https://www.manhua958.com/book/17s8jkt/)
@@ -159,16 +158,13 @@
 - [我有一座安全城](https://www.manhua958.com/book/17s7c1k/)
 - [95美国贵族高中模拟](https://www.manhua958.com/book/17s7bo4/)
 - [[娱乐圈]过分美丽的她](https://www.manhua958.com/book/17s7bl5/)
-- [假少爷不想活了](https://www.manhua958.com/book/17s7b7l/)
-- [绝不会喜欢五条君的！](https://www.manhua958.com/book/17s7asa/)
+- [假少爷离开后](https://www.manhua958.com/book/17s7b7l/)
 - [我是唯一地上神国](https://www.manhua958.com/book/17s7ar4/)
 - [全民求生:从小木屋到魔法农场](https://www.manhua958.com/book/17s7amb/)
 - [成为养成系练习生后](https://www.manhua958.com/book/17s7aj7/)
 - [清澈女大的六零年代](https://www.manhua958.com/book/17s7aib/)
-- [古代种田养娃日常](https://www.manhua958.com/book/17s7adk/)
 - [巨物致富：回乡开钓场](https://www.manhua958.com/book/17s7ab8/)
 - [高门小婢](https://www.manhua958.com/book/17s7a9e/)
-- [猫猫也要养家糊口](https://www.manhua958.com/book/17s7a1k/)
 - [大瑛弟国](https://www.manhua958.com/book/17s79qq/)
 - [海岛求生：生活玩家种田囤货](https://www.manhua958.com/book/17s79nd/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.manhua958.com/book/17s79n2/)

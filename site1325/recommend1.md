@@ -1,13 +1,15 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-09-05 03:43:51
+更新时间：2026-09-06 03:44:40
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。
 
 - [炫书网](https://www.xqwz8bk.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.xqwz8bk.com/book/1igm36o/)
+- [和八个男人在极寒游戏求生](https://www.xqwz8bk.com/book/1igm36n/)
 - [二次分化后他怀了死对头的崽](https://www.xqwz8bk.com/book/1igm36m/)
 - [强取师尊后](https://www.xqwz8bk.com/book/1igm36l/)
 - [国师](https://www.xqwz8bk.com/book/1igm36k/)
@@ -54,7 +56,6 @@
 - [世界伏于她刀下[无限]](https://www.xqwz8bk.com/book/1igm35a/)
 - [国运求生：我的金手指是生命树](https://www.xqwz8bk.com/book/1igm359/)
 - [乖乖女的杂货铺[八零]](https://www.xqwz8bk.com/book/1igm358/)
-- [自知之明](https://www.xqwz8bk.com/book/1igm357/)
 - [占有欲Daddy是我老公？](https://www.xqwz8bk.com/book/1igm356/)
 - [炮灰的海外亲戚回国啦！](https://www.xqwz8bk.com/book/1igm355/)
 - [万人嫌从末世回来了](https://www.xqwz8bk.com/book/1igm354/)
@@ -82,7 +83,6 @@
 - [和治君只是饭搭子的关系](https://www.xqwz8bk.com/book/1igm34e/)
 - [大佬的漂亮老婆回来带崽了[八零]](https://www.xqwz8bk.com/book/1igm34d/)
 - [我司艺人永不塌房](https://www.xqwz8bk.com/book/1igm33v/)
-- [[综英美]让我统治哥谭！！！](https://www.xqwz8bk.com/book/1igm32a/)
 - [我们生活玩家是这样的](https://www.xqwz8bk.com/book/1igm31k/)
 - [星际团宠小人鱼](https://www.xqwz8bk.com/book/1igm2ui/)
 - [原配夫人](https://www.xqwz8bk.com/book/1igm2ua/)
@@ -91,14 +91,12 @@
 - [[封神]圣人生欲](https://www.xqwz8bk.com/book/1igm2t8/)
 - [十九世纪贵族厨房（美食）](https://www.xqwz8bk.com/book/1igm2sr/)
 - [高调装神，猥琐发育](https://www.xqwz8bk.com/book/1igm2sj/)
-- [假少爷不想活了](https://www.xqwz8bk.com/book/1igm2sh/)
+- [假少爷离开后](https://www.xqwz8bk.com/book/1igm2sh/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.xqwz8bk.com/book/1igm2o2/)
 - [直男咒术师的限制级游戏](https://www.xqwz8bk.com/book/1igm2nn/)
-- [绝不会喜欢五条君的！](https://www.xqwz8bk.com/book/1igm1fs/)
 - [六零之成了卷王的妹妹](https://www.xqwz8bk.com/book/1igm1fe/)
 - [路人攻了主角攻［快穿］](https://www.xqwz8bk.com/book/1igm1c7/)
 - [昭暮](https://www.xqwz8bk.com/book/1iglnr8/)
-- [古代种田养娃日常](https://www.xqwz8bk.com/book/1iglcvl/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.xqwz8bk.com/book/1iglcip/)
 - [[足球]足坛人生模拟器](https://www.xqwz8bk.com/book/1igkgub/)
 - [上个鬼班[无限]](https://www.xqwz8bk.com/book/1igke7b/)
@@ -143,9 +141,8 @@
 - [多梦你一会儿](https://www.xqwz8bk.com/book/51m9kq/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.xqwz8bk.com/book/51m92q/)
 - [韩团绿卡不想忍了](https://www.xqwz8bk.com/book/51m6b8/)
-- [娶了女装心机太子](https://www.xqwz8bk.com/book/51m5nf/)
 - [被糟蹋的老实人决定反击](https://www.xqwz8bk.com/book/51m502/)
-- [八零恶毒后妈杀疯了](https://www.xqwz8bk.com/book/51m476/)
+- [卷王后妈，八零养娃](https://www.xqwz8bk.com/book/51m476/)
 - [这个位面归我了！[经营]](https://www.xqwz8bk.com/book/51m388/)
 - [清冷丞相怀了死对头的崽](https://www.xqwz8bk.com/book/51m2ij/)
 - [村霸非要入赘受气包](https://www.xqwz8bk.com/book/51m2bl/)
@@ -171,7 +168,6 @@
 - [开局绑定郭奉孝，谋定三国风云](https://www.xqwz8bk.com/book/g5a4b/)
 - [苏娘子汴京摆摊日常（美食）](https://www.xqwz8bk.com/book/g5a0k/)
 - [海岛求生：生活玩家种田囤货](https://www.xqwz8bk.com/book/g59r1/)
-- [猫猫也要养家糊口](https://www.xqwz8bk.com/book/1jnrl/)
 - [95美国贵族高中模拟](https://www.xqwz8bk.com/book/1jnr7/)
 - [我有一座安全城](https://www.xqwz8bk.com/book/1jnmc/)
 - [我是唯一地上神国](https://www.xqwz8bk.com/book/1jnen/)

@@ -1,13 +1,15 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-09-05 03:30:12
+更新时间：2026-09-06 03:31:09
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
 - [看书小说网](https://www.kanshu666.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.kanshu666.com/book/8jv7ign/)
+- [和八个男人在极寒游戏求生](https://www.kanshu666.com/book/8jv7igm/)
 - [烈火焚身[巴黎圣母院]](https://www.kanshu666.com/book/8jv7igl/)
 - [咦？我爸爸复活啦](https://www.kanshu666.com/book/8jv7igk/)
 - [星露谷，但日本战国](https://www.kanshu666.com/book/8jv7igj/)
@@ -18,7 +20,6 @@
 - [和治君只是饭搭子的关系](https://www.kanshu666.com/book/8jv7ige/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.kanshu666.com/book/8jv7igd/)
 - [人，今晚土拨鼠站岗](https://www.kanshu666.com/book/8jv7igc/)
-- [自知之明](https://www.kanshu666.com/book/8jv7igb/)
 - [恶毒男配只想躺平](https://www.kanshu666.com/book/8jv7iga/)
 - [前妻她肯定会后悔](https://www.kanshu666.com/book/8jv7ig9/)
 - [谁都不爱的和亲公主](https://www.kanshu666.com/book/8jv7ig8/)
@@ -82,7 +83,6 @@
 - [炮灰的海外亲戚回国啦！](https://www.kanshu666.com/book/8jv7ied/)
 - [爱情的肯定句](https://www.kanshu666.com/book/8jv7iec/)
 - [我司艺人永不塌房](https://www.kanshu666.com/book/8jv7idc/)
-- [[综英美]让我统治哥谭！！！](https://www.kanshu666.com/book/8jv7ice/)
 - [我们生活玩家是这样的](https://www.kanshu666.com/book/8jv7ia2/)
 - [十九世纪贵族厨房（美食）](https://www.kanshu666.com/book/8jv7i8q/)
 - [[封神]圣人生欲](https://www.kanshu666.com/book/8jv7i8c/)
@@ -91,14 +91,12 @@
 - [星际团宠小人鱼](https://www.kanshu666.com/book/8jv7i7j/)
 - [始乱终弃清冷首辅后](https://www.kanshu666.com/book/8jv7i71/)
 - [高调装神，猥琐发育](https://www.kanshu666.com/book/8jv7i6h/)
-- [假少爷不想活了](https://www.kanshu666.com/book/8jv7i6g/)
+- [假少爷离开后](https://www.kanshu666.com/book/8jv7i6g/)
 - [直男咒术师的限制级游戏](https://www.kanshu666.com/book/8jv7i2n/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.kanshu666.com/book/8jv7i1j/)
 - [六零之成了卷王的妹妹](https://www.kanshu666.com/book/8jv7gqb/)
-- [绝不会喜欢五条君的！](https://www.kanshu666.com/book/8jv7gpi/)
 - [路人攻了主角攻［快穿］](https://www.kanshu666.com/book/8jv7gp8/)
 - [昭暮](https://www.kanshu666.com/book/8jv7774/)
-- [古代种田养娃日常](https://www.kanshu666.com/book/8jv6rmu/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.kanshu666.com/book/8jv6r7p/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kanshu666.com/book/8jv5l9q/)
 - [上个鬼班[无限]](https://www.kanshu666.com/book/8jv5iaa/)
@@ -142,10 +140,9 @@
 - [妻主风流（女尊）](https://www.kanshu666.com/book/rj4uak/)
 - [多梦你一会儿](https://www.kanshu666.com/book/rj4r8k/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.kanshu666.com/book/rj4oqm/)
-- [娶了女装心机太子](https://www.kanshu666.com/book/rj4nd7/)
 - [韩团绿卡不想忍了](https://www.kanshu666.com/book/rj4luk/)
 - [被糟蹋的老实人决定反击](https://www.kanshu666.com/book/rj4ljp/)
-- [八零恶毒后妈杀疯了](https://www.kanshu666.com/book/rj4kn2/)
+- [卷王后妈，八零养娃](https://www.kanshu666.com/book/rj4kn2/)
 - [村霸非要入赘受气包](https://www.kanshu666.com/book/rj4jdp/)
 - [清冷丞相怀了死对头的崽](https://www.kanshu666.com/book/rj4jbs/)
 - [这个位面归我了！[经营]](https://www.kanshu666.com/book/rj4j9l/)
@@ -164,7 +161,6 @@
 - [在魔法贵族学院当白月光](https://www.kanshu666.com/book/2oa0q4/)
 - [完蛋！被恨孕男包围了！](https://www.kanshu666.com/book/2oa0h0/)
 - [95美国贵族高中模拟](https://www.kanshu666.com/book/2oa09b/)
-- [猫猫也要养家糊口](https://www.kanshu666.com/book/2o9vo7/)
 - [[娱乐圈]过分美丽的她](https://www.kanshu666.com/book/2o9vnb/)
 - [开局绑定郭奉孝，谋定三国风云](https://www.kanshu666.com/book/2o9vjr/)
 - [高门小婢](https://www.kanshu666.com/book/2o9vfk/)

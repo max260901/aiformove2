@@ -1,13 +1,15 @@
 
 # 新华 MBA雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-09-05 03:43:05
+更新时间：2026-09-06 03:43:53
 
 新华 MBA雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。
 
 - [新华MBA雷火小说网](https://www.xhmba.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.xhmba.com/book/7mj2bk6/)
+- [和八个男人在极寒游戏求生](https://www.xhmba.com/book/7mj2bj8/)
 - [谁都不爱的和亲公主](https://www.xhmba.com/book/7mj27ir/)
 - [恐游里的邻居们[万人迷]](https://www.xhmba.com/book/7mj27ij/)
 - [[综英美]哥谭市民，在线抽卡](https://www.xhmba.com/book/7mj27ih/)
@@ -84,7 +86,6 @@
 - [如何正确哄睡暴君](https://www.xhmba.com/book/7mj0ru6/)
 - [清穿女回来后[天幕]](https://www.xhmba.com/book/7mj0qsi/)
 - [[足球]我的游戏存档成真了？！](https://www.xhmba.com/book/7mj0qg0/)
-- [自知之明](https://www.xhmba.com/book/7mj0qfn/)
 - [死遁的亡夫们都回来了](https://www.xhmba.com/book/7mj0q36/)
 - [社畜Beta也能被顶A觊觎吗](https://www.xhmba.com/book/7mj0p6q/)
 - [让你们无剧本可走（快穿）](https://www.xhmba.com/book/7mj0o1a/)
@@ -139,16 +140,13 @@
 - [怀了前任大哥的崽后](https://www.xhmba.com/book/7miulaj/)
 - [假金丝雀深陷修罗场](https://www.xhmba.com/book/7miul2f/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.xhmba.com/book/7miukpa/)
-- [[综英美]让我统治哥谭！！！](https://www.xhmba.com/book/7miuk6j/)
 - [娘娘扶摇直上](https://www.xhmba.com/book/7miuhoq/)
 - [权宋一只统](https://www.xhmba.com/book/7miug7s/)
 - [恶犬攻绑定上司的乖狗系统](https://www.xhmba.com/book/7miue2p/)
-- [绝不会喜欢五条君的！](https://www.xhmba.com/book/7miubcc/)
 - [爱好和平但狂拆机甲](https://www.xhmba.com/book/7miuaai/)
 - [你让魔王组建勇者小队？](https://www.xhmba.com/book/7miu6hi/)
 - [大瑛弟国](https://www.xhmba.com/book/7mitaec/)
-- [八零恶毒后妈杀疯了](https://www.xhmba.com/book/7mita3d/)
-- [娶了女装心机太子](https://www.xhmba.com/book/7mita33/)
+- [卷王后妈，八零养娃](https://www.xhmba.com/book/7mita3d/)
 - [高门小婢](https://www.xhmba.com/book/7mit9nk/)
 - [[娱乐圈]过分美丽的她](https://www.xhmba.com/book/7mit9ld/)
 - [始乱终弃清冷首辅后](https://www.xhmba.com/book/7mit9jr/)
@@ -165,10 +163,8 @@
 - [六零之成了卷王的妹妹](https://www.xhmba.com/book/7mit8cd/)
 - [[封神]圣人生欲](https://www.xhmba.com/book/7mit8aj/)
 - [全民求生:从小木屋到魔法农场](https://www.xhmba.com/book/7mit82n/)
-- [古代种田养娃日常](https://www.xhmba.com/book/7mit82k/)
 - [清澈女大的六零年代](https://www.xhmba.com/book/7mit7vm/)
-- [假少爷不想活了](https://www.xhmba.com/book/7mit7ub/)
-- [猫猫也要养家糊口](https://www.xhmba.com/book/7mit7tl/)
+- [假少爷离开后](https://www.xhmba.com/book/7mit7ub/)
 - [五十年代港城日常](https://www.xhmba.com/book/7mit7t5/)
 - [在民俗惊悚片被诸神庇护](https://www.xhmba.com/book/7mit7q3/)
 - [趁她之危](https://www.xhmba.com/book/7mit7oq/)

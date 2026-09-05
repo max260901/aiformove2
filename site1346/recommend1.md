@@ -1,13 +1,15 @@
 
 # 奇幻凤影台小说-都市玄幻言情仙侠免费小说在线阅读
 
-更新时间：2026-09-05 03:34:45
+更新时间：2026-09-06 03:35:41
 
 奇幻凤影台小说提供都市玄幻、言情仙侠等类型的小说在线免费阅读服务。让您的通勤路上不再无聊，无论是日常出行还是夜晚静谧时刻，总有一本好书陪伴您度过美好时光。
 
 - [奇幻凤影台小说](https://www.qihuan868.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.qihuan868.com/book/42idtgv/)
+- [揣崽丧夫后被情敌强娶了](https://www.qihuan868.com/book/42idtgu/)
 - [[全职高手]治疗什么的不干了！](https://www.qihuan868.com/book/42idtgq/)
 - [从1951开始](https://www.qihuan868.com/book/42idtgp/)
 - [魔尊闭关十年连生十一子？！](https://www.qihuan868.com/book/42idtgl/)
@@ -25,7 +27,6 @@
 - [万人嫌从末世回来了](https://www.qihuan868.com/book/42idtfm/)
 - [二次分化后他怀了死对头的崽](https://www.qihuan868.com/book/42idtfh/)
 - [魔改剧本后我爆火了[娱乐圈]](https://www.qihuan868.com/book/42idtfg/)
-- [自知之明](https://www.qihuan868.com/book/42idtff/)
 - [双生子反派的端水抑郁妈[九零]](https://www.qihuan868.com/book/42idtf9/)
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.qihuan868.com/book/42idtf8/)
 - [末世八年春，游戏降临](https://www.qihuan868.com/book/42idtf2/)
@@ -119,7 +120,6 @@
 - [苏娘子汴京摆摊日常（美食）](https://www.qihuan868.com/book/42iaufe/)
 - [我有一座地下城](https://www.qihuan868.com/book/42iasm3/)
 - [漂亮女配是万人迷［快穿］](https://www.qihuan868.com/book/42iarj0/)
-- [[综英美]让我统治哥谭！！！](https://www.qihuan868.com/book/42ianjm/)
 - [阴阳师也可以打网球](https://www.qihuan868.com/book/42iancc/)
 - [多梦你一会儿](https://www.qihuan868.com/book/42ian74/)
 - [和治君只是饭搭子的关系](https://www.qihuan868.com/book/42ian2k/)
@@ -127,7 +127,7 @@
 - [和贵志君是世界第一的好朋友](https://www.qihuan868.com/book/42ialuv/)
 - [如何嫁给当朝首辅](https://www.qihuan868.com/book/42ialpk/)
 - [五条老师与他的封建妻子](https://www.qihuan868.com/book/42iakqc/)
-- [八零恶毒后妈杀疯了](https://www.qihuan868.com/book/42iakl8/)
+- [卷王后妈，八零养娃](https://www.qihuan868.com/book/42iakl8/)
 - [在魔法贵族学院当白月光](https://www.qihuan868.com/book/42iak0v/)
 - [我司艺人永不塌房](https://www.qihuan868.com/book/42iaic5/)
 - [我187了，你敢见我吗？](https://www.qihuan868.com/book/42iag3f/)
@@ -145,7 +145,6 @@
 - [趁她之危](https://www.qihuan868.com/book/42i9rff/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.qihuan868.com/book/42i9q3b/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.qihuan868.com/book/42i9ptv/)
-- [娶了女装心机太子](https://www.qihuan868.com/book/42i9pgi/)
 - [清冷丞相怀了死对头的崽](https://www.qihuan868.com/book/42i9p4n/)
 - [村霸非要入赘受气包](https://www.qihuan868.com/book/42i9okg/)
 - [和山神搭伙开农场的日子](https://www.qihuan868.com/book/42i9nj3/)
@@ -155,8 +154,6 @@
 - [权宋一只统](https://www.qihuan868.com/book/42i9f24/)
 - [爱好和平但狂拆机甲](https://www.qihuan868.com/book/42i987o/)
 - [大瑛弟国](https://www.qihuan868.com/book/42i8cd9/)
-- [绝不会喜欢五条君的！](https://www.qihuan868.com/book/42i8ca7/)
-- [古代种田养娃日常](https://www.qihuan868.com/book/42i8c6r/)
 - [高门小婢](https://www.qihuan868.com/book/42i8c40/)
 - [巨物致富：回乡开钓场](https://www.qihuan868.com/book/42i8c2r/)
 - [五十年代港城日常](https://www.qihuan868.com/book/42i8ben/)
@@ -166,9 +163,8 @@
 - [清澈女大的六零年代](https://www.qihuan868.com/book/42i8alm/)
 - [成为养成系练习生后](https://www.qihuan868.com/book/42i8af4/)
 - [全民求生:从小木屋到魔法农场](https://www.qihuan868.com/book/42i89vm/)
-- [猫猫也要养家糊口](https://www.qihuan868.com/book/42i89pp/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.qihuan868.com/book/42i89ov/)
-- [假少爷不想活了](https://www.qihuan868.com/book/42i89mi/)
+- [假少爷离开后](https://www.qihuan868.com/book/42i89mi/)
 - [我是唯一地上神国](https://www.qihuan868.com/book/42i89lq/)
 - [六零之成了卷王的妹妹](https://www.qihuan868.com/book/42i89ho/)
 - [日化人生[科研]](https://www.qihuan868.com/book/42i89et/)

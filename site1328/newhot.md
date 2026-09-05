@@ -1,13 +1,14 @@
 
 # 新乐文小说 - 最热门免费在线阅读平台 | 玄幻、网游、言情、穿越、都市全本小说
 
-更新时间：2026-09-05 03:31:32
+更新时间：2026-09-06 03:32:29
 
 新乐文小说为您提供一个无广告无弹窗的纯净阅读环境，专注于玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读体验。在这里可以找到最新最热的小说章节更新，享受舒适的阅读时光。
 
 - [新乐文小说](https://www.ksqinlida.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.ksqinlida.com/book/1svdokm/)
 - [[足球]小小鸟堂堂来袭](https://www.ksqinlida.com/book/1svdoki/)
 - [咦？我爸爸复活啦](https://www.ksqinlida.com/book/1svdok1/)
 - [禁止继承限制级雌君](https://www.ksqinlida.com/book/1svdojv/)
@@ -15,6 +16,7 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.ksqinlida.com/book/1svdoj7/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.ksqinlida.com/book/1svdoj3/)
 - [全世界名为爱的恶意](https://www.ksqinlida.com/book/1svdoj0/)
+- [穿为龙傲天发妻后](https://www.ksqinlida.com/book/1svdoiv/)
 - [我骗家里的钱养你啊](https://www.ksqinlida.com/book/1svdois/)
 - [自知之明](https://www.ksqinlida.com/book/1svdoim/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.ksqinlida.com/book/1svdoij/)
@@ -22,7 +24,6 @@
 - [同时扮演贵族学院F4和平民校花](https://www.ksqinlida.com/book/1svdoia/)
 - [暴君偏头痛](https://www.ksqinlida.com/book/1svdogd/)
 - [失而复得的白月光[快穿]](https://www.ksqinlida.com/book/1svdog2/)
-- [我的烧烤摊超美味[美食]](https://www.ksqinlida.com/book/1svdofr/)
 - [[综英美]让我统治哥谭！！！](https://www.ksqinlida.com/book/1svdofn/)
 - [青城玩家明明超强却过分谨慎](https://www.ksqinlida.com/book/1svdofl/)
 - [躲避原书剧情五年后](https://www.ksqinlida.com/book/1svdofd/)
@@ -31,12 +32,10 @@
 - [你，后室管理员](https://www.ksqinlida.com/book/1svdocq/)
 - [被四皇错看成小动物后](https://www.ksqinlida.com/book/1svdobq/)
 - [[封神]圣人生欲](https://www.ksqinlida.com/book/1svdobm/)
-- [星际团宠小人鱼](https://www.ksqinlida.com/book/1svdob0/)
 - [高调装神，猥琐发育](https://www.ksqinlida.com/book/1svdoah/)
 - [京秋婚约](https://www.ksqinlida.com/book/1svdo9k/)
 - [直男咒术师的限制级游戏](https://www.ksqinlida.com/book/1svdo8f/)
 - [纯爱宇智波基本恋爱法](https://www.ksqinlida.com/book/1svdo7f/)
-- [从异世界穿回来后](https://www.ksqinlida.com/book/1svdo6r/)
 - [阴郁路人不想被喜欢](https://www.ksqinlida.com/book/1svdo6q/)
 - [求生游戏：当邪神成为生活玩家后](https://www.ksqinlida.com/book/1svdo57/)
 - [昭暮](https://www.ksqinlida.com/book/1svddb9/)
@@ -404,6 +403,7 @@
 - [每天都在和太宰互换身体](https://www.ksqinlida.com/book/63611k/)
 - [作家与读者](https://www.ksqinlida.com/book/636109/)
 - [忍界观察日记](https://www.ksqinlida.com/book/6360v1/)
+- [被阴湿坏女人缠上后](https://www.ksqinlida.com/book/6360a8/)
 - [隔壁班的松田君](https://www.ksqinlida.com/book/635vdf/)
 - [虫族治愈师，但恐虫](https://www.ksqinlida.com/book/635v6s/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.ksqinlida.com/book/635v35/)
@@ -415,9 +415,7 @@
 - [我最讨厌打球了！](https://www.ksqinlida.com/book/635kmu/)
 - [误入反派培养直播后](https://www.ksqinlida.com/book/635fsq/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.ksqinlida.com/book/635e54/)
-- [多梦你一会儿](https://www.ksqinlida.com/book/635cmb/)
 - [[足球]罗蜜第一志愿](https://www.ksqinlida.com/book/635bun/)
-- [和前女友的心上人he了](https://www.ksqinlida.com/book/63581s/)
 - [哥你不能不要我](https://www.ksqinlida.com/book/634pd9/)
 ## 相关内容
 - [README](/README.md)

@@ -1,19 +1,19 @@
 
 # 灌南华侨小说网笔趣阁_书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-05 03:26:43
+更新时间：2026-09-06 03:27:37
 
 灌南华侨小说网笔趣阁海量免费小说在线阅读平台，汇聚玄幻、都市、言情、科幻、悬疑等全品类热门小说，实时更新全网爆款佳作。无广告干扰，支持缓存离线看，让你随时随地沉浸阅读世界，找书看书就来笔趣阁，满足你的所有阅读渴望。
 
 - [灌南华侨小说网](https://www.gnhqbs.com/)
 
 ## 最新小说
+- [穿为龙傲天发妻后](https://www.gnhqbs.com/book/1cqms3j/)
 - [清穿女回来后[天幕]](https://www.gnhqbs.com/book/1cqms2n/)
 - [等我吃腻了再倒闭可以吗](https://www.gnhqbs.com/book/1cqms2c/)
 - [自知之明](https://www.gnhqbs.com/book/1cqms21/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.gnhqbs.com/book/1cqms20/)
 - [禁止继承限制级雌君](https://www.gnhqbs.com/book/1cqms1r/)
-- [我的烧烤摊超美味[美食]](https://www.gnhqbs.com/book/1cqms1a/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.gnhqbs.com/book/1cqms13/)
 - [渡鬼](https://www.gnhqbs.com/book/1cqms06/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.gnhqbs.com/book/1cqmreh/)
@@ -27,6 +27,7 @@
 - [怪谈小镇游玩指南[无限]](https://www.gnhqbs.com/book/1cqmjoa/)
 - [当甚尔转生成继国](https://www.gnhqbs.com/book/1cqmiqa/)
 - [小猫商店，喜欢您来！](https://www.gnhqbs.com/book/1cqmi0f/)
+- [丧尸老婆喂养日记](https://www.gnhqbs.com/book/1cqmh76/)
 - [李玉灯](https://www.gnhqbs.com/book/1cqmh5b/)
 - [限制文中的社畜女beta](https://www.gnhqbs.com/book/1cqmh3p/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.gnhqbs.com/book/1cqmgp1/)
@@ -40,6 +41,7 @@
 - [修仙界都为我神魂颠倒](https://www.gnhqbs.com/book/1cqmbbm/)
 - [美人NPC在线作死［无限］](https://www.gnhqbs.com/book/1cqmb16/)
 - [衍生穿越合订本](https://www.gnhqbs.com/book/1cqmapr/)
+- [书呆子扮演渣攻翻车【快穿】](https://www.gnhqbs.com/book/1cqmaia/)
 - [不义世界都是我马甲[综英美]](https://www.gnhqbs.com/book/1cqmaci/)
 - [丧尸王有什么坏心思？](https://www.gnhqbs.com/book/1cqm9v8/)
 - [网球带给齐木的灾难](https://www.gnhqbs.com/book/1cqm8qq/)
@@ -54,7 +56,6 @@
 - [离开那个混蛋后](https://www.gnhqbs.com/book/1cqm38s/)
 - [就算是龙傲天也不可以[快穿]](https://www.gnhqbs.com/book/1cqm2c4/)
 - [豪门养子怀了大哥的崽](https://www.gnhqbs.com/book/1cqm1rr/)
-- [从异世界穿回来后](https://www.gnhqbs.com/book/1cqm1np/)
 - [他们非要献上忠诚](https://www.gnhqbs.com/book/1cqlvab/)
 - [直播剧透我是千古一帝](https://www.gnhqbs.com/book/1cqlrhi/)
 - [穿书后我娶了反派皇子](https://www.gnhqbs.com/book/1cqlo3m/)
@@ -267,7 +268,6 @@
 - [想听越前君向我告白](https://www.gnhqbs.com/book/1cqjomg/)
 - [糊咖爱豆用动物心声破案](https://www.gnhqbs.com/book/1cqjolv/)
 - [挚友和我穿越后分了阵营](https://www.gnhqbs.com/book/1cqjo79/)
-- [多梦你一会儿](https://www.gnhqbs.com/book/1cqjo6n/)
 - [假如樱是砂忍](https://www.gnhqbs.com/book/1cqjo68/)
 - [重回被拐那一天[千禧年代]](https://www.gnhqbs.com/book/1cqjo10/)
 - [这谁的沙雕二次元心声！](https://www.gnhqbs.com/book/1cqjo03/)
@@ -332,7 +332,6 @@
 - [豪门狗血文里的天才后妈](https://www.gnhqbs.com/book/1cqjicd/)
 - [[足球]德意志小比也能拿冠军吗](https://www.gnhqbs.com/book/1cqji9m/)
 - [娇婚惯养](https://www.gnhqbs.com/book/1cqji7f/)
-- [和前女友的心上人he了](https://www.gnhqbs.com/book/1cqjhs5/)
 - [忍界观察日记](https://www.gnhqbs.com/book/1cqjhrs/)
 - [银发死鱼眼也要打排球](https://www.gnhqbs.com/book/1cqjhp1/)
 - [[HP]我和救世主有个约会](https://www.gnhqbs.com/book/1cqjhog/)
@@ -418,6 +417,7 @@
 - [请问夫君你哪位](https://www.gnhqbs.com/book/1cqjbn3/)
 - [救命！猫尾巴藏不住了](https://www.gnhqbs.com/book/1cqjbmu/)
 - [神之子与排球的适配性](https://www.gnhqbs.com/book/1cqjbmn/)
+- [被阴湿坏女人缠上后](https://www.gnhqbs.com/book/1cqjbgc/)
 - [让我再吃一口](https://www.gnhqbs.com/book/1cqjbfo/)
 - [某柯学的正义伙伴](https://www.gnhqbs.com/book/1cqjbdr/)
 - [在重男兄弟间夹缝求生](https://www.gnhqbs.com/book/1cqjb97/)
@@ -438,6 +438,7 @@
 - [柯学剧本杀，但恋爱流打法](https://www.gnhqbs.com/book/1cqj3k2/)
 - [盛夏晴浓](https://www.gnhqbs.com/book/1cqj3iq/)
 - [法外狂猫](https://www.gnhqbs.com/book/1cqj2qm/)
+- [欢迎来到重生点](https://www.gnhqbs.com/book/1cqj2p0/)
 - [好兄弟暴富后非要跟我结婚](https://www.gnhqbs.com/book/1cqj1km/)
 - [我，剑圣，养生中，勿扰](https://www.gnhqbs.com/book/1cqiu33/)
 - [关于我虚构了一个男友这件事](https://www.gnhqbs.com/book/1cqite4/)
@@ -450,7 +451,6 @@
 - [暴君偏头痛](https://www.gnhqbs.com/book/1cqicg3/)
 - [被四皇错看成小动物后](https://www.gnhqbs.com/book/1cqha72/)
 - [[封神]圣人生欲](https://www.gnhqbs.com/book/1cqha6t/)
-- [星际团宠小人鱼](https://www.gnhqbs.com/book/1cqh9or/)
 - [高调装神，猥琐发育](https://www.gnhqbs.com/book/1cqh9jg/)
 - [纯爱宇智波基本恋爱法](https://www.gnhqbs.com/book/1cqh83r/)
 - [误入反派培养直播后](https://www.gnhqbs.com/book/1cqh7uj/)

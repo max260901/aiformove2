@@ -1,13 +1,15 @@
 
 # 武侠文学网 - 值得收藏的小说阅读平台
 
-更新时间：2026-09-05 03:42:35
+更新时间：2026-09-06 03:43:24
 
 武侠文学网为您提供丰富多样的小说资源，在这里您可以找到最新最热门的小说作品。无论是经典文学还是现代流行小说，都是您值得收藏的阅读选择。
 
 - [武侠文学网](https://www.wuxia988.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.wuxia988.com/book/1ms38pi/)
+- [揣崽丧夫后被情敌强娶了](https://www.wuxia988.com/book/1ms38ph/)
 - [我们小区穿末世](https://www.wuxia988.com/book/1ms38pg/)
 - [你让魔王组建勇者小队？](https://www.wuxia988.com/book/1ms38pc/)
 - [漫画取材所引发的修罗场](https://www.wuxia988.com/book/1ms38pb/)
@@ -23,7 +25,6 @@
 - [谁说踢球就不能成为名侦探[足球]](https://www.wuxia988.com/book/1ms38oi/)
 - [爱情的肯定句](https://www.wuxia988.com/book/1ms38oe/)
 - [末世八年春，游戏降临](https://www.wuxia988.com/book/1ms38o9/)
-- [自知之明](https://www.wuxia988.com/book/1ms38o3/)
 - [炮灰的海外亲戚回国啦！](https://www.wuxia988.com/book/1ms38o1/)
 - [二次分化后他怀了死对头的崽](https://www.wuxia988.com/book/1ms38nv/)
 - [人，今晚土拨鼠站岗](https://www.wuxia988.com/book/1ms38nu/)
@@ -125,9 +126,8 @@
 - [和治君只是饭搭子的关系](https://www.wuxia988.com/book/1ms03c8/)
 - [阴阳师也可以打网球](https://www.wuxia988.com/book/1ms0308/)
 - [[封神]圣人生欲](https://www.wuxia988.com/book/1ms020t/)
-- [[综英美]让我统治哥谭！！！](https://www.wuxia988.com/book/1ms018p/)
 - [在魔法贵族学院当白月光](https://www.wuxia988.com/book/1ms00kh/)
-- [八零恶毒后妈杀疯了](https://www.wuxia988.com/book/1mrvvd5/)
+- [卷王后妈，八零养娃](https://www.wuxia988.com/book/1mrvvd5/)
 - [五条老师与他的封建妻子](https://www.wuxia988.com/book/1mrvuiu/)
 - [我187了，你敢见我吗？](https://www.wuxia988.com/book/1mrvsja/)
 - [我司艺人永不塌房](https://www.wuxia988.com/book/1mrvs97/)
@@ -143,7 +143,6 @@
 - [带清冷女主回乡养螃蟹[种田]](https://www.wuxia988.com/book/1mrv8sh/)
 - [这个位面归我了！[经营]](https://www.wuxia988.com/book/1mrv838/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.wuxia988.com/book/1mrv6ea/)
-- [娶了女装心机太子](https://www.wuxia988.com/book/1mrv60t/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.wuxia988.com/book/1mrv4jq/)
 - [村霸非要入赘受气包](https://www.wuxia988.com/book/1mrv4gf/)
 - [清冷丞相怀了死对头的崽](https://www.wuxia988.com/book/1mrv45m/)
@@ -154,12 +153,10 @@
 - [恶犬攻绑定上司的乖狗系统](https://www.wuxia988.com/book/1mrusfp/)
 - [权宋一只统](https://www.wuxia988.com/book/1mruoho/)
 - [爱好和平但狂拆机甲](https://www.wuxia988.com/book/1mruibj/)
-- [绝不会喜欢五条君的！](https://www.wuxia988.com/book/1mrtnib/)
 - [成为养成系练习生后](https://www.wuxia988.com/book/1mrtneq/)
 - [全民求生:从小木屋到魔法农场](https://www.wuxia988.com/book/1mrtnc2/)
 - [我是唯一地上神国](https://www.wuxia988.com/book/1mrtn86/)
-- [古代种田养娃日常](https://www.wuxia988.com/book/1mrtn4o/)
-- [假少爷不想活了](https://www.wuxia988.com/book/1mrtn44/)
+- [假少爷离开后](https://www.wuxia988.com/book/1mrtn44/)
 - [五十年代港城日常](https://www.wuxia988.com/book/1mrtn10/)
 - [[娱乐圈]过分美丽的她](https://www.wuxia988.com/book/1mrtn00/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.wuxia988.com/book/1mrtmum/)
@@ -174,7 +171,6 @@
 - [高门小婢](https://www.wuxia988.com/book/1mrtlns/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.wuxia988.com/book/1mrtl9e/)
 - [海岛求生：生活玩家种田囤货](https://www.wuxia988.com/book/1mrtl5h/)
-- [猫猫也要养家糊口](https://www.wuxia988.com/book/1mrtkro/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1369/index.md)

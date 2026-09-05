@@ -1,13 +1,15 @@
 
 # 无瑕天涯在线书库 - 免费小说在线阅读
 
-更新时间：2026-09-05 03:42:20
+更新时间：2026-09-06 03:43:09
 
 无瑕天涯在线书库自2003年创立至今，致力于提供包括武侠、言情、科幻等多种类型的小说免费在线阅读服务。页面设计简洁，持续优化用户体验，旨在为读者带来更好的阅读享受。
 
 - [无瑕天涯书库](https://www.wuxia688.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.wuxia688.com/book/2bjrga1/)
+- [和八个男人在极寒游戏求生](https://www.wuxia688.com/book/2bjrga0/)
 - [在中世纪做奴隶](https://www.wuxia688.com/book/2bjrg9s/)
 - [好心的俄罗斯人](https://www.wuxia688.com/book/2bjrg9o/)
 - [怨明月不独照](https://www.wuxia688.com/book/2bjrg9m/)
@@ -21,7 +23,6 @@
 - [从1951开始](https://www.wuxia688.com/book/2bjrg8q/)
 - [魔咒请说普通话[西幻]](https://www.wuxia688.com/book/2bjrg8p/)
 - [病美人重生日记](https://www.wuxia688.com/book/2bjrg8o/)
-- [自知之明](https://www.wuxia688.com/book/2bjrg8l/)
 - [八零法医，带全家致富](https://www.wuxia688.com/book/2bjrg8k/)
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.wuxia688.com/book/2bjrg8g/)
 - [清穿女回来后[天幕]](https://www.wuxia688.com/book/2bjrg8b/)
@@ -119,7 +120,6 @@
 - [苏娘子汴京摆摊日常（美食）](https://www.wuxia688.com/book/2bjogg1/)
 - [我有一座地下城](https://www.wuxia688.com/book/2bjoet4/)
 - [漂亮女配是万人迷［快穿］](https://www.wuxia688.com/book/2bjoesn/)
-- [[综英美]让我统治哥谭！！！](https://www.wuxia688.com/book/2bjoah6/)
 - [和治君只是饭搭子的关系](https://www.wuxia688.com/book/2bjo9m5/)
 - [阴阳师也可以打网球](https://www.wuxia688.com/book/2bjo9jr/)
 - [和贵志君是世界第一的好朋友](https://www.wuxia688.com/book/2bjo96b/)
@@ -127,7 +127,7 @@
 - [多梦你一会儿](https://www.wuxia688.com/book/2bjo8ke/)
 - [如何嫁给当朝首辅](https://www.wuxia688.com/book/2bjo8h8/)
 - [五条老师与他的封建妻子](https://www.wuxia688.com/book/2bjo82q/)
-- [八零恶毒后妈杀疯了](https://www.wuxia688.com/book/2bjo7j3/)
+- [卷王后妈，八零养娃](https://www.wuxia688.com/book/2bjo7j3/)
 - [在魔法贵族学院当白月光](https://www.wuxia688.com/book/2bjo749/)
 - [我187了，你敢见我吗？](https://www.wuxia688.com/book/2bjo4q9/)
 - [我司艺人永不塌房](https://www.wuxia688.com/book/2bjo2ol/)
@@ -144,7 +144,6 @@
 - [这个位面归我了！[经营]](https://www.wuxia688.com/book/2bjnetv/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.wuxia688.com/book/2bjnd7c/)
 - [清冷丞相怀了死对头的崽](https://www.wuxia688.com/book/2bjnd24/)
-- [娶了女装心机太子](https://www.wuxia688.com/book/2bjnbup/)
 - [村霸非要入赘受气包](https://www.wuxia688.com/book/2bjnbpj/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.wuxia688.com/book/2bjnbc5/)
 - [被糟蹋的老实人决定反击](https://www.wuxia688.com/book/2bjn9ah/)
@@ -166,14 +165,11 @@
 - [高门小婢](https://www.wuxia688.com/book/2bjltsu/)
 - [直男咒术师的限制级游戏](https://www.wuxia688.com/book/2bjltog/)
 - [我有一座安全城](https://www.wuxia688.com/book/2bjlt5a/)
-- [猫猫也要养家糊口](https://www.wuxia688.com/book/2bjlt2v/)
-- [绝不会喜欢五条君的！](https://www.wuxia688.com/book/2bjlstc/)
 - [[娱乐圈]过分美丽的她](https://www.wuxia688.com/book/2bjlso5/)
 - [全民求生:从小木屋到魔法农场](https://www.wuxia688.com/book/2bjlsnr/)
-- [古代种田养娃日常](https://www.wuxia688.com/book/2bjlsfb/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.wuxia688.com/book/2bjls8g/)
 - [五十年代港城日常](https://www.wuxia688.com/book/2bjls7k/)
-- [假少爷不想活了](https://www.wuxia688.com/book/2bjls1s/)
+- [假少爷离开后](https://www.wuxia688.com/book/2bjls1s/)
 - [成为养成系练习生后](https://www.wuxia688.com/book/2bjlrus/)
 ## 相关内容
 - [README](/README.md)

@@ -1,13 +1,15 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-09-05 03:24:08
+更新时间：2026-09-06 03:24:57
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
 - [创意小说网](https://www.chuangyi1687.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.chuangyi1687.com/book/1hvgp2k/)
+- [和八个男人在极寒游戏求生](https://www.chuangyi1687.com/book/1hvgp2j/)
 - [双生子反派的端水抑郁妈[九零]](https://www.chuangyi1687.com/book/1hvgp2i/)
 - [夫人每天都在伪装](https://www.chuangyi1687.com/book/1hvgp2h/)
 - [从1951开始](https://www.chuangyi1687.com/book/1hvgp2g/)
@@ -52,7 +54,6 @@
 - [漫画取材所引发的修罗场](https://www.chuangyi1687.com/book/1hvgp18/)
 - [咦？我爸爸复活啦](https://www.chuangyi1687.com/book/1hvgp17/)
 - [清穿女回来后[天幕]](https://www.chuangyi1687.com/book/1hvgp16/)
-- [自知之明](https://www.chuangyi1687.com/book/1hvgp15/)
 - [和治君只是饭搭子的关系](https://www.chuangyi1687.com/book/1hvgp14/)
 - [[全职高手]治疗什么的不干了！](https://www.chuangyi1687.com/book/1hvgp13/)
 - [死遁APP](https://www.chuangyi1687.com/book/1hvgp12/)
@@ -83,7 +84,6 @@
 - [乖乖女的杂货铺[八零]](https://www.chuangyi1687.com/book/1hvgp09/)
 - [我司艺人永不塌房](https://www.chuangyi1687.com/book/1hvgouk/)
 - [我们生活玩家是这样的](https://www.chuangyi1687.com/book/1hvgotf/)
-- [[综英美]让我统治哥谭！！！](https://www.chuangyi1687.com/book/1hvgota/)
 - [十九世纪贵族厨房（美食）](https://www.chuangyi1687.com/book/1hvgoqq/)
 - [[封神]圣人生欲](https://www.chuangyi1687.com/book/1hvgoq7/)
 - [原配夫人](https://www.chuangyi1687.com/book/1hvgoq2/)
@@ -91,14 +91,12 @@
 - [始乱终弃清冷首辅后](https://www.chuangyi1687.com/book/1hvgoov/)
 - [九零首富的替嫁小媳妇](https://www.chuangyi1687.com/book/1hvgook/)
 - [高调装神，猥琐发育](https://www.chuangyi1687.com/book/1hvgooe/)
-- [假少爷不想活了](https://www.chuangyi1687.com/book/1hvgood/)
+- [假少爷离开后](https://www.chuangyi1687.com/book/1hvgood/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.chuangyi1687.com/book/1hvgoo9/)
 - [直男咒术师的限制级游戏](https://www.chuangyi1687.com/book/1hvgojn/)
 - [六零之成了卷王的妹妹](https://www.chuangyi1687.com/book/1hvgnbq/)
-- [绝不会喜欢五条君的！](https://www.chuangyi1687.com/book/1hvgnbm/)
 - [路人攻了主角攻［快穿］](https://www.chuangyi1687.com/book/1hvgn8t/)
 - [昭暮](https://www.chuangyi1687.com/book/1hvgdml/)
-- [古代种田养娃日常](https://www.chuangyi1687.com/book/1hvg29s/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.chuangyi1687.com/book/1hvg1gu/)
 - [上个鬼班[无限]](https://www.chuangyi1687.com/book/1hvf8kb/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.chuangyi1687.com/book/1hvf6d2/)
@@ -142,10 +140,9 @@
 - [妻主风流（女尊）](https://www.chuangyi1687.com/book/4vvev0/)
 - [多梦你一会儿](https://www.chuangyi1687.com/book/4vvakb/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.chuangyi1687.com/book/4vv9b5/)
-- [娶了女装心机太子](https://www.chuangyi1687.com/book/4vv8cb/)
 - [被糟蹋的老实人决定反击](https://www.chuangyi1687.com/book/4vv8ai/)
 - [韩团绿卡不想忍了](https://www.chuangyi1687.com/book/4vv68d/)
-- [八零恶毒后妈杀疯了](https://www.chuangyi1687.com/book/4vv4bi/)
+- [卷王后妈，八零养娃](https://www.chuangyi1687.com/book/4vv4bi/)
 - [村霸非要入赘受气包](https://www.chuangyi1687.com/book/4vv471/)
 - [这个位面归我了！[经营]](https://www.chuangyi1687.com/book/4vv3q9/)
 - [清冷丞相怀了死对头的崽](https://www.chuangyi1687.com/book/4vv3gj/)
@@ -171,7 +168,6 @@
 - [95美国贵族高中模拟](https://www.chuangyi1687.com/book/fvqb3/)
 - [五十年代港城日常](https://www.chuangyi1687.com/book/fvq8j/)
 - [开局绑定郭奉孝，谋定三国风云](https://www.chuangyi1687.com/book/fvq1o/)
-- [猫猫也要养家糊口](https://www.chuangyi1687.com/book/fvq05/)
 - [华夏神明震撼星际](https://www.chuangyi1687.com/book/fvpu1/)
 - [完蛋！被恨孕男包围了！](https://www.chuangyi1687.com/book/1j6f7/)
 - [海岛求生：生活玩家种田囤货](https://www.chuangyi1687.com/book/1j623/)

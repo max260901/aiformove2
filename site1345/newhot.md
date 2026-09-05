@@ -1,7 +1,7 @@
 
 # 探秘笔神阁小说-好看小说快速更新,页面清新流畅的免费小说网
 
-更新时间：2026-09-05 03:39:12
+更新时间：2026-09-06 03:40:04
 
 探秘笔神阁小说收录了大量受欢迎的小说作品，以极快的速度进行更新，并且保证用户在阅读时能够享受到清新流畅的页面体验。作为一个完全免费的小说网站，它深受广大网友的喜爱。
 
@@ -14,6 +14,7 @@
 - [禁止继承限制级雌君](https://www.tanmi818.com/book/977fha0/)
 - [清穿女回来后[天幕]](https://www.tanmi818.com/book/977fh9c/)
 - [等我吃腻了再倒闭可以吗](https://www.tanmi818.com/book/977fh93/)
+- [穿为龙傲天发妻后](https://www.tanmi818.com/book/977fh84/)
 - [自知之明](https://www.tanmi818.com/book/977fh6t/)
 - [[综英美]和亲友群穿哥谭以后](https://www.tanmi818.com/book/977fh6f/)
 - [修仙界都为我神魂颠倒](https://www.tanmi818.com/book/977ff78/)
@@ -33,9 +34,7 @@
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.tanmi818.com/book/977f54c/)
 - [我比反派先崩坏[快穿]](https://www.tanmi818.com/book/977f54b/)
 - [渡鬼](https://www.tanmi818.com/book/977f54a/)
-- [我的烧烤摊超美味[美食]](https://www.tanmi818.com/book/977f547/)
 - [cos温迪后玩到真崩铁了](https://www.tanmi818.com/book/977f0lt/)
-- [从异世界穿回来后](https://www.tanmi818.com/book/977f0f4/)
 - [我有嘉宾](https://www.tanmi818.com/book/977f06f/)
 - [娇气点怎么啦？［快穿］](https://www.tanmi818.com/book/977f03j/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.tanmi818.com/book/977evc5/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.tanmi818.com/book/977eac1/)
 - [昭暮](https://www.tanmi818.com/book/977e9hu/)
 - [你，后室管理员](https://www.tanmi818.com/book/977e6e7/)
-- [星际团宠小人鱼](https://www.tanmi818.com/book/977e669/)
 - [高调装神，猥琐发育](https://www.tanmi818.com/book/977dv7j/)
 - [伪装路人后成了反派首领](https://www.tanmi818.com/book/977docv/)
 - [穿成猫的咒术高专生活](https://www.tanmi818.com/book/977do23/)
@@ -305,7 +303,6 @@
 - [[封神]圣人生欲](https://www.tanmi818.com/book/977ca89/)
 - [贵族学院的直男跟班](https://www.tanmi818.com/book/977ca47/)
 - [废土猫猫求生指南](https://www.tanmi818.com/book/977c9uq/)
-- [多梦你一会儿](https://www.tanmi818.com/book/977c9u1/)
 - [被四皇错看成小动物后](https://www.tanmi818.com/book/977c9na/)
 - [[综英美]穿越后和小红鸟灵魂互换了](https://www.tanmi818.com/book/977c9j4/)
 - [奶奶蛋糕店[美食]](https://www.tanmi818.com/book/977c9hs/)
@@ -392,7 +389,6 @@
 - [小寡夫还有两幅面孔](https://www.tanmi818.com/book/977c3tr/)
 - [苦咒琉璃](https://www.tanmi818.com/book/977c3s0/)
 - [表白现场翻车后](https://www.tanmi818.com/book/977c3pc/)
-- [和前女友的心上人he了](https://www.tanmi818.com/book/977c3ou/)
 - [某柯学的正义伙伴](https://www.tanmi818.com/book/977c3lc/)
 - [放开那个黑暗哨兵！](https://www.tanmi818.com/book/977c3hv/)
 - [[足球]罗蜜第一志愿](https://www.tanmi818.com/book/977c3he/)
@@ -416,6 +412,7 @@
 - [救命！猫尾巴藏不住了](https://www.tanmi818.com/book/977c19s/)
 - [普通高中生，但兼职咒术师](https://www.tanmi818.com/book/977c196/)
 - [癫骨](https://www.tanmi818.com/book/977c14m/)
+- [被阴湿坏女人缠上后](https://www.tanmi818.com/book/977c139/)
 - [每天都在和太宰互换身体](https://www.tanmi818.com/book/977c11h/)
 - [穿成影后的作死前妻](https://www.tanmi818.com/book/977c0uv/)
 - [在重男兄弟间夹缝求生](https://www.tanmi818.com/book/977c0ur/)
@@ -428,6 +425,7 @@
 - [[足球]小小鸟堂堂来袭](https://www.tanmi818.com/book/977bndt/)
 - [盛夏晴浓](https://www.tanmi818.com/book/977bmgc/)
 - [幼崽假少爷选择回归寒门](https://www.tanmi818.com/book/977bm42/)
+- [欢迎来到重生点](https://www.tanmi818.com/book/977bk88/)
 - [青城玩家明明超强却过分谨慎](https://www.tanmi818.com/book/977bjb0/)
 - [好巧，你也是妹控？[综崩铁]](https://www.tanmi818.com/book/977biva/)
 - [侯府打工人](https://www.tanmi818.com/book/977bh7t/)

@@ -1,7 +1,7 @@
 
 # 书城小说网 - 全站免费无弹窗小说阅读平台
 
-更新时间：2026-09-05 03:37:25
+更新时间：2026-09-06 03:38:20
 
 书城小说网为您提供全站免费的小说阅读服务，支持全本小说在线浏览，承诺全程无广告弹窗干扰，是您理想的网络文学阅读选择。
 
@@ -10,6 +10,7 @@
 ## 最新小说
 - [等我吃腻了再倒闭可以吗](https://www.shucheng518.com/book/39m3nqu/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.shucheng518.com/book/39m3nqt/)
+- [穿为龙傲天发妻后](https://www.shucheng518.com/book/39m3npr/)
 - [这个替嫁让我来！](https://www.shucheng518.com/book/39m3npo/)
 - [清穿女回来后[天幕]](https://www.shucheng518.com/book/39m3npf/)
 - [全世界名为爱的恶意](https://www.shucheng518.com/book/39m3nos/)
@@ -33,9 +34,7 @@
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shucheng518.com/book/39m3bk1/)
 - [我比反派先崩坏[快穿]](https://www.shucheng518.com/book/39m3bja/)
 - [渡鬼](https://www.shucheng518.com/book/39m3bi7/)
-- [我的烧烤摊超美味[美食]](https://www.shucheng518.com/book/39m3bh5/)
 - [cos温迪后玩到真崩铁了](https://www.shucheng518.com/book/39m3754/)
-- [从异世界穿回来后](https://www.shucheng518.com/book/39m36up/)
 - [我有嘉宾](https://www.shucheng518.com/book/39m36nq/)
 - [娇气点怎么啦？［快穿］](https://www.shucheng518.com/book/39m36k1/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.shucheng518.com/book/39m35t0/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.shucheng518.com/book/39m2h06/)
 - [昭暮](https://www.shucheng518.com/book/39m2g6t/)
 - [你，后室管理员](https://www.shucheng518.com/book/39m2d0s/)
-- [星际团宠小人鱼](https://www.shucheng518.com/book/39m2crj/)
 - [高调装神，猥琐发育](https://www.shucheng518.com/book/39m25r8/)
 - [求求你们别吃了](https://www.shucheng518.com/book/39m1u94/)
 - [伪装路人后成了反派首领](https://www.shucheng518.com/book/39m1u3f/)
@@ -306,7 +304,6 @@
 - [金发室友有肌肤饥渴症](https://www.shucheng518.com/book/39m0gsp/)
 - [如何在玛丽苏包围圈中生存](https://www.shucheng518.com/book/39m0gpl/)
 - [[综英美]让我统治哥谭！！！](https://www.shucheng518.com/book/39m0gj3/)
-- [多梦你一会儿](https://www.shucheng518.com/book/39m0gdp/)
 - [好好做1](https://www.shucheng518.com/book/39m0g3n/)
 - [大美人怀了enigma上司的崽](https://www.shucheng518.com/book/39m0g2v/)
 - [[HP]我和救世主有个约会](https://www.shucheng518.com/book/39m0fur/)
@@ -359,7 +356,6 @@
 - [转生成为伊路米的双生姐姐](https://www.shucheng518.com/book/39m0cpv/)
 - [当了卧底的我发现遍地熟人](https://www.shucheng518.com/book/39m0cph/)
 - [你男朋友我接手了](https://www.shucheng518.com/book/39m0chd/)
-- [和前女友的心上人he了](https://www.shucheng518.com/book/39m0cgr/)
 - [变成鲛人了怎么办](https://www.shucheng518.com/book/39m0cfe/)
 - [三岁崽崽带龙王爸爸上综艺爆红](https://www.shucheng518.com/book/39m0cer/)
 - [炮灰今天也在加班[快穿]](https://www.shucheng518.com/book/39m0cd2/)
@@ -403,6 +399,7 @@
 - [让我再吃一口](https://www.shucheng518.com/book/39m096v/)
 - [穿成影后的作死前妻](https://www.shucheng518.com/book/39m096j/)
 - [青空来信](https://www.shucheng518.com/book/39m095h/)
+- [被阴湿坏女人缠上后](https://www.shucheng518.com/book/39m094e/)
 - [癫骨](https://www.shucheng518.com/book/39m091h/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.shucheng518.com/book/39m08og/)
 - [失忆后，和五条激情互演](https://www.shucheng518.com/book/39m08he/)
@@ -428,6 +425,7 @@
 - [幼崽假少爷选择回归寒门](https://www.shucheng518.com/book/39lvrvn/)
 - [盛夏晴浓](https://www.shucheng518.com/book/39lvrlu/)
 - [[足球]小小鸟堂堂来袭](https://www.shucheng518.com/book/39lvrhg/)
+- [欢迎来到重生点](https://www.shucheng518.com/book/39lvpqp/)
 - [好巧，你也是妹控？[综崩铁]](https://www.shucheng518.com/book/39lvpdq/)
 - [青城玩家明明超强却过分谨慎](https://www.shucheng518.com/book/39lvp1q/)
 - [侯府打工人](https://www.shucheng518.com/book/39lvogi/)

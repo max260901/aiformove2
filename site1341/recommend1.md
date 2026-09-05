@@ -1,13 +1,15 @@
 
 # 春日书屋-免费热门小说在线阅读平台|晋江文学|全本免费畅读
 
-更新时间：2026-09-05 03:36:40
+更新时间：2026-09-06 03:37:35
 
 春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！
 
 - [春日书屋小说](https://www.shenyuanhg.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.shenyuanhg.com/book/7gie9ja/)
+- [和八个男人在极寒游戏求生](https://www.shenyuanhg.com/book/7gie9j9/)
 - [魔改剧本后我爆火了[娱乐圈]](https://www.shenyuanhg.com/book/7gie9j8/)
 - [前妻她肯定会后悔](https://www.shenyuanhg.com/book/7gie9j5/)
 - [好心的俄罗斯人](https://www.shenyuanhg.com/book/7gie9j4/)
@@ -15,7 +17,6 @@
 - [爱情的肯定句](https://www.shenyuanhg.com/book/7gie9iu/)
 - [欲加之罪](https://www.shenyuanhg.com/book/7gie9it/)
 - [病美人重生日记](https://www.shenyuanhg.com/book/7gie9iq/)
-- [自知之明](https://www.shenyuanhg.com/book/7gie9io/)
 - [清穿女回来后[天幕]](https://www.shenyuanhg.com/book/7gie9il/)
 - [谁都不爱的和亲公主](https://www.shenyuanhg.com/book/7gie9ii/)
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.shenyuanhg.com/book/7gie9ig/)
@@ -91,7 +92,7 @@
 - [完蛋！被恨孕男包围了！](https://www.shenyuanhg.com/book/7gid7dp/)
 - [昭暮](https://www.shenyuanhg.com/book/7gid43p/)
 - [从维多利亚时代开始](https://www.shenyuanhg.com/book/7gid3gl/)
-- [假少爷不想活了](https://www.shenyuanhg.com/book/7gict1j/)
+- [假少爷离开后](https://www.shenyuanhg.com/book/7gict1j/)
 - [食明](https://www.shenyuanhg.com/book/7gickgh/)
 - [诡话第一boss](https://www.shenyuanhg.com/book/7gichfp/)
 - [专业女配的自我修养（快穿）](https://www.shenyuanhg.com/book/7gicgko/)
@@ -129,7 +130,7 @@
 - [如何嫁给当朝首辅](https://www.shenyuanhg.com/book/7giavbe/)
 - [五条老师与他的封建妻子](https://www.shenyuanhg.com/book/7giat86/)
 - [我187了，你敢见我吗？](https://www.shenyuanhg.com/book/7giaska/)
-- [八零恶毒后妈杀疯了](https://www.shenyuanhg.com/book/7giar0t/)
+- [卷王后妈，八零养娃](https://www.shenyuanhg.com/book/7giar0t/)
 - [和姐姐的前女友欢愉后](https://www.shenyuanhg.com/book/7giaqvd/)
 - [我司艺人永不塌房](https://www.shenyuanhg.com/book/7giaopv/)
 - [[封神]圣人生欲](https://www.shenyuanhg.com/book/7giambt/)
@@ -138,14 +139,12 @@
 - [在重生文里考科举](https://www.shenyuanhg.com/book/7giag30/)
 - [妻主风流（女尊）](https://www.shenyuanhg.com/book/7giacih/)
 - [韩团绿卡不想忍了](https://www.shenyuanhg.com/book/7giabok/)
-- [[综英美]让我统治哥谭！！！](https://www.shenyuanhg.com/book/7gia9oi/)
 - [死亡悖论[无限流]](https://www.shenyuanhg.com/book/7gia9mv/)
 - [心动嫌疑人](https://www.shenyuanhg.com/book/7gia7du/)
 - [这个位面归我了！[经营]](https://www.shenyuanhg.com/book/7gia7dd/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.shenyuanhg.com/book/7gia6p4/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.shenyuanhg.com/book/7gia6f2/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.shenyuanhg.com/book/7gia5p6/)
-- [娶了女装心机太子](https://www.shenyuanhg.com/book/7gia5dc/)
 - [死遁的亡夫们都回来了](https://www.shenyuanhg.com/book/7gia3bc/)
 - [村霸非要入赘受气包](https://www.shenyuanhg.com/book/7gia2pu/)
 - [被糟蹋的老实人决定反击](https://www.shenyuanhg.com/book/7gia2nf/)
@@ -163,13 +162,10 @@
 - [我有一座安全城](https://www.shenyuanhg.com/book/7gi8nsa/)
 - [巨物致富：回乡开钓场](https://www.shenyuanhg.com/book/7gi8n56/)
 - [全民求生:从小木屋到魔法农场](https://www.shenyuanhg.com/book/7gi8n4d/)
-- [古代种田养娃日常](https://www.shenyuanhg.com/book/7gi8n0h/)
 - [清澈女大的六零年代](https://www.shenyuanhg.com/book/7gi8mv3/)
-- [绝不会喜欢五条君的！](https://www.shenyuanhg.com/book/7gi8mpv/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shenyuanhg.com/book/7gi8mm1/)
 - [海岛求生：生活玩家种田囤货](https://www.shenyuanhg.com/book/7gi8mlr/)
 - [六零之成了卷王的妹妹](https://www.shenyuanhg.com/book/7gi8mkk/)
-- [猫猫也要养家糊口](https://www.shenyuanhg.com/book/7gi8mdp/)
 - [高门小婢](https://www.shenyuanhg.com/book/7gi8mbh/)
 - [我是唯一地上神国](https://www.shenyuanhg.com/book/7gi8mac/)
 - [成为养成系练习生后](https://www.shenyuanhg.com/book/7gi8m6o/)

@@ -1,13 +1,15 @@
 
 # 泡泡中文小说-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-05 03:43:36
+更新时间：2026-09-06 03:44:25
 
 泡泡中文小说是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
 - [泡泡中文小说](https://www.xiaoshuo288.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.xiaoshuo288.com/book/dm3vde/)
+- [和八个男人在极寒游戏求生](https://www.xiaoshuo288.com/book/dm3vdd/)
 - [在中世纪做奴隶](https://www.xiaoshuo288.com/book/dm3vdb/)
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.xiaoshuo288.com/book/dm3vda/)
 - [双生子反派的端水抑郁妈[九零]](https://www.xiaoshuo288.com/book/dm3vd6/)
@@ -64,7 +66,6 @@
 - [爱情的肯定句](https://www.xiaoshuo288.com/book/dm3v95/)
 - [娘娘扶摇直上](https://www.xiaoshuo288.com/book/dm3v92/)
 - [魔改剧本后我爆火了[娱乐圈]](https://www.xiaoshuo288.com/book/dm3v91/)
-- [自知之明](https://www.xiaoshuo288.com/book/dm3v8u/)
 - [[洪荒]成为太清妹妹后](https://www.xiaoshuo288.com/book/dm3v8t/)
 - [万人嫌从末世回来了](https://www.xiaoshuo288.com/book/dm3v8s/)
 - [八零法医，带全家致富](https://www.xiaoshuo288.com/book/dm3v8m/)
@@ -124,9 +125,8 @@
 - [[封神]圣人生欲](https://www.xiaoshuo288.com/book/dm0os3/)
 - [如何嫁给当朝首辅](https://www.xiaoshuo288.com/book/dm0ojh/)
 - [多梦你一会儿](https://www.xiaoshuo288.com/book/dm0oh0/)
-- [[综英美]让我统治哥谭！！！](https://www.xiaoshuo288.com/book/dm0od3/)
 - [和治君只是饭搭子的关系](https://www.xiaoshuo288.com/book/dm0o7o/)
-- [八零恶毒后妈杀疯了](https://www.xiaoshuo288.com/book/dm0ls5/)
+- [卷王后妈，八零养娃](https://www.xiaoshuo288.com/book/dm0ls5/)
 - [五条老师与他的封建妻子](https://www.xiaoshuo288.com/book/dm0ll1/)
 - [在魔法贵族学院当白月光](https://www.xiaoshuo288.com/book/dm0li6/)
 - [我187了，你敢见我吗？](https://www.xiaoshuo288.com/book/dm0kbg/)
@@ -144,7 +144,6 @@
 - [带清冷女主回乡养螃蟹[种田]](https://www.xiaoshuo288.com/book/dlvuh1/)
 - [趁她之危](https://www.xiaoshuo288.com/book/dlvu8e/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.xiaoshuo288.com/book/dlvrvl/)
-- [娶了女装心机太子](https://www.xiaoshuo288.com/book/dlvrd9/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.xiaoshuo288.com/book/dlvr1s/)
 - [村霸非要入赘受气包](https://www.xiaoshuo288.com/book/dlvqrf/)
 - [清冷丞相怀了死对头的崽](https://www.xiaoshuo288.com/book/dlvqi5/)
@@ -156,9 +155,7 @@
 - [爱好和平但狂拆机甲](https://www.xiaoshuo288.com/book/dlva49/)
 - [成为养成系练习生后](https://www.xiaoshuo288.com/book/dlue8s/)
 - [六零之成了卷王的妹妹](https://www.xiaoshuo288.com/book/dlue8h/)
-- [古代种田养娃日常](https://www.xiaoshuo288.com/book/dlue51/)
-- [猫猫也要养家糊口](https://www.xiaoshuo288.com/book/dludio/)
-- [假少爷不想活了](https://www.xiaoshuo288.com/book/dludh6/)
+- [假少爷离开后](https://www.xiaoshuo288.com/book/dludh6/)
 - [大瑛弟国](https://www.xiaoshuo288.com/book/dludfv/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.xiaoshuo288.com/book/dludeh/)
 - [全民求生:从小木屋到魔法农场](https://www.xiaoshuo288.com/book/dlucs6/)
@@ -166,7 +163,6 @@
 - [95美国贵族高中模拟](https://www.xiaoshuo288.com/book/dlucmf/)
 - [直男咒术师的限制级游戏](https://www.xiaoshuo288.com/book/dlucec/)
 - [五十年代港城日常](https://www.xiaoshuo288.com/book/dlucdh/)
-- [绝不会喜欢五条君的！](https://www.xiaoshuo288.com/book/dluc2l/)
 - [巨物致富：回乡开钓场](https://www.xiaoshuo288.com/book/dlubuf/)
 - [高门小婢](https://www.xiaoshuo288.com/book/dlubsg/)
 - [清澈女大的六零年代](https://www.xiaoshuo288.com/book/dlubqs/)
