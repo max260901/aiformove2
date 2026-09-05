@@ -1,13 +1,15 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-05 03:35:49
+更新时间：2026-09-06 03:36:45
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
 - [七步阁](https://www.revwarny.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.revwarny.com/book/3sgl7sl/)
+- [和八个男人在极寒游戏求生](https://www.revwarny.com/book/3sgl7sk/)
 - [占有欲Daddy是我老公？](https://www.revwarny.com/book/3sgl7sj/)
 - [你让魔王组建勇者小队？](https://www.revwarny.com/book/3sgl7si/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.revwarny.com/book/3sgl7sh/)
@@ -36,7 +38,6 @@
 - [[原神]魔法使恋爱指南](https://www.revwarny.com/book/3sgl7rq/)
 - [等我吃腻了再倒闭可以吗](https://www.revwarny.com/book/3sgl7rp/)
 - [强取师尊后](https://www.revwarny.com/book/3sgl7ro/)
-- [自知之明](https://www.revwarny.com/book/3sgl7rn/)
 - [恶毒男配只想躺平](https://www.revwarny.com/book/3sgl7rm/)
 - [全民求生，但剑三](https://www.revwarny.com/book/3sgl7rl/)
 - [穿咒术，但杀猴现场](https://www.revwarny.com/book/3sgl7rk/)
@@ -81,7 +82,6 @@
 - [国运求生：我的金手指是生命树](https://www.revwarny.com/book/3sgl7qc/)
 - [漫画取材所引发的修罗场](https://www.revwarny.com/book/3sgl7qb/)
 - [魔改剧本后我爆火了[娱乐圈]](https://www.revwarny.com/book/3sgl7qa/)
-- [[综英美]让我统治哥谭！！！](https://www.revwarny.com/book/3sgl7q2/)
 - [我司艺人永不塌房](https://www.revwarny.com/book/3sgl7nn/)
 - [我们生活玩家是这样的](https://www.revwarny.com/book/3sgl7mm/)
 - [九零首富的替嫁小媳妇](https://www.revwarny.com/book/3sgl7kr/)
@@ -91,14 +91,12 @@
 - [原配夫人](https://www.revwarny.com/book/3sgl7k6/)
 - [始乱终弃清冷首辅后](https://www.revwarny.com/book/3sgl7j9/)
 - [高调装神，猥琐发育](https://www.revwarny.com/book/3sgl7ih/)
-- [假少爷不想活了](https://www.revwarny.com/book/3sgl7ie/)
+- [假少爷离开后](https://www.revwarny.com/book/3sgl7ie/)
 - [直男咒术师的限制级游戏](https://www.revwarny.com/book/3sgl7hr/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.revwarny.com/book/3sgl7h0/)
-- [绝不会喜欢五条君的！](https://www.revwarny.com/book/3sgl66a/)
 - [六零之成了卷王的妹妹](https://www.revwarny.com/book/3sgl65m/)
 - [路人攻了主角攻［快穿］](https://www.revwarny.com/book/3sgl64a/)
 - [昭暮](https://www.revwarny.com/book/3sgksji/)
-- [古代种田养娃日常](https://www.revwarny.com/book/3sgkh44/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.revwarny.com/book/3sgkga2/)
 - [[足球]足坛人生模拟器](https://www.revwarny.com/book/3sgjnma/)
 - [上个鬼班[无限]](https://www.revwarny.com/book/3sgjfst/)
@@ -142,11 +140,10 @@
 - [妻主风流（女尊）](https://www.revwarny.com/book/cefqnm/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.revwarny.com/book/cefq6s/)
 - [多梦你一会儿](https://www.revwarny.com/book/cefnl1/)
-- [娶了女装心机太子](https://www.revwarny.com/book/cefn24/)
 - [韩团绿卡不想忍了](https://www.revwarny.com/book/cefl2f/)
 - [被糟蹋的老实人决定反击](https://www.revwarny.com/book/cefkr4/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.revwarny.com/book/cefkad/)
-- [八零恶毒后妈杀疯了](https://www.revwarny.com/book/cefjko/)
+- [卷王后妈，八零养娃](https://www.revwarny.com/book/cefjko/)
 - [清冷丞相怀了死对头的崽](https://www.revwarny.com/book/cefj26/)
 - [这个位面归我了！[经营]](https://www.revwarny.com/book/cefiu6/)
 - [村霸非要入赘受气包](https://www.revwarny.com/book/cefi81/)
@@ -161,7 +158,6 @@
 - [权宋一只统](https://www.revwarny.com/book/cef6ak/)
 - [清澈女大的六零年代](https://www.revwarny.com/book/17r3v0/)
 - [95美国贵族高中模拟](https://www.revwarny.com/book/17r3rh/)
-- [猫猫也要养家糊口](https://www.revwarny.com/book/17r3ji/)
 - [全民求生:从小木屋到魔法农场](https://www.revwarny.com/book/17r37s/)
 - [开局绑定郭奉孝，谋定三国风云](https://www.revwarny.com/book/17r331/)
 - [大瑛弟国](https://www.revwarny.com/book/17r330/)

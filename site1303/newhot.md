@@ -1,7 +1,7 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-09-05 03:33:59
+更新时间：2026-09-06 03:34:55
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。
 
@@ -9,25 +9,28 @@
 
 ## 最新小说
 - [禁止继承限制级雌君](https://www.panyuplastic.com/book/6h8ug37/)
+- [穿为龙傲天发妻后](https://www.panyuplastic.com/book/6h8ug2e/)
 - [重组家庭，但美校搞基！](https://www.panyuplastic.com/book/6h8ug1n/)
 - [清穿女回来后[天幕]](https://www.panyuplastic.com/book/6h8ug17/)
 - [被俄罗斯小疯子娇养了](https://www.panyuplastic.com/book/6h8ug15/)
 - [[全职高手]带着魔性美貌穿越有什么用](https://www.panyuplastic.com/book/6h8ug0s/)
+- [何至于此](https://www.panyuplastic.com/book/6h8ug0r/)
 - [自知之明](https://www.panyuplastic.com/book/6h8ug0q/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.panyuplastic.com/book/6h8ug0c/)
 - [小虫的不正当职业](https://www.panyuplastic.com/book/6h8ufvi/)
 - [柯学剧本杀，但恋爱流打法](https://www.panyuplastic.com/book/6h8ufuq/)
 - [等我吃腻了再倒闭可以吗](https://www.panyuplastic.com/book/6h8ufup/)
 - [小猫商店，喜欢您来！](https://www.panyuplastic.com/book/6h8ufun/)
+- [丧尸老婆喂养日记](https://www.panyuplastic.com/book/6h8ufuj/)
 - [渡鬼](https://www.panyuplastic.com/book/6h8ufuh/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.panyuplastic.com/book/6h8ufu8/)
 - [全世界名为爱的恶意](https://www.panyuplastic.com/book/6h8ufu7/)
 - [被豪门封建长兄娇养了](https://www.panyuplastic.com/book/6h8ufu1/)
+- [书呆子扮演渣攻翻车【快穿】](https://www.panyuplastic.com/book/6h8uftf/)
 - [全天下都在求太子殿下别死！](https://www.panyuplastic.com/book/6h8uft5/)
 - [每晚在梦里当暴君](https://www.panyuplastic.com/book/6h8ufsp/)
 - [李玉灯](https://www.panyuplastic.com/book/6h8ufs9/)
 - [豪门养子怀了大哥的崽](https://www.panyuplastic.com/book/6h8ufs1/)
-- [我的烧烤摊超美味[美食]](https://www.panyuplastic.com/book/6h8ufrr/)
 - [就算是龙傲天也不可以[快穿]](https://www.panyuplastic.com/book/6h8ufrq/)
 - [[综英美]和亲友群穿哥谭以后](https://www.panyuplastic.com/book/6h8ufrf/)
 - [矩阵干扰](https://www.panyuplastic.com/book/6h8ufre/)
@@ -40,7 +43,6 @@
 - [法外狂猫](https://www.panyuplastic.com/book/6h8ufqi/)
 - [[足球]小小鸟堂堂来袭](https://www.panyuplastic.com/book/6h8ufqf/)
 - [和港城大小姐先婚后爱了](https://www.panyuplastic.com/book/6h8ufqa/)
-- [星际团宠小人鱼](https://www.panyuplastic.com/book/6h8ufpt/)
 - [侯府打工人](https://www.panyuplastic.com/book/6h8ufpp/)
 - [咦？我爸爸复活啦](https://www.panyuplastic.com/book/6h8ufpo/)
 - [躲避原书剧情五年后](https://www.panyuplastic.com/book/6h8ufpg/)
@@ -75,7 +77,7 @@
 - [刀子精手心的人偶崽崽](https://www.panyuplastic.com/book/6h8ueb6/)
 - [我不可能舔一个漂亮捞子](https://www.panyuplastic.com/book/6h8ueav/)
 - [昭暮](https://www.panyuplastic.com/book/6h8ueag/)
-- [从异世界穿回来后](https://www.panyuplastic.com/book/6h8uea7/)
+- [欢迎来到重生点](https://www.panyuplastic.com/book/6h8ue9t/)
 - [阴郁路人不想被喜欢](https://www.panyuplastic.com/book/6h8ue9e/)
 - [善逸拒绝成为咒术师](https://www.panyuplastic.com/book/6h8ue98/)
 - [微臣怜惜公主](https://www.panyuplastic.com/book/6h8ta08/)
@@ -85,8 +87,6 @@
 - [被双胞胎竹马轮番娇养](https://www.panyuplastic.com/book/6h8t9u4/)
 - [哥你不能不要我](https://www.panyuplastic.com/book/6h8t6e1/)
 - [逝水](https://www.panyuplastic.com/book/6h8t6d2/)
-- [和前女友的心上人he了](https://www.panyuplastic.com/book/6h8t6ct/)
-- [多梦你一会儿](https://www.panyuplastic.com/book/6h8t6cr/)
 - [我有嘉宾](https://www.panyuplastic.com/book/6h8t6cf/)
 - [[足球]罗蜜第一志愿](https://www.panyuplastic.com/book/6h8t6c2/)
 - [这谁的沙雕二次元心声！](https://www.panyuplastic.com/book/6h8t68h/)
@@ -130,6 +130,7 @@
 - [龙傲天未婚妻不退婚了](https://www.panyuplastic.com/book/6h8ro5n/)
 - [我靠玛丽苏系统伪装神女](https://www.panyuplastic.com/book/6h8ro23/)
 - [汉武帝戾太子什么含金量](https://www.panyuplastic.com/book/6h8ro0s/)
+- [被阴湿坏女人缠上后](https://www.panyuplastic.com/book/6h8rntp/)
 - [cos穿，但美强惨刀子精](https://www.panyuplastic.com/book/6h8rnqg/)
 - [虫族治愈师，但恐虫](https://www.panyuplastic.com/book/6h8rncd/)
 - [这死beta老说我们不可能](https://www.panyuplastic.com/book/6h8rna0/)

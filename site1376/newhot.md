@@ -1,13 +1,19 @@
 
 # 零点看书吧-书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-05 03:26:29
+更新时间：2026-09-06 03:27:22
 
 零点看书吧是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节。作为无弹窗的小说阅读平台，零点看书吧成为网络小说爱好者必备的选择。
 
 - [零点看书吧](https://www.gjnbgb.com/)
 
 ## 最新小说
+- [修仙界都为我神魂颠倒](https://www.gjnbgb.com/book/2s9t997/)
+- [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.gjnbgb.com/book/2s9t964/)
+- [穿成年代文奇葩前妻](https://www.gjnbgb.com/book/2s9t91v/)
+- [限制文中的社畜女beta](https://www.gjnbgb.com/book/2s9t8lq/)
+- [穿成漫画反派的我又做错了什么](https://www.gjnbgb.com/book/2s9t89p/)
+- [[综英美]蝙蝠崽但脆皮](https://www.gjnbgb.com/book/2s9t80v/)
 - [这个替嫁让我来！](https://www.gjnbgb.com/book/2s9t7jr/)
 - [我拿的可是反派剧本](https://www.gjnbgb.com/book/2s9t7bv/)
 - [丧尸王有什么坏心思？](https://www.gjnbgb.com/book/2s9t6su/)
@@ -15,6 +21,7 @@
 - [自知之明](https://www.gjnbgb.com/book/2s9t5dv/)
 - [等我吃腻了再倒闭可以吗](https://www.gjnbgb.com/book/2s9t5d2/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.gjnbgb.com/book/2s9t5c2/)
+- [穿为龙傲天发妻后](https://www.gjnbgb.com/book/2s9t5bs/)
 - [网球带给齐木的灾难](https://www.gjnbgb.com/book/2s9t5bi/)
 - [清穿女回来后[天幕]](https://www.gjnbgb.com/book/2s9t5bg/)
 - [全世界名为爱的恶意](https://www.gjnbgb.com/book/2s9t5b0/)
@@ -29,7 +36,6 @@
 - [阴郁路人不想被喜欢](https://www.gjnbgb.com/book/2s9sq63/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.gjnbgb.com/book/2s9spet/)
 - [不义世界都是我马甲[综英美]](https://www.gjnbgb.com/book/2s9sp9k/)
-- [从异世界穿回来后](https://www.gjnbgb.com/book/2s9souq/)
 - [我有嘉宾](https://www.gjnbgb.com/book/2s9socc/)
 - [[综武侠]风流](https://www.gjnbgb.com/book/2s9snmc/)
 - [孤独症崽崽穿越到狗血爽文里[穿书]](https://www.gjnbgb.com/book/2s9smhf/)
@@ -38,7 +44,6 @@
 - [怪谈小镇游玩指南[无限]](https://www.gjnbgb.com/book/2s9skbk/)
 - [离开那个混蛋后](https://www.gjnbgb.com/book/2s9sjfe/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.gjnbgb.com/book/2s9shih/)
-- [我的烧烤摊超美味[美食]](https://www.gjnbgb.com/book/2s9shgh/)
 - [渡鬼](https://www.gjnbgb.com/book/2s9shfh/)
 - [穿成反派的亡夫后[虫族]](https://www.gjnbgb.com/book/2s9sge2/)
 - [氪成酒厂股东了怎么办](https://www.gjnbgb.com/book/2s9sg4h/)
@@ -262,7 +267,6 @@
 - [炮灰的我该如何上位？](https://www.gjnbgb.com/book/2s9q87b/)
 - [退圈后，我靠职场综艺火爆全网](https://www.gjnbgb.com/book/2s9q83v/)
 - [重回被拐那一天[千禧年代]](https://www.gjnbgb.com/book/2s9q832/)
-- [多梦你一会儿](https://www.gjnbgb.com/book/2s9q82r/)
 - [小亲王他不是吉祥物](https://www.gjnbgb.com/book/2s9q7p3/)
 - [娇气包在无限游戏被坏男人骗](https://www.gjnbgb.com/book/2s9q7fn/)
 - [挚友和我穿越后分了阵营](https://www.gjnbgb.com/book/2s9q7cd/)
@@ -341,7 +345,6 @@
 - [女帝起家前录](https://www.gjnbgb.com/book/2s9q192/)
 - [白月光拒绝拯救反派](https://www.gjnbgb.com/book/2s9q17r/)
 - [从伟大航道到黑暗大陆](https://www.gjnbgb.com/book/2s9q155/)
-- [和前女友的心上人he了](https://www.gjnbgb.com/book/2s9q12n/)
 - [[综英美]忠诚的地球迎来了伟大的开拓者](https://www.gjnbgb.com/book/2s9q121/)
 - [逆序布鲁斯的好大儿](https://www.gjnbgb.com/book/2s9q104/)
 - [银发死鱼眼也要打排球](https://www.gjnbgb.com/book/2s9q0uh/)
@@ -393,6 +396,7 @@
 - [虫族治愈师，但恐虫](https://www.gjnbgb.com/book/2s9ptm4/)
 - [青空来信](https://www.gjnbgb.com/book/2s9ptm2/)
 - [神之子与排球的适配性](https://www.gjnbgb.com/book/2s9pt3r/)
+- [被阴湿坏女人缠上后](https://www.gjnbgb.com/book/2s9pt05/)
 - [举朝上下为我的神仙人设头疼中](https://www.gjnbgb.com/book/2s9pspc/)
 - [我最讨厌打球了！](https://www.gjnbgb.com/book/2s9psms/)
 - [请问夫君你哪位](https://www.gjnbgb.com/book/2s9psll/)
@@ -425,6 +429,7 @@
 - [撕毁女配剧本的我被神之子读心了](https://www.gjnbgb.com/book/2s9pl2a/)
 - [矩阵干扰](https://www.gjnbgb.com/book/2s9pkov/)
 - [柯学剧本杀，但恋爱流打法](https://www.gjnbgb.com/book/2s9pk1s/)
+- [欢迎来到重生点](https://www.gjnbgb.com/book/2s9pjv2/)
 - [盛夏晴浓](https://www.gjnbgb.com/book/2s9pj90/)
 - [法外狂猫](https://www.gjnbgb.com/book/2s9pip8/)
 - [好兄弟暴富后非要跟我结婚](https://www.gjnbgb.com/book/2s9phnb/)
@@ -443,7 +448,6 @@
 - [[封神]圣人生欲](https://www.gjnbgb.com/book/2s9nom2/)
 - [被四皇错看成小动物后](https://www.gjnbgb.com/book/2s9noj3/)
 - [你，后室管理员](https://www.gjnbgb.com/book/2s9nnk3/)
-- [星际团宠小人鱼](https://www.gjnbgb.com/book/2s9nn9s/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1376/index.md)

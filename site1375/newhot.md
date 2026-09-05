@@ -1,16 +1,23 @@
 
 # 精英文学 - 书友最值得收藏的小说免费阅读网
 
-更新时间：2026-09-05 03:42:50
+更新时间：2026-09-06 03:43:39
 
 精英文学为您提供一个干净舒适的阅读环境，作为书友最值得收藏的小说免费阅读网之一，我们致力于打造无广告干扰的最佳在线阅读体验。
 
 - [精英文学](https://www.xcposji.com/)
 
 ## 最新小说
+- [修仙界都为我神魂颠倒](https://www.xcposji.com/book/jnmvie/)
+- [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.xcposji.com/book/jnmveb/)
+- [穿成年代文奇葩前妻](https://www.xcposji.com/book/jnmvbk/)
+- [限制文中的社畜女beta](https://www.xcposji.com/book/jnmv0h/)
+- [穿成漫画反派的我又做错了什么](https://www.xcposji.com/book/jnmuj0/)
+- [[综英美]蝙蝠崽但脆皮](https://www.xcposji.com/book/jnmu8n/)
 - [这个替嫁让我来！](https://www.xcposji.com/book/jnmtrj/)
 - [我拿的可是反派剧本](https://www.xcposji.com/book/jnmtlq/)
 - [丧尸王有什么坏心思？](https://www.xcposji.com/book/jnmt5r/)
+- [穿为龙傲天发妻后](https://www.xcposji.com/book/jnmrpc/)
 - [禁止继承限制级雌君](https://www.xcposji.com/book/jnmroj/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.xcposji.com/book/jnmro0/)
 - [自知之明](https://www.xcposji.com/book/jnmrns/)
@@ -29,7 +36,6 @@
 - [阴郁路人不想被喜欢](https://www.xcposji.com/book/jnmgdu/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.xcposji.com/book/jnmfq3/)
 - [不义世界都是我马甲[综英美]](https://www.xcposji.com/book/jnmfjc/)
-- [从异世界穿回来后](https://www.xcposji.com/book/jnmfan/)
 - [我有嘉宾](https://www.xcposji.com/book/jnmeoo/)
 - [[综武侠]风流](https://www.xcposji.com/book/jnmdsv/)
 - [孤独症崽崽穿越到狗血爽文里[穿书]](https://www.xcposji.com/book/jnmcpg/)
@@ -37,7 +43,6 @@
 - [开局给李世民盘点安史之乱](https://www.xcposji.com/book/jnmbkf/)
 - [怪谈小镇游玩指南[无限]](https://www.xcposji.com/book/jnmajq/)
 - [离开那个混蛋后](https://www.xcposji.com/book/jnm9sn/)
-- [我的烧烤摊超美味[美食]](https://www.xcposji.com/book/jnm7v8/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xcposji.com/book/jnm7v4/)
 - [渡鬼](https://www.xcposji.com/book/jnm7p1/)
 - [穿成反派的亡夫后[虫族]](https://www.xcposji.com/book/jnm6n8/)
@@ -248,7 +253,6 @@
 - [反派的病弱白月光重生了](https://www.xcposji.com/book/jnjvtg/)
 - [少女妄想症](https://www.xcposji.com/book/jnjvsg/)
 - [当魔修反派穿成治愈系[穿书]](https://www.xcposji.com/book/jnjvml/)
-- [多梦你一会儿](https://www.xcposji.com/book/jnjve1/)
 - [恶毒女配是绝色美人[快穿]](https://www.xcposji.com/book/jnjvdk/)
 - [人在综漫，但崩铁马甲](https://www.xcposji.com/book/jnjv9j/)
 - [娇气包在无限游戏被坏男人骗](https://www.xcposji.com/book/jnjv7s/)
@@ -333,7 +337,6 @@
 - [冷傲上司绑定娇妻系统后](https://www.xcposji.com/book/jnjnvd/)
 - [在横滨横行霸道的那些年](https://www.xcposji.com/book/jnjnur/)
 - [白月光拒绝拯救反派](https://www.xcposji.com/book/jnjntg/)
-- [和前女友的心上人he了](https://www.xcposji.com/book/jnjnrq/)
 - [朱棣造反被朱元璋表扬这事[直播剧透]](https://www.xcposji.com/book/jnjnq5/)
 - [瓮中惊春](https://www.xcposji.com/book/jnjnpq/)
 - [[综英美]萌萌小蜘蛛在哥谭](https://www.xcposji.com/book/jnjnl5/)
@@ -413,6 +416,7 @@
 - [救命！猫尾巴藏不住了](https://www.xcposji.com/book/jnjhn6/)
 - [穿成影后的作死前妻](https://www.xcposji.com/book/jnjhm6/)
 - [癫骨](https://www.xcposji.com/book/jnjhjh/)
+- [被阴湿坏女人缠上后](https://www.xcposji.com/book/jnjhbr/)
 - [虫族治愈师，但恐虫](https://www.xcposji.com/book/jnjhbh/)
 - [青山不渡](https://www.xcposji.com/book/jnjh9g/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.xcposji.com/book/jnjgrv/)
@@ -426,6 +430,7 @@
 - [矩阵干扰](https://www.xcposji.com/book/jnjaka/)
 - [盛夏晴浓](https://www.xcposji.com/book/jnjacl/)
 - [法外狂猫](https://www.xcposji.com/book/jnjab4/)
+- [欢迎来到重生点](https://www.xcposji.com/book/jnj9mc/)
 - [柯学剧本杀，但恋爱流打法](https://www.xcposji.com/book/jnj8v7/)
 - [好兄弟暴富后非要跟我结婚](https://www.xcposji.com/book/jnj6ob/)
 - [和室友他爸恋爱后](https://www.xcposji.com/book/jnj4j9/)
@@ -437,7 +442,6 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.xcposji.com/book/jnisbl/)
 - [自大狂](https://www.xcposji.com/book/jnio84/)
 - [暴君偏头痛](https://www.xcposji.com/book/jniif0/)
-- [星际团宠小人鱼](https://www.xcposji.com/book/jnhgbu/)
 - [纯爱宇智波基本恋爱法](https://www.xcposji.com/book/jnhg4f/)
 - [[封神]圣人生欲](https://www.xcposji.com/book/jnhf96/)
 - [被四皇错看成小动物后](https://www.xcposji.com/book/jnhekj/)

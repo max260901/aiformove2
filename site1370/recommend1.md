@@ -1,15 +1,16 @@
 
 # 燃文故事小说网 - 无弹窗全本小说免费阅读
 
-更新时间：2026-09-05 03:27:31
+更新时间：2026-09-06 03:28:26
 
 燃文故事小说网提供无弹窗干扰的小说阅读体验，支持全本小说在线免费阅读。
 
 - [燃文故事小说网](https://www.gushi687.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.gushi687.com/book/63qvddf/)
+- [揣崽丧夫后被情敌强娶了](https://www.gushi687.com/book/63qvdde/)
 - [恐游作精女配求生指南](https://www.gushi687.com/book/63qvddd/)
-- [自知之明](https://www.gushi687.com/book/63qvdda/)
 - [[洪荒]成为太清妹妹后](https://www.gushi687.com/book/63qvdd9/)
 - [魔法种田，从退队经营农场开始](https://www.gushi687.com/book/63qvdd7/)
 - [爱情的肯定句](https://www.gushi687.com/book/63qvdd5/)
@@ -120,14 +121,13 @@
 - [漂亮女配是万人迷［快穿］](https://www.gushi687.com/book/63qschs/)
 - [我有一座地下城](https://www.gushi687.com/book/63qsbrp/)
 - [和贵志君是世界第一的好朋友](https://www.gushi687.com/book/63qs7nc/)
-- [[综英美]让我统治哥谭！！！](https://www.gushi687.com/book/63qs7dv/)
 - [[封神]圣人生欲](https://www.gushi687.com/book/63qs7dr/)
 - [如何嫁给当朝首辅](https://www.gushi687.com/book/63qs7a3/)
 - [多梦你一会儿](https://www.gushi687.com/book/63qs6v5/)
 - [和治君只是饭搭子的关系](https://www.gushi687.com/book/63qs6ub/)
 - [阴阳师也可以打网球](https://www.gushi687.com/book/63qs5ul/)
 - [五条老师与他的封建妻子](https://www.gushi687.com/book/63qs58b/)
-- [八零恶毒后妈杀疯了](https://www.gushi687.com/book/63qs4ur/)
+- [卷王后妈，八零养娃](https://www.gushi687.com/book/63qs4ur/)
 - [在魔法贵族学院当白月光](https://www.gushi687.com/book/63qs41r/)
 - [我司艺人永不塌房](https://www.gushi687.com/book/63qs0fn/)
 - [我187了，你敢见我吗？](https://www.gushi687.com/book/63qs089/)
@@ -143,7 +143,6 @@
 - [这个位面归我了！[经营]](https://www.gushi687.com/book/63qrdbi/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.gushi687.com/book/63qrcfp/)
 - [村霸非要入赘受气包](https://www.gushi687.com/book/63qrb33/)
-- [娶了女装心机太子](https://www.gushi687.com/book/63qra01/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.gushi687.com/book/63qr942/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.gushi687.com/book/63qr8th/)
 - [清冷丞相怀了死对头的崽](https://www.gushi687.com/book/63qr8ql/)
@@ -158,18 +157,15 @@
 - [大瑛弟国](https://www.gushi687.com/book/63qps8r/)
 - [巨物致富：回乡开钓场](https://www.gushi687.com/book/63qps7u/)
 - [95美国贵族高中模拟](https://www.gushi687.com/book/63qps2a/)
-- [古代种田养娃日常](https://www.gushi687.com/book/63qprtr/)
 - [高门小婢](https://www.gushi687.com/book/63qproa/)
 - [六零之成了卷王的妹妹](https://www.gushi687.com/book/63qprfd/)
 - [成为养成系练习生后](https://www.gushi687.com/book/63qpr9r/)
-- [假少爷不想活了](https://www.gushi687.com/book/63qpr5g/)
-- [猫猫也要养家糊口](https://www.gushi687.com/book/63qpqmo/)
+- [假少爷离开后](https://www.gushi687.com/book/63qpr5g/)
 - [我是唯一地上神国](https://www.gushi687.com/book/63qpqir/)
 - [我有一座安全城](https://www.gushi687.com/book/63qpqi3/)
 - [直男咒术师的限制级游戏](https://www.gushi687.com/book/63qpqgi/)
 - [海岛求生：生活玩家种田囤货](https://www.gushi687.com/book/63qpq56/)
 - [五十年代港城日常](https://www.gushi687.com/book/63qppp5/)
-- [绝不会喜欢五条君的！](https://www.gushi687.com/book/63qppep/)
 - [[娱乐圈]过分美丽的她](https://www.gushi687.com/book/63qpp9q/)
 - [日化人生[科研]](https://www.gushi687.com/book/63qpp58/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.gushi687.com/book/63qpp3o/)

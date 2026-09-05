@@ -1,13 +1,14 @@
 
 # 阅读大文学 - 弘扬华夏文化的综合小说阅读平台
 
-更新时间：2026-09-05 03:45:10
+更新时间：2026-09-06 03:46:00
 
 阅读大文学致力于弘扬华夏文化，提供丰富的小说资源供免费阅读，涵盖但不限于古典文学、现代文学、当代文学及各类流行小说如言情、都市、玄幻等。
 
 - [阅读大文学](https://www.yuedu188.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.yuedu188.com/book/1egrie9/)
 - [人，今晚土拨鼠站岗](https://www.yuedu188.com/book/1egrie7/)
 - [魔改剧本后我爆火了[娱乐圈]](https://www.yuedu188.com/book/1egrie4/)
 - [我只想上京赶考啊[聊斋]](https://www.yuedu188.com/book/1egrie3/)
@@ -37,7 +38,6 @@
 - [强取师尊后](https://www.yuedu188.com/book/1egric7/)
 - [魔咒请说普通话[西幻]](https://www.yuedu188.com/book/1egric6/)
 - [世界伏于她刀下[无限]](https://www.yuedu188.com/book/1egric4/)
-- [自知之明](https://www.yuedu188.com/book/1egribt/)
 - [谁说踢球就不能成为名侦探[足球]](https://www.yuedu188.com/book/1egribs/)
 - [[洪荒]成为太清妹妹后](https://www.yuedu188.com/book/1egribr/)
 - [[原神]魔法使恋爱指南](https://www.yuedu188.com/book/1egribq/)
@@ -101,7 +101,6 @@
 - [我与龙傲天寿命共享](https://www.yuedu188.com/book/1egpdpe/)
 - [如何正确哄睡暴君](https://www.yuedu188.com/book/1egpcjo/)
 - [怀了前任大哥的崽后](https://www.yuedu188.com/book/1egp7bh/)
-- [九零首富的替嫁小媳妇](https://www.yuedu188.com/book/1egp6a5/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.yuedu188.com/book/1egp60s/)
 - [我骗家里的钱养你啊](https://www.yuedu188.com/book/1egp5hn/)
 - [死遁的亡夫们都回来了](https://www.yuedu188.com/book/1egp503/)
@@ -123,11 +122,10 @@
 - [如何嫁给当朝首辅](https://www.yuedu188.com/book/4ku7se/)
 - [和治君只是饭搭子的关系](https://www.yuedu188.com/book/4ku7ot/)
 - [多梦你一会儿](https://www.yuedu188.com/book/4ku7mq/)
-- [[综英美]让我统治哥谭！！！](https://www.yuedu188.com/book/4ku7bq/)
 - [[封神]圣人生欲](https://www.yuedu188.com/book/4ku7a2/)
 - [阴阳师也可以打网球](https://www.yuedu188.com/book/4ku6vv/)
 - [在魔法贵族学院当白月光](https://www.yuedu188.com/book/4ku5tr/)
-- [八零恶毒后妈杀疯了](https://www.yuedu188.com/book/4ku4tr/)
+- [卷王后妈，八零养娃](https://www.yuedu188.com/book/4ku4tr/)
 - [五条老师与他的封建妻子](https://www.yuedu188.com/book/4ku4l0/)
 - [我187了，你敢见我吗？](https://www.yuedu188.com/book/4ku1o5/)
 - [我司艺人永不塌房](https://www.yuedu188.com/book/4ku16l/)
@@ -146,7 +144,6 @@
 - [逃出金丝笼，我力挽山河开国称帝](https://www.yuedu188.com/book/4ktb8q/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.yuedu188.com/book/4ktatt/)
 - [清冷丞相怀了死对头的崽](https://www.yuedu188.com/book/4ktajv/)
-- [娶了女装心机太子](https://www.yuedu188.com/book/4ktads/)
 - [村霸非要入赘受气包](https://www.yuedu188.com/book/4kt93m/)
 - [被糟蹋的老实人决定反击](https://www.yuedu188.com/book/4kt6kk/)
 - [和山神搭伙开农场的日子](https://www.yuedu188.com/book/4kt5s0/)
@@ -155,12 +152,10 @@
 - [权宋一只统](https://www.yuedu188.com/book/4ksuf1/)
 - [爱好和平但狂拆机甲](https://www.yuedu188.com/book/4kspvs/)
 - [五十年代港城日常](https://www.yuedu188.com/book/esfc6/)
-- [古代种田养娃日常](https://www.yuedu188.com/book/esfbf/)
 - [全民求生:从小木屋到魔法农场](https://www.yuedu188.com/book/esfaf/)
 - [海岛求生：生活玩家种田囤货](https://www.yuedu188.com/book/esf0b/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.yuedu188.com/book/esers/)
 - [[娱乐圈]过分美丽的她](https://www.yuedu188.com/book/eseju/)
-- [绝不会喜欢五条君的！](https://www.yuedu188.com/book/esej6/)
 - [95美国贵族高中模拟](https://www.yuedu188.com/book/eseif/)
 - [日化人生[科研]](https://www.yuedu188.com/book/ese8j/)
 - [我有一座安全城](https://www.yuedu188.com/book/ese23/)
@@ -169,12 +164,12 @@
 - [我是唯一地上神国](https://www.yuedu188.com/book/esdjm/)
 - [成为养成系练习生后](https://www.yuedu188.com/book/esdh1/)
 - [六零之成了卷王的妹妹](https://www.yuedu188.com/book/esdfv/)
-- [假少爷不想活了](https://www.yuedu188.com/book/esdf3/)
+- [假少爷离开后](https://www.yuedu188.com/book/esdf3/)
 - [高门小婢](https://www.yuedu188.com/book/1fl66/)
 - [巨物致富：回乡开钓场](https://www.yuedu188.com/book/1fkuf/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.yuedu188.com/book/1fkso/)
 - [清澈女大的六零年代](https://www.yuedu188.com/book/1fkn3/)
-- [猫猫也要养家糊口](https://www.yuedu188.com/book/1fklu/)
+- [老公对不起](https://www.yuedu188.com/book/4ofp/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1354/index.md)

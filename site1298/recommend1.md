@@ -1,13 +1,15 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-09-05 03:31:15
+更新时间：2026-09-06 03:32:11
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
 - [笔趣屋](https://www.kmjike.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.kmjike.com/book/4mlvloi/)
+- [和八个男人在极寒游戏求生](https://www.kmjike.com/book/4mlvloh/)
 - [穿为龙傲天发妻后](https://www.kmjike.com/book/4mlvlog/)
 - [星露谷，但日本战国](https://www.kmjike.com/book/4mlvlof/)
 - [魔法种田，从退队经营农场开始](https://www.kmjike.com/book/4mlvloe/)
@@ -20,7 +22,6 @@
 - [大佬的漂亮老婆回来带崽了[八零]](https://www.kmjike.com/book/4mlvlo7/)
 - [魔咒请说普通话[西幻]](https://www.kmjike.com/book/4mlvlo6/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.kmjike.com/book/4mlvlo5/)
-- [自知之明](https://www.kmjike.com/book/4mlvlo4/)
 - [恐游作精女配求生指南](https://www.kmjike.com/book/4mlvlo3/)
 - [[综英美]和亲友群穿哥谭以后](https://www.kmjike.com/book/4mlvlo2/)
 - [暗恋的价格是三万块](https://www.kmjike.com/book/4mlvlo1/)
@@ -82,7 +83,6 @@
 - [国运求生：我的金手指是生命树](https://www.kmjike.com/book/4mlvlm8/)
 - [双生子反派的端水抑郁妈[九零]](https://www.kmjike.com/book/4mlvlm7/)
 - [我们生活玩家是这样的](https://www.kmjike.com/book/4mlvlk4/)
-- [[综英美]让我统治哥谭！！！](https://www.kmjike.com/book/4mlvlj6/)
 - [我司艺人永不塌房](https://www.kmjike.com/book/4mlvlhp/)
 - [[封神]圣人生欲](https://www.kmjike.com/book/4mlvlgr/)
 - [原配夫人](https://www.kmjike.com/book/4mlvlgm/)
@@ -91,14 +91,12 @@
 - [十九世纪贵族厨房（美食）](https://www.kmjike.com/book/4mlvlg0/)
 - [始乱终弃清冷首辅后](https://www.kmjike.com/book/4mlvlfu/)
 - [高调装神，猥琐发育](https://www.kmjike.com/book/4mlvlef/)
-- [假少爷不想活了](https://www.kmjike.com/book/4mlvleb/)
+- [假少爷离开后](https://www.kmjike.com/book/4mlvleb/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.kmjike.com/book/4mlvldk/)
 - [直男咒术师的限制级游戏](https://www.kmjike.com/book/4mlvld8/)
-- [绝不会喜欢五条君的！](https://www.kmjike.com/book/4mlvk2b/)
 - [六零之成了卷王的妹妹](https://www.kmjike.com/book/4mlvk19/)
 - [路人攻了主角攻［快穿］](https://www.kmjike.com/book/4mlvjuj/)
 - [昭暮](https://www.kmjike.com/book/4mlvacs/)
-- [古代种田养娃日常](https://www.kmjike.com/book/4mluuuh/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.kmjike.com/book/4mluu7i/)
 - [[足球]足坛人生模拟器](https://www.kmjike.com/book/4mlu2rg/)
 - [上个鬼班[无限]](https://www.kmjike.com/book/4mltp8k/)
@@ -142,12 +140,11 @@
 - [妻主风流（女尊）](https://www.kmjike.com/book/f279hq/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.kmjike.com/book/f277r9/)
 - [多梦你一会儿](https://www.kmjike.com/book/f2760j/)
-- [娶了女装心机太子](https://www.kmjike.com/book/f2751r/)
 - [被糟蹋的老实人决定反击](https://www.kmjike.com/book/f27365/)
 - [韩团绿卡不想忍了](https://www.kmjike.com/book/f27342/)
 - [村霸非要入赘受气包](https://www.kmjike.com/book/f272en/)
 - [清冷丞相怀了死对头的崽](https://www.kmjike.com/book/f2724r/)
-- [八零恶毒后妈杀疯了](https://www.kmjike.com/book/f271lg/)
+- [卷王后妈，八零养娃](https://www.kmjike.com/book/f271lg/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.kmjike.com/book/f270ur/)
 - [这个位面归我了！[经营]](https://www.kmjike.com/book/f270bg/)
 - [和山神搭伙开农场的日子](https://www.kmjike.com/book/f26te9/)
@@ -167,7 +164,6 @@
 - [开局绑定郭奉孝，谋定三国风云](https://www.kmjike.com/book/1g70ku/)
 - [海岛求生：生活玩家种田囤货](https://www.kmjike.com/book/1g706u/)
 - [高门小婢](https://www.kmjike.com/book/1g706m/)
-- [猫猫也要养家糊口](https://www.kmjike.com/book/1g702a/)
 - [苏娘子汴京摆摊日常（美食）](https://www.kmjike.com/book/1g701a/)
 - [我是唯一地上神国](https://www.kmjike.com/book/4qad1/)
 - [[娱乐圈]过分美丽的她](https://www.kmjike.com/book/4qa7b/)

@@ -1,13 +1,15 @@
 
 # 紫玉海小说 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-09-05 03:46:49
+更新时间：2026-09-06 03:47:40
 
 紫玉海小说网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
 - [紫玉海小说](https://www.ziyuhai.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.ziyuhai.com/book/84rn5al/)
+- [揣崽丧夫后被情敌强娶了](https://www.ziyuhai.com/book/84rn5ak/)
 - [清穿女回来后[天幕]](https://www.ziyuhai.com/book/84rn5aj/)
 - [欲加之罪](https://www.ziyuhai.com/book/84rn5ai/)
 - [魔尊闭关十年连生十一子？！](https://www.ziyuhai.com/book/84rn5ah/)
@@ -56,7 +58,6 @@
 - [万人嫌从末世回来了](https://www.ziyuhai.com/book/84rn596/)
 - [[足球]小小鸟堂堂来袭](https://www.ziyuhai.com/book/84rn595/)
 - [暗恋的价格是三万块](https://www.ziyuhai.com/book/84rn594/)
-- [自知之明](https://www.ziyuhai.com/book/84rn593/)
 - [你让魔王组建勇者小队？](https://www.ziyuhai.com/book/84rn592/)
 - [等我吃腻了再倒闭可以吗](https://www.ziyuhai.com/book/84rn591/)
 - [二次分化后他怀了死对头的崽](https://www.ziyuhai.com/book/84rn590/)
@@ -81,7 +82,6 @@
 - [占有欲Daddy是我老公？](https://www.ziyuhai.com/book/84rn58c/)
 - [夫人每天都在伪装](https://www.ziyuhai.com/book/84rn58b/)
 - [恐游作精女配求生指南](https://www.ziyuhai.com/book/84rn58a/)
-- [[综英美]让我统治哥谭！！！](https://www.ziyuhai.com/book/84rn579/)
 - [我司艺人永不塌房](https://www.ziyuhai.com/book/84rn55h/)
 - [我们生活玩家是这样的](https://www.ziyuhai.com/book/84rn54k/)
 - [星际团宠小人鱼](https://www.ziyuhai.com/book/84rn52t/)
@@ -91,14 +91,12 @@
 - [始乱终弃清冷首辅后](https://www.ziyuhai.com/book/84rn51r/)
 - [九零首富的替嫁小媳妇](https://www.ziyuhai.com/book/84rn515/)
 - [高调装神，猥琐发育](https://www.ziyuhai.com/book/84rn50f/)
-- [假少爷不想活了](https://www.ziyuhai.com/book/84rn50e/)
+- [假少爷离开后](https://www.ziyuhai.com/book/84rn50e/)
 - [直男咒术师的限制级游戏](https://www.ziyuhai.com/book/84rn4s3/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.ziyuhai.com/book/84rn4rr/)
-- [绝不会喜欢五条君的！](https://www.ziyuhai.com/book/84rn3jt/)
 - [六零之成了卷王的妹妹](https://www.ziyuhai.com/book/84rn3ja/)
 - [路人攻了主角攻［快穿］](https://www.ziyuhai.com/book/84rn3hr/)
 - [昭暮](https://www.ziyuhai.com/book/84rmq1q/)
-- [古代种田养娃日常](https://www.ziyuhai.com/book/84rmeo0/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.ziyuhai.com/book/84rme9l/)
 - [上个鬼班[无限]](https://www.ziyuhai.com/book/84rld9o/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ziyuhai.com/book/84rlah0/)
@@ -144,9 +142,8 @@
 - [逃出金丝笼，我力挽山河开国称帝](https://www.ziyuhai.com/book/q2ph3s/)
 - [被糟蹋的老实人决定反击](https://www.ziyuhai.com/book/q2pgsg/)
 - [韩团绿卡不想忍了](https://www.ziyuhai.com/book/q2pgi8/)
-- [娶了女装心机太子](https://www.ziyuhai.com/book/q2pe5i/)
 - [这个位面归我了！[经营]](https://www.ziyuhai.com/book/q2pcid/)
-- [八零恶毒后妈杀疯了](https://www.ziyuhai.com/book/q2pbsc/)
+- [卷王后妈，八零养娃](https://www.ziyuhai.com/book/q2pbsc/)
 - [村霸非要入赘受气包](https://www.ziyuhai.com/book/q2pbl3/)
 - [清冷丞相怀了死对头的崽](https://www.ziyuhai.com/book/q2pbg8/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.ziyuhai.com/book/q2p9tl/)
@@ -169,7 +166,6 @@
 - [我是唯一地上神国](https://www.ziyuhai.com/book/2jf8dd/)
 - [开局绑定郭奉孝，谋定三国风云](https://www.ziyuhai.com/book/2jf7ip/)
 - [完蛋！被恨孕男包围了！](https://www.ziyuhai.com/book/8b4pi/)
-- [猫猫也要养家糊口](https://www.ziyuhai.com/book/8b4l1/)
 - [95美国贵族高中模拟](https://www.ziyuhai.com/book/8b45f/)
 - [海岛求生：生活玩家种田囤货](https://www.ziyuhai.com/book/8b448/)
 - [全民求生:从小木屋到魔法农场](https://www.ziyuhai.com/book/8b442/)

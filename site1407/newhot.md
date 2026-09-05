@@ -1,7 +1,7 @@
 
 # 苏秦家小说网 - 免费在线阅读无弹窗小说
 
-更新时间：2026-09-05 03:38:43
+更新时间：2026-09-06 03:39:36
 
 苏秦家小说网为您提供一个干净、舒适的阅读环境，专注于提供免费且无任何弹窗干扰的小说在线阅读服务。
 
@@ -12,12 +12,12 @@
 - [躲避原书剧情五年后](https://www.suqinjia.com/book/3av3fe8/)
 - [清穿女回来后[天幕]](https://www.suqinjia.com/book/3av3f8u/)
 - [禁止继承限制级雌君](https://www.suqinjia.com/book/3av3f8g/)
+- [穿为龙傲天发妻后](https://www.suqinjia.com/book/3av3f6n/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.suqinjia.com/book/3av3f69/)
 - [自知之明](https://www.suqinjia.com/book/3av3f5k/)
 - [娇气点怎么啦？［快穿］](https://www.suqinjia.com/book/3av3eub/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.suqinjia.com/book/3av3e7q/)
 - [不义世界都是我马甲[综英美]](https://www.suqinjia.com/book/3av3e0k/)
-- [从异世界穿回来后](https://www.suqinjia.com/book/3av3cpl/)
 - [[综武侠]风流](https://www.suqinjia.com/book/3av3cd0/)
 - [孤独症崽崽穿越到狗血爽文里[穿书]](https://www.suqinjia.com/book/3av3b7u/)
 - [我有嘉宾](https://www.suqinjia.com/book/3av3b58/)
@@ -58,7 +58,6 @@
 - [我当县令那些年](https://www.suqinjia.com/book/3av22co/)
 - [渡鬼](https://www.suqinjia.com/book/3av21u1/)
 - [可怜的天然呆直男[快穿]](https://www.suqinjia.com/book/3av21qr/)
-- [我的烧烤摊超美味[美食]](https://www.suqinjia.com/book/3av21pn/)
 - [全天下都在求太子殿下别死！](https://www.suqinjia.com/book/3av21m1/)
 - [我在虫族扮绿茶吃老虎](https://www.suqinjia.com/book/3av20h6/)
 - [[综英美]是谁家的小鹿](https://www.suqinjia.com/book/3av208d/)
@@ -243,7 +242,6 @@
 - [父皇，我是gay](https://www.suqinjia.com/book/3av0up0/)
 - [皇后守则[快穿]](https://www.suqinjia.com/book/3av0ugq/)
 - [这谁的沙雕二次元心声！](https://www.suqinjia.com/book/3av0ufo/)
-- [多梦你一会儿](https://www.suqinjia.com/book/3av0udu/)
 - [退圈后，我靠职场综艺火爆全网](https://www.suqinjia.com/book/3av0u2l/)
 - [全世界名为爱的恶意](https://www.suqinjia.com/book/3av0u15/)
 - [恶毒女配是绝色美人[快穿]](https://www.suqinjia.com/book/3av0u0k/)
@@ -258,7 +256,6 @@
 - [娇气包在无限游戏被坏男人骗](https://www.suqinjia.com/book/3av0stt/)
 - [野比春子穿越事件簿](https://www.suqinjia.com/book/3av0st5/)
 - [善逸拒绝成为咒术师](https://www.suqinjia.com/book/3av0sq6/)
-- [和前女友的心上人he了](https://www.suqinjia.com/book/3av0smg/)
 - [如何登顶反派第一](https://www.suqinjia.com/book/3av0sih/)
 - [当魔修反派穿成治愈系[穿书]](https://www.suqinjia.com/book/3av0sca/)
 - [揍敌客大小姐好难攻略](https://www.suqinjia.com/book/3av0sc7/)
@@ -393,6 +390,7 @@
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.suqinjia.com/book/3av0icc/)
 - [暴君偏头痛](https://www.suqinjia.com/book/3av0i8i/)
 - [好兄弟暴富后非要跟我结婚](https://www.suqinjia.com/book/3av0i6l/)
+- [被阴湿坏女人缠上后](https://www.suqinjia.com/book/3av0i3a/)
 - [虫族治愈师，但恐虫](https://www.suqinjia.com/book/3av0i26/)
 - [请问夫君你哪位](https://www.suqinjia.com/book/3av0hn3/)
 - [刀子精手心的人偶崽崽](https://www.suqinjia.com/book/3av0hld/)
@@ -423,6 +421,7 @@
 - [青山不渡](https://www.suqinjia.com/book/3av0fqv/)
 - [关于我虚构了一个男友这件事](https://www.suqinjia.com/book/3av0fmj/)
 - [我，剑圣，养生中，勿扰](https://www.suqinjia.com/book/3av0fgn/)
+- [欢迎来到重生点](https://www.suqinjia.com/book/3av0fb1/)
 - [好巧，你也是妹控？[综崩铁]](https://www.suqinjia.com/book/3av0du9/)
 - [柯学剧本杀，但恋爱流打法](https://www.suqinjia.com/book/3av0d6a/)
 - [李玉灯](https://www.suqinjia.com/book/3av0d5h/)
@@ -431,10 +430,11 @@
 - [[崩铁]请给玩家一个准确的血条！](https://www.suqinjia.com/book/3av085n/)
 - [[综英美]和亲友群穿哥谭以后](https://www.suqinjia.com/book/3av07ci/)
 - [自大狂](https://www.suqinjia.com/book/3av003t/)
+- [书呆子扮演渣攻翻车【快穿】](https://www.suqinjia.com/book/3auvoe4/)
+- [丧尸老婆喂养日记](https://www.suqinjia.com/book/3auvf2e/)
 - [你，后室管理员](https://www.suqinjia.com/book/3auuetm/)
 - [纯爱宇智波基本恋爱法](https://www.suqinjia.com/book/3auueg0/)
 - [高调装神，猥琐发育](https://www.suqinjia.com/book/3auudm4/)
-- [星际团宠小人鱼](https://www.suqinjia.com/book/3auudfo/)
 - [误入反派培养直播后](https://www.suqinjia.com/book/3auud44/)
 - [[封神]圣人生欲](https://www.suqinjia.com/book/3auucvl/)
 - [被四皇错看成小动物后](https://www.suqinjia.com/book/3auuc5j/)

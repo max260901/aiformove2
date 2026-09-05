@@ -1,7 +1,7 @@
 
 # 奇幻凤影台小说-都市玄幻言情仙侠免费小说在线阅读
 
-更新时间：2026-09-05 03:34:45
+更新时间：2026-09-06 03:35:41
 
 奇幻凤影台小说提供都市玄幻、言情仙侠等类型的小说在线免费阅读服务。让您的通勤路上不再无聊，无论是日常出行还是夜晚静谧时刻，总有一本好书陪伴您度过美好时光。
 
@@ -14,6 +14,7 @@
 - [等我吃腻了再倒闭可以吗](https://www.qihuan868.com/book/42idteo/)
 - [这个替嫁让我来！](https://www.qihuan868.com/book/42idtdq/)
 - [[综英美]和亲友群穿哥谭以后](https://www.qihuan868.com/book/42idtde/)
+- [穿为龙傲天发妻后](https://www.qihuan868.com/book/42idtd2/)
 - [全世界名为爱的恶意](https://www.qihuan868.com/book/42idtci/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.qihuan868.com/book/42idtbq/)
 - [修仙界都为我神魂颠倒](https://www.qihuan868.com/book/42idrb5/)
@@ -31,11 +32,9 @@
 - [[足球]番外乐子集](https://www.qihuan868.com/book/42idjta/)
 - [我超凶的！[快穿]](https://www.qihuan868.com/book/42idi2p/)
 - [我比反派先崩坏[快穿]](https://www.qihuan868.com/book/42idhaj/)
-- [我的烧烤摊超美味[美食]](https://www.qihuan868.com/book/42idh9t/)
 - [渡鬼](https://www.qihuan868.com/book/42idh9f/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.qihuan868.com/book/42idh8v/)
 - [cos温迪后玩到真崩铁了](https://www.qihuan868.com/book/42idcq2/)
-- [从异世界穿回来后](https://www.qihuan868.com/book/42idck7/)
 - [我有嘉宾](https://www.qihuan868.com/book/42idcc0/)
 - [娇气点怎么啦？［快穿］](https://www.qihuan868.com/book/42idc6u/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.qihuan868.com/book/42idbiu/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.qihuan868.com/book/42icmht/)
 - [昭暮](https://www.qihuan868.com/book/42iclq4/)
 - [你，后室管理员](https://www.qihuan868.com/book/42icik3/)
-- [星际团宠小人鱼](https://www.qihuan868.com/book/42icifb/)
 - [高调装神，猥琐发育](https://www.qihuan868.com/book/42icbec/)
 - [我在无限游戏里假扮NPC[无限流]](https://www.qihuan868.com/book/42ic4fs/)
 - [渣过我的主角全都重生了[快穿]](https://www.qihuan868.com/book/42ic4am/)
@@ -290,7 +288,6 @@
 - [穿进民国后宅从杂役做起](https://www.qihuan868.com/book/42ianbr/)
 - [被小蜘蛛听见心声后](https://www.qihuan868.com/book/42ian8o/)
 - [主角对你极度痴迷](https://www.qihuan868.com/book/42ian8e/)
-- [多梦你一会儿](https://www.qihuan868.com/book/42ian74/)
 - [系统错绑后我成了顶级白富美](https://www.qihuan868.com/book/42ian5p/)
 - [拯救美强惨女主进行时[快穿]](https://www.qihuan868.com/book/42iamu7/)
 - [被四皇错看成小动物后](https://www.qihuan868.com/book/42iamtu/)
@@ -391,7 +388,6 @@
 - [养了一个废太子](https://www.qihuan868.com/book/42iag89/)
 - [小寡夫还有两幅面孔](https://www.qihuan868.com/book/42iag74/)
 - [转生成为伊路米的双生姐姐](https://www.qihuan868.com/book/42iag32/)
-- [和前女友的心上人he了](https://www.qihuan868.com/book/42iaftr/)
 - [超忆症大佬在古代破案](https://www.qihuan868.com/book/42iafs1/)
 - [末世山居日常](https://www.qihuan868.com/book/42iafml/)
 - [高冷影后逼我标记她](https://www.qihuan868.com/book/42iafjm/)
@@ -409,6 +405,7 @@
 - [普通高中生，但兼职咒术师](https://www.qihuan868.com/book/42iae62/)
 - [每天都在和太宰互换身体](https://www.qihuan868.com/book/42iae4r/)
 - [小狗向导，世界瑰宝！](https://www.qihuan868.com/book/42iae0d/)
+- [被阴湿坏女人缠上后](https://www.qihuan868.com/book/42iadr3/)
 - [癫骨](https://www.qihuan868.com/book/42iadq6/)
 - [让我再吃一口](https://www.qihuan868.com/book/42iadjm/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.qihuan868.com/book/42iadj9/)
@@ -429,6 +426,7 @@
 - [盛夏晴浓](https://www.qihuan868.com/book/42ia36h/)
 - [幼崽假少爷选择回归寒门](https://www.qihuan868.com/book/42ia2um/)
 - [青城玩家明明超强却过分谨慎](https://www.qihuan868.com/book/42ia128/)
+- [欢迎来到重生点](https://www.qihuan868.com/book/42ia088/)
 - [好巧，你也是妹控？[综崩铁]](https://www.qihuan868.com/book/42i9uvg/)
 - [暴君偏头痛](https://www.qihuan868.com/book/42i9t97/)
 - [好兄弟暴富后非要跟我结婚](https://www.qihuan868.com/book/42i9t23/)

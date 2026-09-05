@@ -1,7 +1,7 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-09-05 03:29:09
+更新时间：2026-09-06 03:30:05
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。
 
@@ -12,6 +12,7 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.jxbfsz.com/book/29i1pai/)
 - [清穿女回来后[天幕]](https://www.jxbfsz.com/book/29i1pag/)
 - [这个替嫁让我来！](https://www.jxbfsz.com/book/29i1p9v/)
+- [穿为龙傲天发妻后](https://www.jxbfsz.com/book/29i1p9q/)
 - [咦？我爸爸复活啦](https://www.jxbfsz.com/book/29i1p9b/)
 - [[足球]小小鸟堂堂来袭](https://www.jxbfsz.com/book/29i1p94/)
 - [自知之明](https://www.jxbfsz.com/book/29i1p8r/)
@@ -22,7 +23,6 @@
 - [渡鬼](https://www.jxbfsz.com/book/29i1oci/)
 - [暴君偏头痛](https://www.jxbfsz.com/book/29i1ob8/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.jxbfsz.com/book/29i1o9t/)
-- [我的烧烤摊超美味[美食]](https://www.jxbfsz.com/book/29i1o99/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.jxbfsz.com/book/29i1mvm/)
 - [修仙界都为我神魂颠倒](https://www.jxbfsz.com/book/29i1mva/)
 - [穿成年代文奇葩前妻](https://www.jxbfsz.com/book/29i1mrt/)
@@ -40,10 +40,8 @@
 - [我超凶的！[快穿]](https://www.jxbfsz.com/book/29i1dqp/)
 - [我有嘉宾](https://www.jxbfsz.com/book/29i1d50/)
 - [我比反派先崩坏[快穿]](https://www.jxbfsz.com/book/29i1d32/)
-- [从异世界穿回来后](https://www.jxbfsz.com/book/29i1cej/)
 - [cos温迪后玩到真崩铁了](https://www.jxbfsz.com/book/29i18mb/)
 - [你，后室管理员](https://www.jxbfsz.com/book/29i181q/)
-- [星际团宠小人鱼](https://www.jxbfsz.com/book/29i17vc/)
 - [娇气点怎么啦？［快穿］](https://www.jxbfsz.com/book/29i17ut/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.jxbfsz.com/book/29i1795/)
 - [不义世界都是我马甲[综英美]](https://www.jxbfsz.com/book/29i172u/)
@@ -312,7 +310,6 @@
 - [大美人怀了enigma上司的崽](https://www.jxbfsz.com/book/29hugrj/)
 - [正常人成为虫母后沦陷修罗场](https://www.jxbfsz.com/book/29hugp5/)
 - [娇婚惯养](https://www.jxbfsz.com/book/29hugp3/)
-- [多梦你一会儿](https://www.jxbfsz.com/book/29hugot/)
 - [[综英美]萌萌小蜘蛛在哥谭](https://www.jxbfsz.com/book/29hugoh/)
 - [你猜](https://www.jxbfsz.com/book/29hugod/)
 - [我让人生赢家俯首称臣的那些年](https://www.jxbfsz.com/book/29hugni/)
@@ -386,6 +383,7 @@
 - [女beta的星际悠闲生活](https://www.jxbfsz.com/book/29hubks/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.jxbfsz.com/book/29hube3/)
 - [让我再吃一口](https://www.jxbfsz.com/book/29hubci/)
+- [被阴湿坏女人缠上后](https://www.jxbfsz.com/book/29hubbr/)
 - [直播捏玩具被榜一大哥撅了](https://www.jxbfsz.com/book/29hub3q/)
 - [我靠玛丽苏系统伪装神女](https://www.jxbfsz.com/book/29huatl/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.jxbfsz.com/book/29huaoe/)
@@ -403,7 +401,6 @@
 - [顶流他姐有神豪系统](https://www.jxbfsz.com/book/29hua8o/)
 - [举朝上下为我的神仙人设头疼中](https://www.jxbfsz.com/book/29hua5l/)
 - [放开那个黑暗哨兵！](https://www.jxbfsz.com/book/29hua1n/)
-- [和前女友的心上人he了](https://www.jxbfsz.com/book/29hua1g/)
 - [末世山居日常](https://www.jxbfsz.com/book/29hu9um/)
 - [失忆后，和五条激情互演](https://www.jxbfsz.com/book/29hu9mk/)
 - [普通高中生，但兼职咒术师](https://www.jxbfsz.com/book/29hu9do/)
@@ -432,6 +429,7 @@
 - [[综英美]让我统治哥谭！！！](https://www.jxbfsz.com/book/29htq00/)
 - [盛夏晴浓](https://www.jxbfsz.com/book/29htpei/)
 - [好巧，你也是妹控？[综崩铁]](https://www.jxbfsz.com/book/29htlit/)
+- [欢迎来到重生点](https://www.jxbfsz.com/book/29htl6a/)
 - [好兄弟暴富后非要跟我结婚](https://www.jxbfsz.com/book/29htjav/)
 - [关于我虚构了一个男友这件事](https://www.jxbfsz.com/book/29htit1/)
 - [求生游戏：当邪神成为生活玩家后](https://www.jxbfsz.com/book/29htio9/)

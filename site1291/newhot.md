@@ -1,13 +1,14 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-09-05 03:35:31
+更新时间：2026-09-06 03:36:27
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
 - [笔趣阁啦](https://www.qingyuchun.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.qingyuchun.com/book/10578ml/)
 - [禁止继承限制级雌君](https://www.qingyuchun.com/book/10578mi/)
 - [我骗家里的钱养你啊](https://www.qingyuchun.com/book/10578mc/)
 - [同时扮演贵族学院F4和平民校花](https://www.qingyuchun.com/book/10578m7/)
@@ -18,6 +19,7 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.qingyuchun.com/book/10578la/)
 - [全世界名为爱的恶意](https://www.qingyuchun.com/book/10578l4/)
 - [自知之明](https://www.qingyuchun.com/book/10578kh/)
+- [穿为龙傲天发妻后](https://www.qingyuchun.com/book/10578kg/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.qingyuchun.com/book/10578kd/)
 - [等我吃腻了再倒闭可以吗](https://www.qingyuchun.com/book/10578k9/)
 - [躲避原书剧情五年后](https://www.qingyuchun.com/book/10578je/)
@@ -27,10 +29,7 @@
 - [[综英美]让我统治哥谭！！！](https://www.qingyuchun.com/book/10578hk/)
 - [青城玩家明明超强却过分谨慎](https://www.qingyuchun.com/book/10578gv/)
 - [暴君偏头痛](https://www.qingyuchun.com/book/10578gl/)
-- [我的烧烤摊超美味[美食]](https://www.qingyuchun.com/book/10578ge/)
-- [从异世界穿回来后](https://www.qingyuchun.com/book/10578fh/)
 - [[封神]圣人生欲](https://www.qingyuchun.com/book/10578eh/)
-- [星际团宠小人鱼](https://www.qingyuchun.com/book/10578e2/)
 - [你，后室管理员](https://www.qingyuchun.com/book/10578dr/)
 - [被四皇错看成小动物后](https://www.qingyuchun.com/book/10578d8/)
 - [高调装神，猥琐发育](https://www.qingyuchun.com/book/10578ce/)
@@ -402,6 +401,7 @@
 - [直播捏玩具被榜一大哥撅了](https://www.qingyuchun.com/book/36uvpg/)
 - [神之子与排球的适配性](https://www.qingyuchun.com/book/36uvk1/)
 - [忍界观察日记](https://www.qingyuchun.com/book/36uvgt/)
+- [被阴湿坏女人缠上后](https://www.qingyuchun.com/book/36uvg6/)
 - [作家与读者](https://www.qingyuchun.com/book/36uuk1/)
 - [当了卧底的我发现遍地熟人](https://www.qingyuchun.com/book/36uu18/)
 - [隔壁班的松田君](https://www.qingyuchun.com/book/36uu0k/)
@@ -414,10 +414,8 @@
 - [青空来信](https://www.qingyuchun.com/book/36umbi/)
 - [我最讨厌打球了！](https://www.qingyuchun.com/book/36uih1/)
 - [误入反派培养直播后](https://www.qingyuchun.com/book/36ufnk/)
-- [多梦你一会儿](https://www.qingyuchun.com/book/36ub5l/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.qingyuchun.com/book/36uate/)
 - [[足球]罗蜜第一志愿](https://www.qingyuchun.com/book/36u8i7/)
-- [和前女友的心上人he了](https://www.qingyuchun.com/book/36u78u/)
 - [哥你不能不要我](https://www.qingyuchun.com/book/36tlq2/)
 ## 相关内容
 - [README](/README.md)

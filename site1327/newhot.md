@@ -1,13 +1,15 @@
 
 # 家家福顶点书包 - 免费TXT小说下载, 手机电子书资源
 
-更新时间：2026-09-05 03:28:51
+更新时间：2026-09-06 03:29:47
 
 家家福顶点书包为您提供最新最全的小说资源，包括但不限于txt电子书、手机txt小说下载等服务，所有内容均支持全本免费下载，是小说爱好者的理想选择。
 
 - [家家福顶点书包](https://www.jjfbaijia.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.jjfbaijia.com/book/8hhvkul/)
+- [穿为龙傲天发妻后](https://www.jjfbaijia.com/book/8hhvkuh/)
 - [等我吃腻了再倒闭可以吗](https://www.jjfbaijia.com/book/8hhvkue/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.jjfbaijia.com/book/8hhvku2/)
 - [清穿女回来后[天幕]](https://www.jjfbaijia.com/book/8hhvku0/)
@@ -20,10 +22,8 @@
 - [咦？我爸爸复活啦](https://www.jjfbaijia.com/book/8hhvktb/)
 - [[足球]小小鸟堂堂来袭](https://www.jjfbaijia.com/book/8hhvksh/)
 - [禁止继承限制级雌君](https://www.jjfbaijia.com/book/8hhvks9/)
-- [从异世界穿回来后](https://www.jjfbaijia.com/book/8hhvkpt/)
 - [[综英美]让我统治哥谭！！！](https://www.jjfbaijia.com/book/8hhvkpo/)
 - [躲避原书剧情五年后](https://www.jjfbaijia.com/book/8hhvko9/)
-- [我的烧烤摊超美味[美食]](https://www.jjfbaijia.com/book/8hhvknu/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.jjfbaijia.com/book/8hhvkns/)
 - [暴君偏头痛](https://www.jjfbaijia.com/book/8hhvknq/)
 - [渡鬼](https://www.jjfbaijia.com/book/8hhvknh/)
@@ -31,7 +31,6 @@
 - [[封神]圣人生欲](https://www.jjfbaijia.com/book/8hhvkmp/)
 - [你，后室管理员](https://www.jjfbaijia.com/book/8hhvkmd/)
 - [被四皇错看成小动物后](https://www.jjfbaijia.com/book/8hhvkli/)
-- [星际团宠小人鱼](https://www.jjfbaijia.com/book/8hhvkl5/)
 - [高调装神，猥琐发育](https://www.jjfbaijia.com/book/8hhvkkh/)
 - [京秋婚约](https://www.jjfbaijia.com/book/8hhvkjp/)
 - [纯爱宇智波基本恋爱法](https://www.jjfbaijia.com/book/8hhvkj1/)
@@ -404,6 +403,7 @@
 - [神之子与排球的适配性](https://www.jjfbaijia.com/book/rbe6hv/)
 - [当了卧底的我发现遍地熟人](https://www.jjfbaijia.com/book/rbe6fd/)
 - [癫骨](https://www.jjfbaijia.com/book/rbe6aq/)
+- [被阴湿坏女人缠上后](https://www.jjfbaijia.com/book/rbe5dj/)
 - [忍界观察日记](https://www.jjfbaijia.com/book/rbe5a8/)
 - [无能的丈夫们](https://www.jjfbaijia.com/book/rbe52m/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.jjfbaijia.com/book/rbe43i/)
@@ -414,9 +414,7 @@
 - [我最讨厌打球了！](https://www.jjfbaijia.com/book/rbdrra/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.jjfbaijia.com/book/rbdlj4/)
 - [误入反派培养直播后](https://www.jjfbaijia.com/book/rbdkvo/)
-- [多梦你一会儿](https://www.jjfbaijia.com/book/rbdjeh/)
 - [[足球]罗蜜第一志愿](https://www.jjfbaijia.com/book/rbdhkb/)
-- [和前女友的心上人he了](https://www.jjfbaijia.com/book/rbdb59/)
 - [哥你不能不要我](https://www.jjfbaijia.com/book/rbcuie/)
 ## 相关内容
 - [README](/README.md)

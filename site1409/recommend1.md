@@ -1,13 +1,15 @@
 
 # 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
 
-更新时间：2026-09-05 03:22:00
+更新时间：2026-09-06 03:22:51
 
 瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！
 
 - [瑞文文学网](https://www.49ig.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.49ig.com/book/436ebvk/)
+- [和八个男人在极寒游戏求生](https://www.49ig.com/book/436ebvc/)
 - [魔改剧本后我爆火了[娱乐圈]](https://www.49ig.com/book/436e8jg/)
 - [恐游里的邻居们[万人迷]](https://www.49ig.com/book/436e8je/)
 - [魔咒请说普通话[西幻]](https://www.49ig.com/book/436e8j8/)
@@ -44,7 +46,6 @@
 - [正是冬雪沸腾时](https://www.49ig.com/book/436e8gj/)
 - [二次分化后他怀了死对头的崽](https://www.49ig.com/book/436e8gi/)
 - [恐游作精女配求生指南](https://www.49ig.com/book/436e8gh/)
-- [自知之明](https://www.49ig.com/book/436e8gf/)
 - [[足球]雏鸟](https://www.49ig.com/book/436e8ge/)
 - [全民求生，但剑三](https://www.49ig.com/book/436e8g8/)
 - [烈火焚身[巴黎圣母院]](https://www.49ig.com/book/436e8g7/)
@@ -103,7 +104,6 @@
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.49ig.com/book/436c5ug/)
 - [沈助理又在隐藏他的超能力](https://www.49ig.com/book/436c5k5/)
 - [美貌单出，杀穿港娱［八零］](https://www.49ig.com/book/436c4af/)
-- [[综英美]让我统治哥谭！！！](https://www.49ig.com/book/436c480/)
 - [路人攻了主角攻［快穿］](https://www.49ig.com/book/436c3m5/)
 - [我司艺人永不塌房](https://www.49ig.com/book/436bvbi/)
 - [如何嫁给当朝首辅](https://www.49ig.com/book/436bupe/)
@@ -142,18 +142,15 @@
 - [恶犬攻绑定上司的乖狗系统](https://www.49ig.com/book/436aead/)
 - [权宋一只统](https://www.49ig.com/book/436adik/)
 - [娘娘扶摇直上](https://www.49ig.com/book/436acq0/)
-- [绝不会喜欢五条君的！](https://www.49ig.com/book/436a9f5/)
 - [爱好和平但狂拆机甲](https://www.49ig.com/book/436a865/)
 - [你让魔王组建勇者小队？](https://www.49ig.com/book/436a3f5/)
 - [海岛求生：生活玩家种田囤货](https://www.49ig.com/book/43698bi/)
 - [十九世纪贵族厨房（美食）](https://www.49ig.com/book/436988r/)
 - [九零首富的替嫁小媳妇](https://www.49ig.com/book/4369885/)
-- [古代种田养娃日常](https://www.49ig.com/book/436987a/)
 - [完蛋！被恨孕男包围了！](https://www.49ig.com/book/436980a/)
 - [原配夫人](https://www.49ig.com/book/43697s7/)
 - [始乱终弃清冷首辅后](https://www.49ig.com/book/43697pk/)
-- [娶了女装心机太子](https://www.49ig.com/book/43697jb/)
-- [假少爷不想活了](https://www.49ig.com/book/43697ag/)
+- [假少爷离开后](https://www.49ig.com/book/43697ag/)
 - [高调装神，猥琐发育](https://www.49ig.com/book/4369798/)
 - [趁她之危](https://www.49ig.com/book/436976s/)
 - [[娱乐圈]过分美丽的她](https://www.49ig.com/book/436975g/)
@@ -164,7 +161,6 @@
 - [巨物致富：回乡开钓场](https://www.49ig.com/book/43696jh/)
 - [[封神]圣人生欲](https://www.49ig.com/book/43696e5/)
 - [我是唯一地上神国](https://www.49ig.com/book/43696ds/)
-- [猫猫也要养家糊口](https://www.49ig.com/book/43696d0/)
 - [日化人生[科研]](https://www.49ig.com/book/43696ck/)
 - [全民求生:从小木屋到魔法农场](https://www.49ig.com/book/436968e/)
 - [大瑛弟国](https://www.49ig.com/book/436965v/)
@@ -173,7 +169,7 @@
 - [五十年代港城日常](https://www.49ig.com/book/43695i9/)
 - [清澈女大的六零年代](https://www.49ig.com/book/43695dl/)
 - [高门小婢](https://www.49ig.com/book/43695b8/)
-- [八零恶毒后妈杀疯了](https://www.49ig.com/book/436956l/)
+- [卷王后妈，八零养娃](https://www.49ig.com/book/436956l/)
 - [我有一座安全城](https://www.49ig.com/book/4369561/)
 ## 相关内容
 - [README](/README.md)

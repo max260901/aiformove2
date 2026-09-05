@@ -1,13 +1,15 @@
 
 # 笔趣阁_书友最值得收藏的网络小说阅读网_新笔趣阁5200
 
-更新时间：2026-09-05 03:29:24
+更新时间：2026-09-06 03:30:21
 
 笔趣阁是广大书友最值得收藏的网络小说阅读网，新笔趣阁网站收录了当前最火热的网络小说，笔趣阁5200免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
 - [笔趣阁](https://www.kangrunwangye.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.kangrunwangye.com/book/1o9mgam/)
+- [揣崽丧夫后被情敌强娶了](https://www.kangrunwangye.com/book/1o9mgal/)
 - [魔咒请说普通话[西幻]](https://www.kangrunwangye.com/book/1o9mgak/)
 - [漫画取材所引发的修罗场](https://www.kangrunwangye.com/book/1o9mgaj/)
 - [咦？我爸爸复活啦](https://www.kangrunwangye.com/book/1o9mgai/)
@@ -49,7 +51,6 @@
 - [SSS级异种都是我前任](https://www.kangrunwangye.com/book/1o9mg9d/)
 - [谁都不爱的和亲公主](https://www.kangrunwangye.com/book/1o9mg9c/)
 - [[足球]小小鸟堂堂来袭](https://www.kangrunwangye.com/book/1o9mg9b/)
-- [自知之明](https://www.kangrunwangye.com/book/1o9mg9a/)
 - [夫人每天都在伪装](https://www.kangrunwangye.com/book/1o9mg99/)
 - [魔法种田，从退队经营农场开始](https://www.kangrunwangye.com/book/1o9mg98/)
 - [[全职高手]治疗什么的不干了！](https://www.kangrunwangye.com/book/1o9mg97/)
@@ -82,7 +83,6 @@
 - [烈火焚身[巴黎圣母院]](https://www.kangrunwangye.com/book/1o9mg8c/)
 - [暗恋的价格是三万块](https://www.kangrunwangye.com/book/1o9mg8b/)
 - [我们生活玩家是这样的](https://www.kangrunwangye.com/book/1o9mg6e/)
-- [[综英美]让我统治哥谭！！！](https://www.kangrunwangye.com/book/1o9mg57/)
 - [我司艺人永不塌房](https://www.kangrunwangye.com/book/1o9mg3b/)
 - [九零首富的替嫁小媳妇](https://www.kangrunwangye.com/book/1o9mg2d/)
 - [星际团宠小人鱼](https://www.kangrunwangye.com/book/1o9mg2c/)
@@ -91,14 +91,12 @@
 - [[封神]圣人生欲](https://www.kangrunwangye.com/book/1o9mg0m/)
 - [始乱终弃清冷首辅后](https://www.kangrunwangye.com/book/1o9mg0l/)
 - [高调装神，猥琐发育](https://www.kangrunwangye.com/book/1o9mg0i/)
-- [假少爷不想活了](https://www.kangrunwangye.com/book/1o9mg0f/)
+- [假少爷离开后](https://www.kangrunwangye.com/book/1o9mg0f/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.kangrunwangye.com/book/1o9mfs9/)
 - [直男咒术师的限制级游戏](https://www.kangrunwangye.com/book/1o9mfri/)
-- [绝不会喜欢五条君的！](https://www.kangrunwangye.com/book/1o9mejj/)
 - [六零之成了卷王的妹妹](https://www.kangrunwangye.com/book/1o9meja/)
 - [路人攻了主角攻［快穿］](https://www.kangrunwangye.com/book/1o9megj/)
 - [昭暮](https://www.kangrunwangye.com/book/1o9m4us/)
-- [古代种田养娃日常](https://www.kangrunwangye.com/book/1o9lpq0/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.kangrunwangye.com/book/1o9lpcm/)
 - [上个鬼班[无限]](https://www.kangrunwangye.com/book/1o9kvdn/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kangrunwangye.com/book/1o9kn80/)
@@ -142,13 +140,12 @@
 - [妻主风流（女尊）](https://www.kangrunwangye.com/book/5k6c8t/)
 - [多梦你一会儿](https://www.kangrunwangye.com/book/5k6bao/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.kangrunwangye.com/book/5k6a3r/)
-- [娶了女装心机太子](https://www.kangrunwangye.com/book/5k68hg/)
 - [被糟蹋的老实人决定反击](https://www.kangrunwangye.com/book/5k683e/)
 - [韩团绿卡不想忍了](https://www.kangrunwangye.com/book/5k65t9/)
 - [这个位面归我了！[经营]](https://www.kangrunwangye.com/book/5k64kb/)
 - [村霸非要入赘受气包](https://www.kangrunwangye.com/book/5k63o5/)
 - [清冷丞相怀了死对头的崽](https://www.kangrunwangye.com/book/5k639h/)
-- [八零恶毒后妈杀疯了](https://www.kangrunwangye.com/book/5k638i/)
+- [卷王后妈，八零养娃](https://www.kangrunwangye.com/book/5k638i/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.kangrunwangye.com/book/5k62ao/)
 - [和山神搭伙开农场的日子](https://www.kangrunwangye.com/book/5k5vv4/)
 - [恶犬攻绑定上司的乖狗系统](https://www.kangrunwangye.com/book/5k5vph/)
@@ -174,7 +171,6 @@
 - [开局绑定郭奉孝，谋定三国风云](https://www.kangrunwangye.com/book/1pl40/)
 - [华夏神明震撼星际](https://www.kangrunwangye.com/book/1pl3q/)
 - [95美国贵族高中模拟](https://www.kangrunwangye.com/book/1pkur/)
-- [猫猫也要养家糊口](https://www.kangrunwangye.com/book/1pkql/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1297/index.md)

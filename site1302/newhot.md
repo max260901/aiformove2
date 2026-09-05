@@ -1,13 +1,14 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-05 03:35:49
+更新时间：2026-09-06 03:36:45
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
 - [七步阁](https://www.revwarny.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.revwarny.com/book/3sgl7sm/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.revwarny.com/book/3sgl7sh/)
 - [全世界名为爱的恶意](https://www.revwarny.com/book/3sgl7sf/)
 - [同时扮演贵族学院F4和平民校花](https://www.revwarny.com/book/3sgl7se/)
@@ -18,6 +19,7 @@
 - [禁止继承限制级雌君](https://www.revwarny.com/book/3sgl7rc/)
 - [[足球]小小鸟堂堂来袭](https://www.revwarny.com/book/3sgl7qv/)
 - [清穿女回来后[天幕]](https://www.revwarny.com/book/3sgl7qn/)
+- [穿为龙傲天发妻后](https://www.revwarny.com/book/3sgl7qk/)
 - [咦？我爸爸复活啦](https://www.revwarny.com/book/3sgl7qf/)
 - [我骗家里的钱养你啊](https://www.revwarny.com/book/3sgl7qe/)
 - [[综英美]让我统治哥谭！！！](https://www.revwarny.com/book/3sgl7q2/)
@@ -27,8 +29,6 @@
 - [暴君偏头痛](https://www.revwarny.com/book/3sgl7nk/)
 - [躲避原书剧情五年后](https://www.revwarny.com/book/3sgl7ni/)
 - [失而复得的白月光[快穿]](https://www.revwarny.com/book/3sgl7ne/)
-- [我的烧烤摊超美味[美食]](https://www.revwarny.com/book/3sgl7m6/)
-- [星际团宠小人鱼](https://www.revwarny.com/book/3sgl7kn/)
 - [[封神]圣人生欲](https://www.revwarny.com/book/3sgl7k8/)
 - [你，后室管理员](https://www.revwarny.com/book/3sgl7j5/)
 - [被四皇错看成小动物后](https://www.revwarny.com/book/3sgl7ij/)
@@ -37,7 +37,6 @@
 - [阴郁路人不想被喜欢](https://www.revwarny.com/book/3sgl7hg/)
 - [纯爱宇智波基本恋爱法](https://www.revwarny.com/book/3sgl7go/)
 - [京秋婚约](https://www.revwarny.com/book/3sgl7eg/)
-- [从异世界穿回来后](https://www.revwarny.com/book/3sgl7dp/)
 - [求生游戏：当邪神成为生活玩家后](https://www.revwarny.com/book/3sgl7d8/)
 - [昭暮](https://www.revwarny.com/book/3sgksji/)
 - [修仙界都为我神魂颠倒](https://www.revwarny.com/book/3sgkiak/)
@@ -404,6 +403,7 @@
 - [失忆后，和五条激情互演](https://www.revwarny.com/book/cegc24/)
 - [救命！猫尾巴藏不住了](https://www.revwarny.com/book/cegc19/)
 - [宇智波的遗产](https://www.revwarny.com/book/cegbuf/)
+- [被阴湿坏女人缠上后](https://www.revwarny.com/book/cegbu6/)
 - [虫族治愈师，但恐虫](https://www.revwarny.com/book/cegbov/)
 - [隔壁班的松田君](https://www.revwarny.com/book/cega3e/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.revwarny.com/book/ceg9o4/)
@@ -415,9 +415,7 @@
 - [我最讨厌打球了！](https://www.revwarny.com/book/ceft9u/)
 - [误入反派培养直播后](https://www.revwarny.com/book/cefqg3/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.revwarny.com/book/cefq58/)
-- [多梦你一会儿](https://www.revwarny.com/book/cefnl1/)
 - [[足球]罗蜜第一志愿](https://www.revwarny.com/book/cefn53/)
-- [和前女友的心上人he了](https://www.revwarny.com/book/cefj2g/)
 - [哥你不能不要我](https://www.revwarny.com/book/cef4gk/)
 ## 相关内容
 - [README](/README.md)

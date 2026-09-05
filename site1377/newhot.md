@@ -1,16 +1,23 @@
 
 # 牛魔王JJ电子书 - 小说阅读网, 全本免费完结小说在线阅读及下载
 
-更新时间：2026-09-05 03:33:30
+更新时间：2026-09-06 03:34:26
 
 牛魔王JJ电子书提供精彩小说阅读服务，包括各种类型的小说排行榜、免费好看的小说等。涵盖穿越小说、都市小说、言情小说、玄幻小说等多种类别，支持全本全集完结小说在线阅读以及TXT下载。
 
 - [牛魔王JJ电子书](https://www.nmwjj.com/)
 
 ## 最新小说
+- [修仙界都为我神魂颠倒](https://www.nmwjj.com/book/18cjlcd/)
+- [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.nmwjj.com/book/18cjl86/)
+- [穿成年代文奇葩前妻](https://www.nmwjj.com/book/18cjl6v/)
+- [限制文中的社畜女beta](https://www.nmwjj.com/book/18cjkoj/)
+- [穿成漫画反派的我又做错了什么](https://www.nmwjj.com/book/18cjkd0/)
+- [[综英美]蝙蝠崽但脆皮](https://www.nmwjj.com/book/18cjk2r/)
 - [这个替嫁让我来！](https://www.nmwjj.com/book/18cjjms/)
 - [我拿的可是反派剧本](https://www.nmwjj.com/book/18cjjh9/)
 - [丧尸王有什么坏心思？](https://www.nmwjj.com/book/18cjj1f/)
+- [穿为龙傲天发妻后](https://www.nmwjj.com/book/18cjhjk/)
 - [自知之明](https://www.nmwjj.com/book/18cjhj9/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.nmwjj.com/book/18cjhih/)
 - [全世界名为爱的恶意](https://www.nmwjj.com/book/18cjhi5/)
@@ -29,7 +36,6 @@
 - [阴郁路人不想被喜欢](https://www.nmwjj.com/book/18cj698/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.nmwjj.com/book/18cj5jg/)
 - [不义世界都是我马甲[综英美]](https://www.nmwjj.com/book/18cj5ba/)
-- [从异世界穿回来后](https://www.nmwjj.com/book/18cj530/)
 - [我有嘉宾](https://www.nmwjj.com/book/18cj4ir/)
 - [[综武侠]风流](https://www.nmwjj.com/book/18cj3p2/)
 - [孤独症崽崽穿越到狗血爽文里[穿书]](https://www.nmwjj.com/book/18cj2kf/)
@@ -38,7 +44,6 @@
 - [怪谈小镇游玩指南[无限]](https://www.nmwjj.com/book/18cj0fd/)
 - [离开那个混蛋后](https://www.nmwjj.com/book/18civmg/)
 - [渡鬼](https://www.nmwjj.com/book/18citmt/)
-- [我的烧烤摊超美味[美食]](https://www.nmwjj.com/book/18citko/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.nmwjj.com/book/18citjm/)
 - [穿成反派的亡夫后[虫族]](https://www.nmwjj.com/book/18cise1/)
 - [氪成酒厂股东了怎么办](https://www.nmwjj.com/book/18cis9u/)
@@ -250,7 +255,6 @@
 - [小亲王他不是吉祥物](https://www.nmwjj.com/book/18cglib/)
 - [娇气包在无限游戏被坏男人骗](https://www.nmwjj.com/book/18cglia/)
 - [糊咖爱豆用动物心声破案](https://www.nmwjj.com/book/18cgler/)
-- [多梦你一会儿](https://www.nmwjj.com/book/18cgld5/)
 - [小傻子［无限］](https://www.nmwjj.com/book/18cglcb/)
 - [这谁的沙雕二次元心声！](https://www.nmwjj.com/book/18cglbq/)
 - [在立海大玩网球模拟器](https://www.nmwjj.com/book/18cgl8t/)
@@ -334,7 +338,6 @@
 - [坏女人绑定攻略系统后](https://www.nmwjj.com/book/18cgdsk/)
 - [汉武帝戾太子什么含金量](https://www.nmwjj.com/book/18cgdpp/)
 - [书穿男主给反派卖萌苟命](https://www.nmwjj.com/book/18cgdml/)
-- [和前女友的心上人he了](https://www.nmwjj.com/book/18cgdln/)
 - [娇嗔](https://www.nmwjj.com/book/18cgdk0/)
 - [关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事](https://www.nmwjj.com/book/18cgdi8/)
 - [被双胞胎竹马轮番娇养](https://www.nmwjj.com/book/18cgdfu/)
@@ -390,6 +393,7 @@
 - [穿成影后的作死前妻](https://www.nmwjj.com/book/18cg9rg/)
 - [举朝上下为我的神仙人设头疼中](https://www.nmwjj.com/book/18cg9pm/)
 - [我最讨厌打球了！](https://www.nmwjj.com/book/18cg9n5/)
+- [被阴湿坏女人缠上后](https://www.nmwjj.com/book/18cg9it/)
 - [直播捏玩具被榜一大哥撅了](https://www.nmwjj.com/book/18cg9fa/)
 - [侯府打工人](https://www.nmwjj.com/book/18cg97o/)
 - [神之子与排球的适配性](https://www.nmwjj.com/book/18cg97h/)
@@ -427,6 +431,7 @@
 - [法外狂猫](https://www.nmwjj.com/book/18cg0a1/)
 - [矩阵干扰](https://www.nmwjj.com/book/18cg072/)
 - [柯学剧本杀，但恋爱流打法](https://www.nmwjj.com/book/18cfvjj/)
+- [欢迎来到重生点](https://www.nmwjj.com/book/18cfuvf/)
 - [好兄弟暴富后非要跟我结婚](https://www.nmwjj.com/book/18cft44/)
 - [我，剑圣，养生中，勿扰](https://www.nmwjj.com/book/18cfr00/)
 - [关于我虚构了一个男友这件事](https://www.nmwjj.com/book/18cfq5m/)
@@ -441,7 +446,6 @@
 - [[封神]圣人生欲](https://www.nmwjj.com/book/18ce5p4/)
 - [纯爱宇智波基本恋爱法](https://www.nmwjj.com/book/18ce5ls/)
 - [误入反派培养直播后](https://www.nmwjj.com/book/18ce594/)
-- [星际团宠小人鱼](https://www.nmwjj.com/book/18ce52v/)
 - [高调装神，猥琐发育](https://www.nmwjj.com/book/18ce4lp/)
 - [被四皇错看成小动物后](https://www.nmwjj.com/book/18ce4g3/)
 ## 相关内容
