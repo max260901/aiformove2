@@ -1,7 +1,7 @@
 
 # 都来读小说网 - 免费电子书阅读平台
 
-更新时间：2026-09-05 03:38:57
+更新时间：2026-09-06 03:39:50
 
 都来读小说网提供快速更新的海量免费小说资源，主要以TXT格式为主，致力于为读者带来优质的阅读体验。
 
@@ -14,10 +14,10 @@
 - [自知之明](https://www.swazs.com/book/1u7kis3/)
 - [清穿女回来后[天幕]](https://www.swazs.com/book/1u7kis2/)
 - [禁止继承限制级雌君](https://www.swazs.com/book/1u7kir7/)
+- [穿为龙傲天发妻后](https://www.swazs.com/book/1u7kiq3/)
 - [娇气点怎么啦？［快穿］](https://www.swazs.com/book/1u7kilk/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.swazs.com/book/1u7khtg/)
 - [不义世界都是我马甲[综英美]](https://www.swazs.com/book/1u7khmk/)
-- [从异世界穿回来后](https://www.swazs.com/book/1u7kgfs/)
 - [[综武侠]风流](https://www.swazs.com/book/1u7kg1t/)
 - [我有嘉宾](https://www.swazs.com/book/1u7kf01/)
 - [孤独症崽崽穿越到狗血爽文里[穿书]](https://www.swazs.com/book/1u7kevs/)
@@ -51,7 +51,6 @@
 - [[足球]葡萄牙世界杯if线](https://www.swazs.com/book/1u7j8ar/)
 - [我在无限游戏里假扮NPC[无限流]](https://www.swazs.com/book/1u7j88c/)
 - [女装生崽，娃爹宇智波](https://www.swazs.com/book/1u7j7nk/)
-- [我的烧烤摊超美味[美食]](https://www.swazs.com/book/1u7j753/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.swazs.com/book/1u7j6vq/)
 - [优质攻不做恋爱脑[快穿]](https://www.swazs.com/book/1u7j6qk/)
 - [渡鬼](https://www.swazs.com/book/1u7j6ng/)
@@ -225,7 +224,6 @@
 - [在情敌变情人文里当炮灰](https://www.swazs.com/book/1u7i508/)
 - [摆烂后我成了邪神学院大佬](https://www.swazs.com/book/1u7i4o6/)
 - [父皇，我是gay](https://www.swazs.com/book/1u7i4bn/)
-- [多梦你一会儿](https://www.swazs.com/book/1u7i494/)
 - [强爱清冷O后她上瘾了[快穿]](https://www.swazs.com/book/1u7i45g/)
 - [荒谬神父是个渣](https://www.swazs.com/book/1u7i445/)
 - [蜜蜂膝盖银子弹](https://www.swazs.com/book/1u7i3va/)
@@ -269,7 +267,6 @@
 - [揍敌客大小姐好难攻略](https://www.swazs.com/book/1u7hvcf/)
 - [如何登顶反派第一](https://www.swazs.com/book/1u7hv7f/)
 - [恶毒女配是绝色美人[快穿]](https://www.swazs.com/book/1u7hv68/)
-- [和前女友的心上人he了](https://www.swazs.com/book/1u7hv5a/)
 - [[足球]能不能好好模拟游戏](https://www.swazs.com/book/1u7hv04/)
 - [限时心动](https://www.swazs.com/book/1u7huvs/)
 - [一觉醒来老公变男大了](https://www.swazs.com/book/1u7huu1/)
@@ -392,6 +389,7 @@
 - [[崩铁]自恋值拉满穿越被水仙了](https://www.swazs.com/book/1u7hm77/)
 - [放开那个黑暗哨兵！](https://www.swazs.com/book/1u7hm4t/)
 - [撕毁女配剧本的我被神之子读心了](https://www.swazs.com/book/1u7hm28/)
+- [被阴湿坏女人缠上后](https://www.swazs.com/book/1u7hm08/)
 - [神之子与排球的适配性](https://www.swazs.com/book/1u7hlu4/)
 - [请问夫君你哪位](https://www.swazs.com/book/1u7hlt2/)
 - [咒术师，但队友是侦探](https://www.swazs.com/book/1u7hls7/)
@@ -425,13 +423,15 @@
 - [柯学剧本杀，但恋爱流打法](https://www.swazs.com/book/1u7hiue/)
 - [好巧，你也是妹控？[综崩铁]](https://www.swazs.com/book/1u7hih2/)
 - [我，剑圣，养生中，勿扰](https://www.swazs.com/book/1u7hi0l/)
+- [欢迎来到重生点](https://www.swazs.com/book/1u7hgth/)
 - [李玉灯](https://www.swazs.com/book/1u7hgsv/)
 - [盛夏晴浓](https://www.swazs.com/book/1u7hf8g/)
 - [等我吃腻了再倒闭可以吗](https://www.swazs.com/book/1u7heun/)
 - [[综英美]和亲友群穿哥谭以后](https://www.swazs.com/book/1u7hcuo/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.swazs.com/book/1u7hc1v/)
 - [自大狂](https://www.swazs.com/book/1u7h1ru/)
-- [星际团宠小人鱼](https://www.swazs.com/book/1u7fi8l/)
+- [书呆子扮演渣攻翻车【快穿】](https://www.swazs.com/book/1u7gsnb/)
+- [丧尸老婆喂养日记](https://www.swazs.com/book/1u7ghe1/)
 - [被四皇错看成小动物后](https://www.swazs.com/book/1u7fi8k/)
 - [你，后室管理员](https://www.swazs.com/book/1u7fgu9/)
 - [误入反派培养直播后](https://www.swazs.com/book/1u7fgog/)

@@ -1,13 +1,15 @@
 
 # 灌南华侨小说网笔趣阁_书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-05 03:26:43
+更新时间：2026-09-06 03:27:37
 
 灌南华侨小说网笔趣阁海量免费小说在线阅读平台，汇聚玄幻、都市、言情、科幻、悬疑等全品类热门小说，实时更新全网爆款佳作。无广告干扰，支持缓存离线看，让你随时随地沉浸阅读世界，找书看书就来笔趣阁，满足你的所有阅读渴望。
 
 - [灌南华侨小说网](https://www.gnhqbs.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.gnhqbs.com/book/1cqms3o/)
+- [和八个男人在极寒游戏求生](https://www.gnhqbs.com/book/1cqms3n/)
 - [烈火焚身[巴黎圣母院]](https://www.gnhqbs.com/book/1cqms3m/)
 - [我们小区穿末世](https://www.gnhqbs.com/book/1cqms3l/)
 - [星露谷，但日本战国](https://www.gnhqbs.com/book/1cqms3k/)
@@ -60,7 +62,6 @@
 - [[洪荒]成为太清妹妹后](https://www.gnhqbs.com/book/1cqms24/)
 - [仙尊心尖宠，但被魔尊抢了](https://www.gnhqbs.com/book/1cqms23/)
 - [万人嫌从末世回来了](https://www.gnhqbs.com/book/1cqms22/)
-- [自知之明](https://www.gnhqbs.com/book/1cqms21/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.gnhqbs.com/book/1cqms20/)
 - [魔改剧本后我爆火了[娱乐圈]](https://www.gnhqbs.com/book/1cqms1v/)
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.gnhqbs.com/book/1cqms1u/)
@@ -108,7 +109,6 @@
 - [开局绑定郭奉孝，谋定三国风云](https://www.gnhqbs.com/book/1cqk1s0/)
 - [苏娘子汴京摆摊日常（美食）](https://www.gnhqbs.com/book/1cqk177/)
 - [路人攻了主角攻［快穿］](https://www.gnhqbs.com/book/1cqk0lc/)
-- [[综英美]让我统治哥谭！！！](https://www.gnhqbs.com/book/1cqk00b/)
 - [直男咒术师的限制级游戏](https://www.gnhqbs.com/book/1cqjukk/)
 - [我有一座地下城](https://www.gnhqbs.com/book/1cqjs0v/)
 - [漂亮女配是万人迷［快穿］](https://www.gnhqbs.com/book/1cqjqc0/)
@@ -136,19 +136,17 @@
 - [清冷丞相怀了死对头的崽](https://www.gnhqbs.com/book/1cqipra/)
 - [村霸非要入赘受气包](https://www.gnhqbs.com/book/1cqioor/)
 - [和山神搭伙开农场的日子](https://www.gnhqbs.com/book/1cqiom3/)
-- [娶了女装心机太子](https://www.gnhqbs.com/book/1cqio8e/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.gnhqbs.com/book/1cqinpq/)
 - [[综英美]和亲友群穿哥谭以后](https://www.gnhqbs.com/book/1cqim23/)
 - [被糟蹋的老实人决定反击](https://www.gnhqbs.com/book/1cqilsk/)
 - [假意逢承](https://www.gnhqbs.com/book/1cqijjc/)
 - [恶犬攻绑定上司的乖狗系统](https://www.gnhqbs.com/book/1cqifc3/)
 - [权宋一只统](https://www.gnhqbs.com/book/1cqie5l/)
-- [绝不会喜欢五条君的！](https://www.gnhqbs.com/book/1cqiaq9/)
 - [爱好和平但狂拆机甲](https://www.gnhqbs.com/book/1cqi946/)
 - [你让魔王组建勇者小队？](https://www.gnhqbs.com/book/1cqi5e7/)
 - [十九世纪贵族厨房（美食）](https://www.gnhqbs.com/book/1cqha97/)
 - [[封神]圣人生欲](https://www.gnhqbs.com/book/1cqha6t/)
-- [八零恶毒后妈杀疯了](https://www.gnhqbs.com/book/1cqha4m/)
+- [卷王后妈，八零养娃](https://www.gnhqbs.com/book/1cqha4m/)
 - [星际团宠小人鱼](https://www.gnhqbs.com/book/1cqh9or/)
 - [六零之成了卷王的妹妹](https://www.gnhqbs.com/book/1cqh9o0/)
 - [高调装神，猥琐发育](https://www.gnhqbs.com/book/1cqh9jg/)
@@ -162,9 +160,8 @@
 - [九零首富的替嫁小媳妇](https://www.gnhqbs.com/book/1cqh8lf/)
 - [[娱乐圈]过分美丽的她](https://www.gnhqbs.com/book/1cqh8hn/)
 - [全民求生:从小木屋到魔法农场](https://www.gnhqbs.com/book/1cqh8h9/)
-- [古代种田养娃日常](https://www.gnhqbs.com/book/1cqh8d4/)
 - [大瑛弟国](https://www.gnhqbs.com/book/1cqh8ai/)
-- [假少爷不想活了](https://www.gnhqbs.com/book/1cqh837/)
+- [假少爷离开后](https://www.gnhqbs.com/book/1cqh837/)
 - [日化人生[科研]](https://www.gnhqbs.com/book/1cqh7s4/)
 - [清澈女大的六零年代](https://www.gnhqbs.com/book/1cqh7ov/)
 - [五十年代港城日常](https://www.gnhqbs.com/book/1cqh7jf/)
@@ -173,7 +170,6 @@
 - [巨物致富：回乡开钓场](https://www.gnhqbs.com/book/1cqh7ar/)
 - [趁她之危](https://www.gnhqbs.com/book/1cqh7a2/)
 - [高门小婢](https://www.gnhqbs.com/book/1cqh76i/)
-- [猫猫也要养家糊口](https://www.gnhqbs.com/book/1cqh75t/)
 - [成为养成系练习生后](https://www.gnhqbs.com/book/1cqh732/)
 ## 相关内容
 - [README](/README.md)

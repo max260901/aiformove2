@@ -1,13 +1,15 @@
 
 # 耽美小说网 - 最热门的耽美小说在线阅读
 
-更新时间：2026-09-05 03:33:45
+更新时间：2026-09-06 03:34:40
 
 耽美小说网是一个广大书友喜欢的小说网，免费为您提供热门耽美小说、女生小说、都市言情小说无弹窗在线阅读和txt下载。
 
 - [耽美小说网](https://www.nvwagen.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.nvwagen.com/book/8u4j8cb/)
+- [和八个男人在极寒游戏求生](https://www.nvwagen.com/book/8u4j8c4/)
 - [在年代文里跑运输](https://www.nvwagen.com/book/8u4j512/)
 - [死遁APP](https://www.nvwagen.com/book/8u4j511/)
 - [[全职高手]治疗什么的不干了！](https://www.nvwagen.com/book/8u4j50p/)
@@ -23,7 +25,6 @@
 - [魔尊闭关十年连生十一子？！](https://www.nvwagen.com/book/8u4j504/)
 - [前妻她肯定会后悔](https://www.nvwagen.com/book/8u4j4vu/)
 - [魔法种田，从退队经营农场开始](https://www.nvwagen.com/book/8u4j4vt/)
-- [自知之明](https://www.nvwagen.com/book/8u4j4vq/)
 - [国运求生：我的金手指是生命树](https://www.nvwagen.com/book/8u4j4vp/)
 - [专业女配的自我修养（快穿）](https://www.nvwagen.com/book/8u4j4vo/)
 - [怨明月不独照](https://www.nvwagen.com/book/8u4j4vn/)
@@ -103,7 +104,6 @@
 - [死对头又在挑衅我](https://www.nvwagen.com/book/8u4h1h4/)
 - [沈助理又在隐藏他的超能力](https://www.nvwagen.com/book/8u4h1gk/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.nvwagen.com/book/8u4h12r/)
-- [[综英美]让我统治哥谭！！！](https://www.nvwagen.com/book/8u4h0ik/)
 - [开局绑定郭奉孝，谋定三国风云](https://www.nvwagen.com/book/8u4gvqm/)
 - [我司艺人永不塌房](https://www.nvwagen.com/book/8u4grri/)
 - [如何嫁给当朝首辅](https://www.nvwagen.com/book/8u4gr98/)
@@ -142,18 +142,14 @@
 - [恶犬攻绑定上司的乖狗系统](https://www.nvwagen.com/book/8u4f9e8/)
 - [权宋一只统](https://www.nvwagen.com/book/8u4f8tu/)
 - [娘娘扶摇直上](https://www.nvwagen.com/book/8u4f884/)
-- [绝不会喜欢五条君的！](https://www.nvwagen.com/book/8u4f7h7/)
 - [爱好和平但狂拆机甲](https://www.nvwagen.com/book/8u4f46i/)
 - [你让魔王组建勇者小队？](https://www.nvwagen.com/book/8u4f1on/)
-- [假少爷不想活了](https://www.nvwagen.com/book/8u4e4or/)
-- [古代种田养娃日常](https://www.nvwagen.com/book/8u4e4i1/)
+- [假少爷离开后](https://www.nvwagen.com/book/8u4e4or/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.nvwagen.com/book/8u4e4dp/)
 - [巨物致富：回乡开钓场](https://www.nvwagen.com/book/8u4e47u/)
 - [十九世纪贵族厨房（美食）](https://www.nvwagen.com/book/8u4e41v/)
-- [八零恶毒后妈杀疯了](https://www.nvwagen.com/book/8u4e41l/)
+- [卷王后妈，八零养娃](https://www.nvwagen.com/book/8u4e41l/)
 - [海岛求生：生活玩家种田囤货](https://www.nvwagen.com/book/8u4e3vj/)
-- [娶了女装心机太子](https://www.nvwagen.com/book/8u4e3ul/)
-- [猫猫也要养家糊口](https://www.nvwagen.com/book/8u4e3jq/)
 - [始乱终弃清冷首辅后](https://www.nvwagen.com/book/8u4e3f7/)
 - [我有一座安全城](https://www.nvwagen.com/book/8u4e3e5/)
 - [在民俗惊悚片被诸神庇护](https://www.nvwagen.com/book/8u4e3dp/)

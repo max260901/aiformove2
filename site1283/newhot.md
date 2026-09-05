@@ -1,13 +1,14 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-05 03:24:25
+更新时间：2026-09-06 03:25:15
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
 - [书包网](https://www.cialisgs.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.cialisgs.com/book/89ru3ql/)
 - [[足球]小小鸟堂堂来袭](https://www.cialisgs.com/book/89ru3qa/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.cialisgs.com/book/89ru3q4/)
 - [全世界名为爱的恶意](https://www.cialisgs.com/book/89ru3q3/)
@@ -20,6 +21,7 @@
 - [同时扮演贵族学院F4和平民校花](https://www.cialisgs.com/book/89ru3or/)
 - [自知之明](https://www.cialisgs.com/book/89ru3oi/)
 - [我骗家里的钱养你啊](https://www.cialisgs.com/book/89ru3ob/)
+- [穿为龙傲天发妻后](https://www.cialisgs.com/book/89ru3o9/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.cialisgs.com/book/89ru3o1/)
 - [暴君偏头痛](https://www.cialisgs.com/book/89ru3nq/)
 - [[综英美]让我统治哥谭！！！](https://www.cialisgs.com/book/89ru3n0/)
@@ -27,12 +29,9 @@
 - [青城玩家明明超强却过分谨慎](https://www.cialisgs.com/book/89ru3m6/)
 - [躲避原书剧情五年后](https://www.cialisgs.com/book/89ru3lp/)
 - [渡鬼](https://www.cialisgs.com/book/89ru3k8/)
-- [我的烧烤摊超美味[美食]](https://www.cialisgs.com/book/89ru3j4/)
-- [星际团宠小人鱼](https://www.cialisgs.com/book/89ru3is/)
 - [被四皇错看成小动物后](https://www.cialisgs.com/book/89ru3im/)
 - [你，后室管理员](https://www.cialisgs.com/book/89ru3hl/)
 - [[封神]圣人生欲](https://www.cialisgs.com/book/89ru3h9/)
-- [从异世界穿回来后](https://www.cialisgs.com/book/89ru3fd/)
 - [高调装神，猥琐发育](https://www.cialisgs.com/book/89ru3ed/)
 - [京秋婚约](https://www.cialisgs.com/book/89ru3ca/)
 - [直男咒术师的限制级游戏](https://www.cialisgs.com/book/89ru3bn/)
@@ -394,6 +393,7 @@
 - [举朝上下为我的神仙人设头疼中](https://www.cialisgs.com/book/qiqs6s/)
 - [咒术师，但队友是侦探](https://www.cialisgs.com/book/qiqs3r/)
 - [关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事](https://www.cialisgs.com/book/qiqs1j/)
+- [被阴湿坏女人缠上后](https://www.cialisgs.com/book/qiqruo/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.cialisgs.com/book/qiqrqo/)
 - [神之子与排球的适配性](https://www.cialisgs.com/book/qiqre3/)
 - [[足球]在比利时我们只玩天赋](https://www.cialisgs.com/book/qiqrdo/)
@@ -415,8 +415,6 @@
 - [误入反派培养直播后](https://www.cialisgs.com/book/qiq9o8/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.cialisgs.com/book/qiq8en/)
 - [[足球]罗蜜第一志愿](https://www.cialisgs.com/book/qiq7jp/)
-- [多梦你一会儿](https://www.cialisgs.com/book/qiq6i6/)
-- [和前女友的心上人he了](https://www.cialisgs.com/book/qiq1ii/)
 - [哥你不能不要我](https://www.cialisgs.com/book/qipjq5/)
 ## 相关内容
 - [README](/README.md)

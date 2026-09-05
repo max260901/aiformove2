@@ -1,7 +1,7 @@
 
 # 读者电子书-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-09-05 03:25:27
+更新时间：2026-09-06 03:26:19
 
 读者电子书提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
 
@@ -14,6 +14,7 @@
 - [自知之明](https://www.duzhe368.com/book/3hfvb62/)
 - [全世界名为爱的恶意](https://www.duzhe368.com/book/3hfvb52/)
 - [等我吃腻了再倒闭可以吗](https://www.duzhe368.com/book/3hfvb4r/)
+- [穿为龙傲天发妻后](https://www.duzhe368.com/book/3hfvb3u/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.duzhe368.com/book/3hfvb3m/)
 - [[综英美]和亲友群穿哥谭以后](https://www.duzhe368.com/book/3hfvb2o/)
 - [修仙界都为我神魂颠倒](https://www.duzhe368.com/book/3hfv934/)
@@ -30,12 +31,10 @@
 - [渣攻他疯了［快穿］](https://www.duzhe368.com/book/3hfv1p3/)
 - [[足球]番外乐子集](https://www.duzhe368.com/book/3hfv1l7/)
 - [我超凶的！[快穿]](https://www.duzhe368.com/book/3hfuvqk/)
-- [我的烧烤摊超美味[美食]](https://www.duzhe368.com/book/3hfuv1k/)
 - [渡鬼](https://www.duzhe368.com/book/3hfuv0d/)
 - [我比反派先崩坏[快穿]](https://www.duzhe368.com/book/3hfuuvf/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.duzhe368.com/book/3hfuuu3/)
 - [cos温迪后玩到真崩铁了](https://www.duzhe368.com/book/3hfuqj6/)
-- [从异世界穿回来后](https://www.duzhe368.com/book/3hfuqcp/)
 - [我有嘉宾](https://www.duzhe368.com/book/3hfuq0m/)
 - [娇气点怎么啦？［快穿］](https://www.duzhe368.com/book/3hfupvm/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.duzhe368.com/book/3hfup8d/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.duzhe368.com/book/3hfu4a1/)
 - [昭暮](https://www.duzhe368.com/book/3hfu3i1/)
 - [你，后室管理员](https://www.duzhe368.com/book/3hfu04u/)
-- [星际团宠小人鱼](https://www.duzhe368.com/book/3hfu02v/)
 - [高调装神，猥琐发育](https://www.duzhe368.com/book/3hftp55/)
 - [[足球]葡萄牙世界杯if线](https://www.duzhe368.com/book/3hfti3v/)
 - [渣过我的主角全都重生了[快穿]](https://www.duzhe368.com/book/3hfthuq/)
@@ -295,7 +293,6 @@
 - [异种大食堂[无限]](https://www.duzhe368.com/book/3hfs4ls/)
 - [[综英美]如何获得地球户口](https://www.duzhe368.com/book/3hfs4fj/)
 - [炮灰的我该如何上位？](https://www.duzhe368.com/book/3hfs4e4/)
-- [多梦你一会儿](https://www.duzhe368.com/book/3hfs4ds/)
 - [佐久早才不是洁癖！](https://www.duzhe368.com/book/3hfs480/)
 - [[封神]圣人生欲](https://www.duzhe368.com/book/3hfs47l/)
 - [修仙回来后开了间民宿](https://www.duzhe368.com/book/3hfs457/)
@@ -358,7 +355,6 @@
 - [三岁崽崽带龙王爸爸上综艺爆红](https://www.duzhe368.com/book/3hfs08v/)
 - [超忆症大佬在古代破案](https://www.duzhe368.com/book/3hfs08f/)
 - [忍界观察日记](https://www.duzhe368.com/book/3hfs07j/)
-- [和前女友的心上人he了](https://www.duzhe368.com/book/3hfs06p/)
 - [樋口干部不干了](https://www.duzhe368.com/book/3hfs061/)
 - [龙傲天未婚妻不退婚了](https://www.duzhe368.com/book/3hfs009/)
 - [经纪人砸钱整顿内娱爆火了](https://www.duzhe368.com/book/3hfrvte/)
@@ -407,6 +403,7 @@
 - [末世山居日常](https://www.duzhe368.com/book/3hfrs7m/)
 - [直播捏玩具被榜一大哥撅了](https://www.duzhe368.com/book/3hfrs58/)
 - [高冷影后逼我标记她](https://www.duzhe368.com/book/3hfrs4u/)
+- [被阴湿坏女人缠上后](https://www.duzhe368.com/book/3hfrs3d/)
 - [某柯学的正义伙伴](https://www.duzhe368.com/book/3hfrrvq/)
 - [国舅太难追了](https://www.duzhe368.com/book/3hfrrvi/)
 - [请问夫君你哪位](https://www.duzhe368.com/book/3hfrroa/)
@@ -429,6 +426,7 @@
 - [盛夏晴浓](https://www.duzhe368.com/book/3hfrgik/)
 - [[足球]小小鸟堂堂来袭](https://www.duzhe368.com/book/3hfrfn9/)
 - [好巧，你也是妹控？[综崩铁]](https://www.duzhe368.com/book/3hfrefe/)
+- [欢迎来到重生点](https://www.duzhe368.com/book/3hfre19/)
 - [青城玩家明明超强却过分谨慎](https://www.duzhe368.com/book/3hfrdtr/)
 - [好兄弟暴富后非要跟我结婚](https://www.duzhe368.com/book/3hfrbc3/)
 - [暴君偏头痛](https://www.duzhe368.com/book/3hfraua/)

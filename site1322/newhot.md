@@ -1,16 +1,18 @@
 
 # 文学小说网手机版_好看的文学小说TXT下载,无弹窗手机小说网
 
-更新时间：2026-09-05 03:40:43
+更新时间：2026-09-06 03:41:34
 
 文学小说网收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者最值得收藏的网络小说阅读网,精彩小说尽在文学小说网(无弹窗小说网)。
 
 - [文学小说网](https://www.wenxue521.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.wenxue521.com/book/93olskk/)
 - [禁止继承限制级雌君](https://www.wenxue521.com/book/93olskf/)
 - [等我吃腻了再倒闭可以吗](https://www.wenxue521.com/book/93olske/)
 - [同时扮演贵族学院F4和平民校花](https://www.wenxue521.com/book/93olsjp/)
+- [穿为龙傲天发妻后](https://www.wenxue521.com/book/93olsjo/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.wenxue521.com/book/93olsjm/)
 - [自知之明](https://www.wenxue521.com/book/93olsjl/)
 - [[综英美]和亲友群穿哥谭以后](https://www.wenxue521.com/book/93olsj8/)
@@ -20,7 +22,6 @@
 - [我骗家里的钱养你啊](https://www.wenxue521.com/book/93olsip/)
 - [[足球]小小鸟堂堂来袭](https://www.wenxue521.com/book/93olsi9/)
 - [清穿女回来后[天幕]](https://www.wenxue521.com/book/93olsi8/)
-- [从异世界穿回来后](https://www.wenxue521.com/book/93olshq/)
 - [躲避原书剧情五年后](https://www.wenxue521.com/book/93olshp/)
 - [渡鬼](https://www.wenxue521.com/book/93olshk/)
 - [青城玩家明明超强却过分谨慎](https://www.wenxue521.com/book/93olsg6/)
@@ -28,10 +29,8 @@
 - [失而复得的白月光[快穿]](https://www.wenxue521.com/book/93olsfu/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wenxue521.com/book/93olsfl/)
 - [暴君偏头痛](https://www.wenxue521.com/book/93olsev/)
-- [我的烧烤摊超美味[美食]](https://www.wenxue521.com/book/93olsdm/)
 - [你，后室管理员](https://www.wenxue521.com/book/93olscq/)
 - [被四皇错看成小动物后](https://www.wenxue521.com/book/93olsci/)
-- [星际团宠小人鱼](https://www.wenxue521.com/book/93olsc5/)
 - [[封神]圣人生欲](https://www.wenxue521.com/book/93olsba/)
 - [高调装神，猥琐发育](https://www.wenxue521.com/book/93olsaf/)
 - [直男咒术师的限制级游戏](https://www.wenxue521.com/book/93ols9s/)
@@ -402,6 +401,7 @@
 - [作家与读者](https://www.wenxue521.com/book/t5mr03/)
 - [忍界观察日记](https://www.wenxue521.com/book/t5mqr4/)
 - [隔壁班的松田君](https://www.wenxue521.com/book/t5mqkc/)
+- [被阴湿坏女人缠上后](https://www.wenxue521.com/book/t5mqbo/)
 - [无能的丈夫们](https://www.wenxue521.com/book/t5mq7u/)
 - [[足球]在比利时我们只玩天赋](https://www.wenxue521.com/book/t5mq69/)
 - [当了卧底的我发现遍地熟人](https://www.wenxue521.com/book/t5mq55/)
@@ -413,11 +413,9 @@
 - [这谁的沙雕二次元心声！](https://www.wenxue521.com/book/t5mjaj/)
 - [老公是松散生命体](https://www.wenxue521.com/book/t5mit0/)
 - [我最讨厌打球了！](https://www.wenxue521.com/book/t5mdcm/)
-- [多梦你一会儿](https://www.wenxue521.com/book/t5m9h9/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.wenxue521.com/book/t5m8s5/)
 - [误入反派培养直播后](https://www.wenxue521.com/book/t5m6s8/)
 - [[足球]罗蜜第一志愿](https://www.wenxue521.com/book/t5m68n/)
-- [和前女友的心上人he了](https://www.wenxue521.com/book/t5m0b9/)
 - [哥你不能不要我](https://www.wenxue521.com/book/t5lihi/)
 ## 相关内容
 - [README](/README.md)

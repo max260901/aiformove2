@@ -1,7 +1,7 @@
 
 # 泡泡中文小说-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-05 03:43:36
+更新时间：2026-09-06 03:44:25
 
 泡泡中文小说是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -13,6 +13,7 @@
 - [等我吃腻了再倒闭可以吗](https://www.xiaoshuo288.com/book/dm3vc5/)
 - [这个替嫁让我来！](https://www.xiaoshuo288.com/book/dm3vbb/)
 - [禁止继承限制级雌君](https://www.xiaoshuo288.com/book/dm3vba/)
+- [穿为龙傲天发妻后](https://www.xiaoshuo288.com/book/dm3vav/)
 - [[综英美]和亲友群穿哥谭以后](https://www.xiaoshuo288.com/book/dm3v9n/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.xiaoshuo288.com/book/dm3v96/)
 - [自知之明](https://www.xiaoshuo288.com/book/dm3v8u/)
@@ -31,11 +32,9 @@
 - [[足球]番外乐子集](https://www.xiaoshuo288.com/book/dm3lps/)
 - [我超凶的！[快穿]](https://www.xiaoshuo288.com/book/dm3ju7/)
 - [渡鬼](https://www.xiaoshuo288.com/book/dm3j3u/)
-- [我的烧烤摊超美味[美食]](https://www.xiaoshuo288.com/book/dm3j3r/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xiaoshuo288.com/book/dm3j3e/)
 - [我比反派先崩坏[快穿]](https://www.xiaoshuo288.com/book/dm3j2u/)
 - [cos温迪后玩到真崩铁了](https://www.xiaoshuo288.com/book/dm3en4/)
-- [从异世界穿回来后](https://www.xiaoshuo288.com/book/dm3ehk/)
 - [我有嘉宾](https://www.xiaoshuo288.com/book/dm3e6i/)
 - [娇气点怎么啦？［快穿］](https://www.xiaoshuo288.com/book/dm3e5a/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.xiaoshuo288.com/book/dm3de1/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.xiaoshuo288.com/book/dm2oi3/)
 - [昭暮](https://www.xiaoshuo288.com/book/dm2nph/)
 - [你，后室管理员](https://www.xiaoshuo288.com/book/dm2ke8/)
-- [星际团宠小人鱼](https://www.xiaoshuo288.com/book/dm2k9m/)
 - [高调装神，猥琐发育](https://www.xiaoshuo288.com/book/dm2dan/)
 - [伪装路人后成了反派首领](https://www.xiaoshuo288.com/book/dm262n/)
 - [渣过我的主角全都重生了[快穿]](https://www.xiaoshuo288.com/book/dm260g/)
@@ -298,7 +296,6 @@
 - [金发室友有肌肤饥渴症](https://www.xiaoshuo288.com/book/dm0okt/)
 - [主角对你极度痴迷](https://www.xiaoshuo288.com/book/dm0oka/)
 - [修仙回来后开了间民宿](https://www.xiaoshuo288.com/book/dm0oj3/)
-- [多梦你一会儿](https://www.xiaoshuo288.com/book/dm0oh0/)
 - [[综英美]穿越后和小红鸟灵魂互换了](https://www.xiaoshuo288.com/book/dm0ode/)
 - [[综英美]让我统治哥谭！！！](https://www.xiaoshuo288.com/book/dm0od3/)
 - [限时心动](https://www.xiaoshuo288.com/book/dm0oar/)
@@ -355,7 +352,6 @@
 - [女帝起家前录](https://www.xiaoshuo288.com/book/dm0kqq/)
 - [重生之哑妻](https://www.xiaoshuo288.com/book/dm0kkn/)
 - [丧尸闻了闻你的恋爱脑](https://www.xiaoshuo288.com/book/dm0kg4/)
-- [和前女友的心上人he了](https://www.xiaoshuo288.com/book/dm0kfo/)
 - [龙傲天未婚妻不退婚了](https://www.xiaoshuo288.com/book/dm0kdq/)
 - [养个诡异当老婆](https://www.xiaoshuo288.com/book/dm0ka8/)
 - [校草的漂亮亲妈](https://www.xiaoshuo288.com/book/dm0k83/)
@@ -406,6 +402,7 @@
 - [救命！猫尾巴藏不住了](https://www.xiaoshuo288.com/book/dm0gvb/)
 - [我靠玛丽苏系统伪装神女](https://www.xiaoshuo288.com/book/dm0gs0/)
 - [国舅太难追了](https://www.xiaoshuo288.com/book/dm0gl4/)
+- [被阴湿坏女人缠上后](https://www.xiaoshuo288.com/book/dm0gho/)
 - [穿成影后的作死前妻](https://www.xiaoshuo288.com/book/dm0ggm/)
 - [让我再吃一口](https://www.xiaoshuo288.com/book/dm0ge3/)
 - [举朝上下为我的神仙人设头疼中](https://www.xiaoshuo288.com/book/dm0fpd/)
@@ -429,6 +426,7 @@
 - [幼崽假少爷选择回归寒门](https://www.xiaoshuo288.com/book/dm04sq/)
 - [[足球]小小鸟堂堂来袭](https://www.xiaoshuo288.com/book/dm03uc/)
 - [青城玩家明明超强却过分谨慎](https://www.xiaoshuo288.com/book/dm01s4/)
+- [欢迎来到重生点](https://www.xiaoshuo288.com/book/dm01g2/)
 - [好巧，你也是妹控？[综崩铁]](https://www.xiaoshuo288.com/book/dm014c/)
 - [暴君偏头痛](https://www.xiaoshuo288.com/book/dlvvdh/)
 - [自大狂](https://www.xiaoshuo288.com/book/dlvurq/)

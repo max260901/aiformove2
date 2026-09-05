@@ -1,13 +1,15 @@
 
 # 看剧文学网 - 书友最值得收藏的小说阅读网
 
-更新时间：2026-09-05 03:29:57
+更新时间：2026-09-06 03:30:54
 
 看剧文学网，精选最好看的小说推荐给大家在线阅读。这里有网络小说大全，包括最火、最热门的小说最新章节，是书友最值得收藏的免费小说阅读网。
 
 - [看剧文学网](https://www.kanju788.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.kanju788.com/book/to4ujo/)
+- [揣崽丧夫后被情敌强娶了](https://www.kanju788.com/book/to4ujn/)
 - [全民求生，但剑三](https://www.kanju788.com/book/to4ujm/)
 - [谁都不爱的和亲公主](https://www.kanju788.com/book/to4ujl/)
 - [乖乖女的杂货铺[八零]](https://www.kanju788.com/book/to4ujj/)
@@ -42,7 +44,6 @@
 - [万人嫌从末世回来了](https://www.kanju788.com/book/to4uhd/)
 - [穿为龙傲天发妻后](https://www.kanju788.com/book/to4uh8/)
 - [谁说踢球就不能成为名侦探[足球]](https://www.kanju788.com/book/to4uh7/)
-- [自知之明](https://www.kanju788.com/book/to4uh6/)
 - [魔咒请说普通话[西幻]](https://www.kanju788.com/book/to4uh4/)
 - [失忆后和死对头有了崽](https://www.kanju788.com/book/to4uh3/)
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.kanju788.com/book/to4uh2/)
@@ -123,11 +124,10 @@
 - [阴阳师也可以打网球](https://www.kanju788.com/book/to1o62/)
 - [和治君只是饭搭子的关系](https://www.kanju788.com/book/to1o1l/)
 - [和贵志君是世界第一的好朋友](https://www.kanju788.com/book/to1nvb/)
-- [[综英美]让我统治哥谭！！！](https://www.kanju788.com/book/to1nli/)
 - [如何嫁给当朝首辅](https://www.kanju788.com/book/to1mtg/)
 - [多梦你一会儿](https://www.kanju788.com/book/to1mpi/)
 - [在魔法贵族学院当白月光](https://www.kanju788.com/book/to1kuf/)
-- [八零恶毒后妈杀疯了](https://www.kanju788.com/book/to1kpb/)
+- [卷王后妈，八零养娃](https://www.kanju788.com/book/to1kpb/)
 - [五条老师与他的封建妻子](https://www.kanju788.com/book/to1kml/)
 - [我司艺人永不塌房](https://www.kanju788.com/book/to1jc4/)
 - [我187了，你敢见我吗？](https://www.kanju788.com/book/to1iut/)
@@ -143,7 +143,6 @@
 - [趁她之危](https://www.kanju788.com/book/to0ure/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.kanju788.com/book/to0tja/)
 - [这个位面归我了！[经营]](https://www.kanju788.com/book/to0sg4/)
-- [娶了女装心机太子](https://www.kanju788.com/book/to0s85/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.kanju788.com/book/to0r87/)
 - [村霸非要入赘受气包](https://www.kanju788.com/book/to0r06/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.kanju788.com/book/to0qcb/)
@@ -154,14 +153,12 @@
 - [恶犬攻绑定上司的乖狗系统](https://www.kanju788.com/book/to0iqt/)
 - [权宋一只统](https://www.kanju788.com/book/to0ff6/)
 - [爱好和平但狂拆机甲](https://www.kanju788.com/book/to0959/)
-- [假少爷不想活了](https://www.kanju788.com/book/tnvdfj/)
-- [绝不会喜欢五条君的！](https://www.kanju788.com/book/tnvdff/)
+- [假少爷离开后](https://www.kanju788.com/book/tnvdfj/)
 - [巨物致富：回乡开钓场](https://www.kanju788.com/book/tnvdcj/)
 - [我有一座安全城](https://www.kanju788.com/book/tnvcrk/)
 - [成为养成系练习生后](https://www.kanju788.com/book/tnvcll/)
 - [大瑛弟国](https://www.kanju788.com/book/tnvcct/)
 - [[娱乐圈]过分美丽的她](https://www.kanju788.com/book/tnvc07/)
-- [古代种田养娃日常](https://www.kanju788.com/book/tnvbst/)
 - [六零之成了卷王的妹妹](https://www.kanju788.com/book/tnvbje/)
 - [五十年代港城日常](https://www.kanju788.com/book/tnvbe3/)
 - [直男咒术师的限制级游戏](https://www.kanju788.com/book/tnvb1d/)
@@ -170,7 +167,6 @@
 - [我是唯一地上神国](https://www.kanju788.com/book/tnvapu/)
 - [日化人生[科研]](https://www.kanju788.com/book/tnvaor/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kanju788.com/book/tnvaku/)
-- [猫猫也要养家糊口](https://www.kanju788.com/book/tnvakq/)
 - [清澈女大的六零年代](https://www.kanju788.com/book/tnvai1/)
 - [95美国贵族高中模拟](https://www.kanju788.com/book/tnvafg/)
 - [全民求生:从小木屋到魔法农场](https://www.kanju788.com/book/tnvaes/)

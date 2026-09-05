@@ -1,13 +1,15 @@
 
 # 微雨数据小说,新笔趣小说阅读网,顶点小说网备份-热门小说大全
 
-更新时间：2026-09-05 03:40:14
+更新时间：2026-09-06 03:41:05
 
 微雨数据小说网作为广大书友喜爱的平台之一，同时也是顶点小说阅读网的官方备份网站，汇集了当前最受欢迎和最火热的小说资源。当遇到顶点小说网无法访问时，请访问笔趣看小说网继续享受精彩内容！
 
 - [微雨数据小说](https://www.weiyushuju.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.weiyushuju.com/book/6rf7e2b/)
+- [和八个男人在极寒游戏求生](https://www.weiyushuju.com/book/6rf7e1p/)
 - [强取师尊后](https://www.weiyushuju.com/book/6rf7anc/)
 - [漫画取材所引发的修罗场](https://www.weiyushuju.com/book/6rf7anb/)
 - [恐游里的邻居们[万人迷]](https://www.weiyushuju.com/book/6rf7an7/)
@@ -36,7 +38,6 @@
 - [人，今晚土拨鼠站岗](https://www.weiyushuju.com/book/6rf7akt/)
 - [爱情的肯定句](https://www.weiyushuju.com/book/6rf7akr/)
 - [热恋过期需重追](https://www.weiyushuju.com/book/6rf7akq/)
-- [自知之明](https://www.weiyushuju.com/book/6rf7ako/)
 - [魔咒请说普通话[西幻]](https://www.weiyushuju.com/book/6rf7akm/)
 - [星露谷，但日本战国](https://www.weiyushuju.com/book/6rf7aki/)
 - [暗恋的价格是三万块](https://www.weiyushuju.com/book/6rf7akc/)
@@ -100,7 +101,6 @@
 - [被天使之王骗婚后[诡秘之主]](https://www.weiyushuju.com/book/6rf58u4/)
 - [美貌单出，杀穿港娱［八零］](https://www.weiyushuju.com/book/6rf585i/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.weiyushuju.com/book/6rf57la/)
-- [[综英美]让我统治哥谭！！！](https://www.weiyushuju.com/book/6rf57bn/)
 - [死对头又在挑衅我](https://www.weiyushuju.com/book/6rf56rn/)
 - [开局绑定郭奉孝，谋定三国风云](https://www.weiyushuju.com/book/6rf56fd/)
 - [沈助理又在隐藏他的超能力](https://www.weiyushuju.com/book/6rf5605/)
@@ -142,17 +142,13 @@
 - [恶犬攻绑定上司的乖狗系统](https://www.weiyushuju.com/book/6rf3gb8/)
 - [权宋一只统](https://www.weiyushuju.com/book/6rf3g81/)
 - [娘娘扶摇直上](https://www.weiyushuju.com/book/6rf3frl/)
-- [绝不会喜欢五条君的！](https://www.weiyushuju.com/book/6rf3c03/)
 - [爱好和平但狂拆机甲](https://www.weiyushuju.com/book/6rf38vh/)
 - [你让魔王组建勇者小队？](https://www.weiyushuju.com/book/6rf36oo/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.weiyushuju.com/book/6rf2agr/)
 - [我有一座安全城](https://www.weiyushuju.com/book/6rf2af9/)
-- [娶了女装心机太子](https://www.weiyushuju.com/book/6rf2ada/)
-- [猫猫也要养家糊口](https://www.weiyushuju.com/book/6rf2a76/)
 - [星际团宠小人鱼](https://www.weiyushuju.com/book/6rf2a5n/)
 - [日化人生[科研]](https://www.weiyushuju.com/book/6rf2a4d/)
 - [原配夫人](https://www.weiyushuju.com/book/6rf2a1q/)
-- [古代种田养娃日常](https://www.weiyushuju.com/book/6rf2a0l/)
 - [始乱终弃清冷首辅后](https://www.weiyushuju.com/book/6rf298m/)
 - [[封神]圣人生欲](https://www.weiyushuju.com/book/6rf295t/)
 - [六零之成了卷王的妹妹](https://www.weiyushuju.com/book/6rf293s/)
@@ -164,10 +160,10 @@
 - [[娱乐圈]过分美丽的她](https://www.weiyushuju.com/book/6rf28cs/)
 - [95美国贵族高中模拟](https://www.weiyushuju.com/book/6rf28bm/)
 - [大瑛弟国](https://www.weiyushuju.com/book/6rf28bc/)
-- [假少爷不想活了](https://www.weiyushuju.com/book/6rf28b5/)
+- [假少爷离开后](https://www.weiyushuju.com/book/6rf28b5/)
 - [高调装神，猥琐发育](https://www.weiyushuju.com/book/6rf289p/)
 - [海岛求生：生活玩家种田囤货](https://www.weiyushuju.com/book/6rf2866/)
-- [八零恶毒后妈杀疯了](https://www.weiyushuju.com/book/6rf2810/)
+- [卷王后妈，八零养娃](https://www.weiyushuju.com/book/6rf2810/)
 - [趁她之危](https://www.weiyushuju.com/book/6rf27vp/)
 - [全民求生:从小木屋到魔法农场](https://www.weiyushuju.com/book/6rf27v1/)
 - [五十年代港城日常](https://www.weiyushuju.com/book/6rf27te/)

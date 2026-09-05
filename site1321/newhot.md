@@ -1,16 +1,18 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-09-05 03:25:41
+更新时间：2026-09-06 03:26:34
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
 - [读者香书小说](https://www.duzhe888.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.duzhe888.com/book/2koepgm/)
 - [全世界名为爱的恶意](https://www.duzhe888.com/book/2koepgj/)
 - [自知之明](https://www.duzhe888.com/book/2koepgi/)
 - [清穿女回来后[天幕]](https://www.duzhe888.com/book/2koepg6/)
+- [穿为龙傲天发妻后](https://www.duzhe888.com/book/2koepg0/)
 - [[综英美]和亲友群穿哥谭以后](https://www.duzhe888.com/book/2koepfp/)
 - [我骗家里的钱养你啊](https://www.duzhe888.com/book/2koepfo/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.duzhe888.com/book/2koepfj/)
@@ -21,20 +23,17 @@
 - [咦？我爸爸复活啦](https://www.duzhe888.com/book/2koepei/)
 - [等我吃腻了再倒闭可以吗](https://www.duzhe888.com/book/2koepea/)
 - [青城玩家明明超强却过分谨慎](https://www.duzhe888.com/book/2koepdv/)
-- [我的烧烤摊超美味[美食]](https://www.duzhe888.com/book/2koepde/)
 - [暴君偏头痛](https://www.duzhe888.com/book/2koepcf/)
 - [躲避原书剧情五年后](https://www.duzhe888.com/book/2koepb4/)
 - [[综英美]让我统治哥谭！！！](https://www.duzhe888.com/book/2koepb2/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.duzhe888.com/book/2koepal/)
 - [失而复得的白月光[快穿]](https://www.duzhe888.com/book/2koep9b/)
 - [渡鬼](https://www.duzhe888.com/book/2koep98/)
-- [星际团宠小人鱼](https://www.duzhe888.com/book/2koep8p/)
 - [被四皇错看成小动物后](https://www.duzhe888.com/book/2koep7t/)
 - [你，后室管理员](https://www.duzhe888.com/book/2koep6v/)
 - [[封神]圣人生欲](https://www.duzhe888.com/book/2koep6l/)
 - [高调装神，猥琐发育](https://www.duzhe888.com/book/2koep6g/)
 - [阴郁路人不想被喜欢](https://www.duzhe888.com/book/2koep5s/)
-- [从异世界穿回来后](https://www.duzhe888.com/book/2koep4m/)
 - [直男咒术师的限制级游戏](https://www.duzhe888.com/book/2koep4k/)
 - [京秋婚约](https://www.duzhe888.com/book/2koep4i/)
 - [纯爱宇智波基本恋爱法](https://www.duzhe888.com/book/2koep3s/)
@@ -386,6 +385,7 @@
 - [放开那个黑暗哨兵！](https://www.duzhe888.com/book/8f9c5m/)
 - [在重男兄弟间夹缝求生](https://www.duzhe888.com/book/8f9c3m/)
 - [忍界观察日记](https://www.duzhe888.com/book/8f9br4/)
+- [被阴湿坏女人缠上后](https://www.duzhe888.com/book/8f9bp5/)
 - [虫族治愈师，但恐虫](https://www.duzhe888.com/book/8f9bp3/)
 - [每天都在和太宰互换身体](https://www.duzhe888.com/book/8f9bom/)
 - [举朝上下为我的神仙人设头疼中](https://www.duzhe888.com/book/8f9bfo/)
@@ -413,9 +413,7 @@
 - [我最讨厌打球了！](https://www.duzhe888.com/book/8f8rid/)
 - [误入反派培养直播后](https://www.duzhe888.com/book/8f8ogo/)
 - [[足球]罗蜜第一志愿](https://www.duzhe888.com/book/8f8nmm/)
-- [多梦你一会儿](https://www.duzhe888.com/book/8f8mep/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.duzhe888.com/book/8f8lrl/)
-- [和前女友的心上人he了](https://www.duzhe888.com/book/8f8fsq/)
 - [哥你不能不要我](https://www.duzhe888.com/book/8f81ui/)
 ## 相关内容
 - [README](/README.md)

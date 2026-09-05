@@ -1,13 +1,15 @@
 
 # 紫竹原始小说 - 最新最全的小说文学网站
 
-更新时间：2026-09-05 03:24:43
+更新时间：2026-09-06 03:25:33
 
 紫竹原始小说是一个专注于分享最新、最全的小说文学作品的网站。我们致力于为读者带来全新的阅读体验，欢迎访问我们的网站，尽情享受文学的魅力。
 
 - [紫竹原始小说](https://www.cnysxc.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.cnysxc.com/book/8ee0m8a/)
+- [揣崽丧夫后被情敌强娶了](https://www.cnysxc.com/book/8ee0m75/)
 - [占有欲Daddy是我老公？](https://www.cnysxc.com/book/8ee0is8/)
 - [好心的俄罗斯人](https://www.cnysxc.com/book/8ee0is4/)
 - [全民求生，但剑三](https://www.cnysxc.com/book/8ee0is1/)
@@ -40,7 +42,6 @@
 - [[原神]魔法使恋爱指南](https://www.cnysxc.com/book/8ee0ipi/)
 - [清穿女回来后[天幕]](https://www.cnysxc.com/book/8ee0iph/)
 - [夫人每天都在伪装](https://www.cnysxc.com/book/8ee0ipc/)
-- [自知之明](https://www.cnysxc.com/book/8ee0ip6/)
 - [魔尊闭关十年连生十一子？！](https://www.cnysxc.com/book/8ee0ip4/)
 - [等我吃腻了再倒闭可以吗](https://www.cnysxc.com/book/8ee0ip2/)
 - [欲加之罪](https://www.cnysxc.com/book/8ee0ip0/)
@@ -107,7 +108,6 @@
 - [美貌单出，杀穿港娱［八零］](https://www.cnysxc.com/book/8edu75q/)
 - [开局绑定郭奉孝，谋定三国风云](https://www.cnysxc.com/book/8edu63m/)
 - [苏娘子汴京摆摊日常（美食）](https://www.cnysxc.com/book/8edu5ql/)
-- [[综英美]让我统治哥谭！！！](https://www.cnysxc.com/book/8edu5g9/)
 - [路人攻了主角攻［快穿］](https://www.cnysxc.com/book/8edu536/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.cnysxc.com/book/8edu4fg/)
 - [直男咒术师的限制级游戏](https://www.cnysxc.com/book/8edtvt9/)
@@ -140,31 +140,27 @@
 - [村霸非要入赘受气包](https://www.cnysxc.com/book/8edsqoc/)
 - [和山神搭伙开农场的日子](https://www.cnysxc.com/book/8edsqev/)
 - [被糟蹋的老实人决定反击](https://www.cnysxc.com/book/8edspml/)
-- [娶了女装心机太子](https://www.cnysxc.com/book/8edsosd/)
 - [假意逢承](https://www.cnysxc.com/book/8edsm7e/)
 - [恶犬攻绑定上司的乖狗系统](https://www.cnysxc.com/book/8edsi1i/)
 - [权宋一只统](https://www.cnysxc.com/book/8edsfq0/)
-- [绝不会喜欢五条君的！](https://www.cnysxc.com/book/8edsej8/)
 - [爱好和平但狂拆机甲](https://www.cnysxc.com/book/8eds9rh/)
 - [你让魔王组建勇者小队？](https://www.cnysxc.com/book/8eds87j/)
 - [始乱终弃清冷首辅后](https://www.cnysxc.com/book/8edrcas/)
-- [猫猫也要养家糊口](https://www.cnysxc.com/book/8edrc29/)
 - [在民俗惊悚片被诸神庇护](https://www.cnysxc.com/book/8edrc25/)
 - [高门小婢](https://www.cnysxc.com/book/8edrc1o/)
 - [清澈女大的六零年代](https://www.cnysxc.com/book/8edrbl0/)
 - [原配夫人](https://www.cnysxc.com/book/8edrbe8/)
 - [海岛求生：生活玩家种田囤货](https://www.cnysxc.com/book/8edrbas/)
-- [假少爷不想活了](https://www.cnysxc.com/book/8edrb8e/)
+- [假少爷离开后](https://www.cnysxc.com/book/8edrb8e/)
 - [大瑛弟国](https://www.cnysxc.com/book/8edrb59/)
 - [[娱乐圈]过分美丽的她](https://www.cnysxc.com/book/8edrb3u/)
-- [古代种田养娃日常](https://www.cnysxc.com/book/8edrb2k/)
 - [日化人生[科研]](https://www.cnysxc.com/book/8edravu/)
 - [巨物致富：回乡开钓场](https://www.cnysxc.com/book/8edrat5/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.cnysxc.com/book/8edraru/)
 - [[封神]圣人生欲](https://www.cnysxc.com/book/8edrare/)
 - [九零首富的替嫁小媳妇](https://www.cnysxc.com/book/8edraju/)
 - [高调装神，猥琐发育](https://www.cnysxc.com/book/8edraiu/)
-- [八零恶毒后妈杀疯了](https://www.cnysxc.com/book/8edrai4/)
+- [卷王后妈，八零养娃](https://www.cnysxc.com/book/8edrai4/)
 - [成为养成系练习生后](https://www.cnysxc.com/book/8edragr/)
 - [95美国贵族高中模拟](https://www.cnysxc.com/book/8edraeh/)
 - [我有一座安全城](https://www.cnysxc.com/book/8edrac5/)

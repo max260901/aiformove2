@@ -1,13 +1,15 @@
 
 # 书社1687小说免费-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-05 03:37:58
+更新时间：2026-09-06 03:38:52
 
 书社1687小说免费提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏书社1687小说，享受便捷的小说阅读体验。
 
 - [书社1687小说免费](https://www.shushe1687.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.shushe1687.com/book/489h9hr/)
+- [揣崽丧夫后被情敌强娶了](https://www.shushe1687.com/book/489h9hq/)
 - [好心的俄罗斯人](https://www.shushe1687.com/book/489h9ho/)
 - [末世八年春，游戏降临](https://www.shushe1687.com/book/489h9hn/)
 - [[综英美]哥谭市民，在线抽卡](https://www.shushe1687.com/book/489h9hi/)
@@ -71,7 +73,6 @@
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.shushe1687.com/book/489h9cv/)
 - [清穿女回来后[天幕]](https://www.shushe1687.com/book/489h9cu/)
 - [[足球]雏鸟](https://www.shushe1687.com/book/489h9ct/)
-- [自知之明](https://www.shushe1687.com/book/489h9cn/)
 - [穿咒术，但杀猴现场](https://www.shushe1687.com/book/489h9ck/)
 - [起初，我只是想找个冤大头](https://www.shushe1687.com/book/489gvak/)
 - [我们生活玩家是这样的](https://www.shushe1687.com/book/489gtbc/)
@@ -124,11 +125,10 @@
 - [[封神]圣人生欲](https://www.shushe1687.com/book/489e3op/)
 - [和治君只是饭搭子的关系](https://www.shushe1687.com/book/489e2bk/)
 - [和贵志君是世界第一的好朋友](https://www.shushe1687.com/book/489e2ah/)
-- [[综英美]让我统治哥谭！！！](https://www.shushe1687.com/book/489e27c/)
 - [如何嫁给当朝首辅](https://www.shushe1687.com/book/489e1o1/)
 - [在魔法贵族学院当白月光](https://www.shushe1687.com/book/489e1l4/)
 - [五条老师与他的封建妻子](https://www.shushe1687.com/book/489e1he/)
-- [八零恶毒后妈杀疯了](https://www.shushe1687.com/book/489dvo8/)
+- [卷王后妈，八零养娃](https://www.shushe1687.com/book/489dvo8/)
 - [我司艺人永不塌房](https://www.shushe1687.com/book/489du35/)
 - [我187了，你敢见我吗？](https://www.shushe1687.com/book/489dtrm/)
 - [和姐姐的前女友欢愉后](https://www.shushe1687.com/book/489dpi6/)
@@ -146,7 +146,6 @@
 - [清冷丞相怀了死对头的崽](https://www.shushe1687.com/book/489d5a7/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.shushe1687.com/book/489d58g/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.shushe1687.com/book/489d4kg/)
-- [娶了女装心机太子](https://www.shushe1687.com/book/489d4ji/)
 - [村霸非要入赘受气包](https://www.shushe1687.com/book/489d4jb/)
 - [被糟蹋的老实人决定反击](https://www.shushe1687.com/book/489d1pv/)
 - [和山神搭伙开农场的日子](https://www.shushe1687.com/book/489d1l3/)
@@ -159,21 +158,18 @@
 - [清澈女大的六零年代](https://www.shushe1687.com/book/489bnub/)
 - [我是唯一地上神国](https://www.shushe1687.com/book/489bnog/)
 - [海岛求生：生活玩家种田囤货](https://www.shushe1687.com/book/489bnll/)
-- [古代种田养娃日常](https://www.shushe1687.com/book/489bnfc/)
 - [95美国贵族高中模拟](https://www.shushe1687.com/book/489bnev/)
 - [巨物致富：回乡开钓场](https://www.shushe1687.com/book/489bne7/)
-- [绝不会喜欢五条君的！](https://www.shushe1687.com/book/489bndj/)
 - [六零之成了卷王的妹妹](https://www.shushe1687.com/book/489bnca/)
 - [直男咒术师的限制级游戏](https://www.shushe1687.com/book/489bnc9/)
 - [大瑛弟国](https://www.shushe1687.com/book/489bmsn/)
 - [五十年代港城日常](https://www.shushe1687.com/book/489bmm0/)
-- [假少爷不想活了](https://www.shushe1687.com/book/489bm9o/)
+- [假少爷离开后](https://www.shushe1687.com/book/489bm9o/)
 - [[娱乐圈]过分美丽的她](https://www.shushe1687.com/book/489bm65/)
 - [全民求生:从小木屋到魔法农场](https://www.shushe1687.com/book/489blv4/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.shushe1687.com/book/489bltf/)
 - [日化人生[科研]](https://www.shushe1687.com/book/489bloc/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shushe1687.com/book/489ble3/)
-- [猫猫也要养家糊口](https://www.shushe1687.com/book/489bl73/)
 - [高门小婢](https://www.shushe1687.com/book/489bl6u/)
 ## 相关内容
 - [README](/README.md)

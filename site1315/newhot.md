@@ -1,13 +1,14 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-09-05 03:31:50
+更新时间：2026-09-06 03:32:47
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
 - [连载小说网](https://www.lianzai007.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.lianzai007.com/book/6g3n1mo/)
 - [[足球]小小鸟堂堂来袭](https://www.lianzai007.com/book/6g3n1ml/)
 - [咦？我爸爸复活啦](https://www.lianzai007.com/book/6g3n1me/)
 - [清穿女回来后[天幕]](https://www.lianzai007.com/book/6g3n1m9/)
@@ -19,6 +20,7 @@
 - [同时扮演贵族学院F4和平民校花](https://www.lianzai007.com/book/6g3n1ll/)
 - [[综英美]和亲友群穿哥谭以后](https://www.lianzai007.com/book/6g3n1lh/)
 - [等我吃腻了再倒闭可以吗](https://www.lianzai007.com/book/6g3n1lf/)
+- [穿为龙傲天发妻后](https://www.lianzai007.com/book/6g3n1ks/)
 - [自知之明](https://www.lianzai007.com/book/6g3n1kl/)
 - [暴君偏头痛](https://www.lianzai007.com/book/6g3n1k5/)
 - [渡鬼](https://www.lianzai007.com/book/6g3n1jv/)
@@ -27,15 +29,12 @@
 - [[综英美]让我统治哥谭！！！](https://www.lianzai007.com/book/6g3n1fv/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.lianzai007.com/book/6g3n1fp/)
 - [青城玩家明明超强却过分谨慎](https://www.lianzai007.com/book/6g3n1fn/)
-- [我的烧烤摊超美味[美食]](https://www.lianzai007.com/book/6g3n1f9/)
 - [[封神]圣人生欲](https://www.lianzai007.com/book/6g3n1ej/)
-- [星际团宠小人鱼](https://www.lianzai007.com/book/6g3n1eg/)
 - [被四皇错看成小动物后](https://www.lianzai007.com/book/6g3n1da/)
 - [你，后室管理员](https://www.lianzai007.com/book/6g3n1d5/)
 - [高调装神，猥琐发育](https://www.lianzai007.com/book/6g3n1cj/)
 - [纯爱宇智波基本恋爱法](https://www.lianzai007.com/book/6g3n1c3/)
 - [阴郁路人不想被喜欢](https://www.lianzai007.com/book/6g3n1bj/)
-- [从异世界穿回来后](https://www.lianzai007.com/book/6g3n1ap/)
 - [直男咒术师的限制级游戏](https://www.lianzai007.com/book/6g3n1ad/)
 - [京秋婚约](https://www.lianzai007.com/book/6g3n19d/)
 - [求生游戏：当邪神成为生活玩家后](https://www.lianzai007.com/book/6g3n17a/)
@@ -404,6 +403,7 @@
 - [穿成影后的作死前妻](https://www.lianzai007.com/book/kq0hua/)
 - [苦咒琉璃](https://www.lianzai007.com/book/kq0htp/)
 - [直播捏玩具被榜一大哥撅了](https://www.lianzai007.com/book/kq0hqs/)
+- [被阴湿坏女人缠上后](https://www.lianzai007.com/book/kq0hbv/)
 - [隔壁班的松田君](https://www.lianzai007.com/book/kq0h7b/)
 - [当了卧底的我发现遍地熟人](https://www.lianzai007.com/book/kq0gkf/)
 - [虫族治愈师，但恐虫](https://www.lianzai007.com/book/kq0f9k/)
@@ -415,9 +415,7 @@
 - [我最讨厌打球了！](https://www.lianzai007.com/book/kq055a/)
 - [误入反派培养直播后](https://www.lianzai007.com/book/kq007m/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.lianzai007.com/book/kpvtjn/)
-- [多梦你一会儿](https://www.lianzai007.com/book/kpvtdh/)
 - [[足球]罗蜜第一志愿](https://www.lianzai007.com/book/kpvrdj/)
-- [和前女友的心上人he了](https://www.lianzai007.com/book/kpvo2c/)
 - [哥你不能不要我](https://www.lianzai007.com/book/kpvare/)
 ## 相关内容
 - [README](/README.md)
