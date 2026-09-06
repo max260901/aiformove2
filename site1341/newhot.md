@@ -1,7 +1,7 @@
 
 # 春日书屋-免费热门小说在线阅读平台|晋江文学|全本免费畅读
 
-更新时间：2026-09-05 03:36:40
+更新时间：2026-09-06 03:37:35
 
 春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！
 
@@ -15,6 +15,7 @@
 - [全世界名为爱的恶意](https://www.shenyuanhg.com/book/7gie9fk/)
 - [禁止继承限制级雌君](https://www.shenyuanhg.com/book/7gie9f4/)
 - [咦？我爸爸复活啦](https://www.shenyuanhg.com/book/7gie9ej/)
+- [穿为龙傲天发妻后](https://www.shenyuanhg.com/book/7gie9ef/)
 - [等我吃腻了再倒闭可以吗](https://www.shenyuanhg.com/book/7gie9ec/)
 - [[足球]小小鸟堂堂来袭](https://www.shenyuanhg.com/book/7gie9ea/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.shenyuanhg.com/book/7gie9e7/)
@@ -22,7 +23,6 @@
 - [暴君偏头痛](https://www.shenyuanhg.com/book/7gie8jd/)
 - [渡鬼](https://www.shenyuanhg.com/book/7gie8h2/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shenyuanhg.com/book/7gie8g9/)
-- [我的烧烤摊超美味[美食]](https://www.shenyuanhg.com/book/7gie8g0/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.shenyuanhg.com/book/7gie7ae/)
 - [修仙界都为我神魂颠倒](https://www.shenyuanhg.com/book/7gie77o/)
 - [穿成年代文奇葩前妻](https://www.shenyuanhg.com/book/7gie71o/)
@@ -40,9 +40,7 @@
 - [我超凶的！[快穿]](https://www.shenyuanhg.com/book/7gidu33/)
 - [我有嘉宾](https://www.shenyuanhg.com/book/7gidtdv/)
 - [我比反派先崩坏[快穿]](https://www.shenyuanhg.com/book/7gidtb5/)
-- [从异世界穿回来后](https://www.shenyuanhg.com/book/7gidsmg/)
 - [cos温迪后玩到真崩铁了](https://www.shenyuanhg.com/book/7gidosg/)
-- [星际团宠小人鱼](https://www.shenyuanhg.com/book/7gido92/)
 - [你，后室管理员](https://www.shenyuanhg.com/book/7gido8t/)
 - [娇气点怎么啦？［快穿］](https://www.shenyuanhg.com/book/7gido8k/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.shenyuanhg.com/book/7gidnit/)
@@ -319,7 +317,6 @@
 - [被离婚后嫁给了年代文大佬[穿书]](https://www.shenyuanhg.com/book/7gib0iq/)
 - [摄政长公主穿成炮灰女配[七零]](https://www.shenyuanhg.com/book/7gib0ho/)
 - [汉武帝戾太子什么含金量](https://www.shenyuanhg.com/book/7gib0d6/)
-- [多梦你一会儿](https://www.shenyuanhg.com/book/7gib09f/)
 - [太子妃她不干了](https://www.shenyuanhg.com/book/7gib07c/)
 - [cos穿，但美强惨刀子精](https://www.shenyuanhg.com/book/7gib05u/)
 - [我养龙傲天的那些年](https://www.shenyuanhg.com/book/7gib044/)
@@ -387,6 +384,7 @@
 - [[足球]在比利时我们只玩天赋](https://www.shenyuanhg.com/book/7giars7/)
 - [直播捏玩具被榜一大哥撅了](https://www.shenyuanhg.com/book/7giarnu/)
 - [高冷影后逼我标记她](https://www.shenyuanhg.com/book/7giargh/)
+- [被阴湿坏女人缠上后](https://www.shenyuanhg.com/book/7giardv/)
 - [请问夫君你哪位](https://www.shenyuanhg.com/book/7giarcb/)
 - [每天都在和太宰互换身体](https://www.shenyuanhg.com/book/7giar9v/)
 - [小狗向导，世界瑰宝！](https://www.shenyuanhg.com/book/7giar9o/)
@@ -400,7 +398,6 @@
 - [隔壁班的松田君](https://www.shenyuanhg.com/book/7giaqps/)
 - [让我再吃一口](https://www.shenyuanhg.com/book/7giaql7/)
 - [当了卧底的我发现遍地熟人](https://www.shenyuanhg.com/book/7giaqhm/)
-- [和前女友的心上人he了](https://www.shenyuanhg.com/book/7giaqes/)
 - [这谁的沙雕二次元心声！](https://www.shenyuanhg.com/book/7giaqau/)
 - [我靠玛丽苏系统伪装神女](https://www.shenyuanhg.com/book/7giaq74/)
 - [救命！猫尾巴藏不住了](https://www.shenyuanhg.com/book/7giaq6j/)
@@ -432,6 +429,7 @@
 - [[综英美]让我统治哥谭！！！](https://www.shenyuanhg.com/book/7gia9oi/)
 - [盛夏晴浓](https://www.shenyuanhg.com/book/7gia8so/)
 - [好巧，你也是妹控？[综崩铁]](https://www.shenyuanhg.com/book/7gia69b/)
+- [欢迎来到重生点](https://www.shenyuanhg.com/book/7gia4pj/)
 - [关于我虚构了一个男友这件事](https://www.shenyuanhg.com/book/7gia3oe/)
 - [求生游戏：当邪神成为生活玩家后](https://www.shenyuanhg.com/book/7gia2tu/)
 - [好兄弟暴富后非要跟我结婚](https://www.shenyuanhg.com/book/7gia1jf/)

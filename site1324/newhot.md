@@ -1,13 +1,15 @@
 
 # 笔趣阁小说网 - 免费在线阅读百万小说
 
-更新时间：2026-09-05 03:43:18
+更新时间：2026-09-06 03:44:07
 
 笔趣阁小说网提供免费的小说在线阅读服务，包括但不限于各类热门小说、经典文学等。网站支持书架同步功能，确保用户阅读进度永不丢失。快来加入我们，享受无障碍、无广告的纯净阅读体验吧！
 
 - [笔趣阁小说网](https://www.xiaoshuo139.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.xiaoshuo139.com/book/2ch7u8j/)
+- [穿为龙傲天发妻后](https://www.xiaoshuo139.com/book/2ch7u8e/)
 - [同时扮演贵族学院F4和平民校花](https://www.xiaoshuo139.com/book/2ch7u8d/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.xiaoshuo139.com/book/2ch7u8c/)
 - [[综英美]和亲友群穿哥谭以后](https://www.xiaoshuo139.com/book/2ch7u8b/)
@@ -22,8 +24,6 @@
 - [咦？我爸爸复活啦](https://www.xiaoshuo139.com/book/2ch7u68/)
 - [[综英美]让我统治哥谭！！！](https://www.xiaoshuo139.com/book/2ch7u5d/)
 - [暴君偏头痛](https://www.xiaoshuo139.com/book/2ch7u58/)
-- [我的烧烤摊超美味[美食]](https://www.xiaoshuo139.com/book/2ch7u4i/)
-- [从异世界穿回来后](https://www.xiaoshuo139.com/book/2ch7u46/)
 - [青城玩家明明超强却过分谨慎](https://www.xiaoshuo139.com/book/2ch7u45/)
 - [渡鬼](https://www.xiaoshuo139.com/book/2ch7u3f/)
 - [躲避原书剧情五年后](https://www.xiaoshuo139.com/book/2ch7u39/)
@@ -32,7 +32,6 @@
 - [你，后室管理员](https://www.xiaoshuo139.com/book/2ch7u0n/)
 - [[封神]圣人生欲](https://www.xiaoshuo139.com/book/2ch7tus/)
 - [被四皇错看成小动物后](https://www.xiaoshuo139.com/book/2ch7tup/)
-- [星际团宠小人鱼](https://www.xiaoshuo139.com/book/2ch7tug/)
 - [高调装神，猥琐发育](https://www.xiaoshuo139.com/book/2ch7tuc/)
 - [京秋婚约](https://www.xiaoshuo139.com/book/2ch7tst/)
 - [纯爱宇智波基本恋爱法](https://www.xiaoshuo139.com/book/2ch7trj/)
@@ -401,6 +400,7 @@
 - [神之子与排球的适配性](https://www.xiaoshuo139.com/book/7kv1va/)
 - [隔壁班的松田君](https://www.xiaoshuo139.com/book/7kv1so/)
 - [忍界观察日记](https://www.xiaoshuo139.com/book/7kv0mf/)
+- [被阴湿坏女人缠上后](https://www.xiaoshuo139.com/book/7kv0l1/)
 - [作家与读者](https://www.xiaoshuo139.com/book/7kv0dd/)
 - [虫族治愈师，但恐虫](https://www.xiaoshuo139.com/book/7kv0a1/)
 - [当了卧底的我发现遍地熟人](https://www.xiaoshuo139.com/book/7kv05d/)
@@ -415,9 +415,7 @@
 - [我最讨厌打球了！](https://www.xiaoshuo139.com/book/7kuk7f/)
 - [误入反派培养直播后](https://www.xiaoshuo139.com/book/7kuic8/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.xiaoshuo139.com/book/7kuevb/)
-- [多梦你一会儿](https://www.xiaoshuo139.com/book/7kue2e/)
 - [[足球]罗蜜第一志愿](https://www.xiaoshuo139.com/book/7kuav6/)
-- [和前女友的心上人he了](https://www.xiaoshuo139.com/book/7ku4ue/)
 - [哥你不能不要我](https://www.xiaoshuo139.com/book/7ktok1/)
 ## 相关内容
 - [README](/README.md)

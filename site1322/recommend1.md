@@ -1,13 +1,15 @@
 
 # 文学小说网手机版_好看的文学小说TXT下载,无弹窗手机小说网
 
-更新时间：2026-09-05 03:40:43
+更新时间：2026-09-06 03:41:34
 
 文学小说网收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者最值得收藏的网络小说阅读网,精彩小说尽在文学小说网(无弹窗小说网)。
 
 - [文学小说网](https://www.wenxue521.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.wenxue521.com/book/93olskj/)
+- [和八个男人在极寒游戏求生](https://www.wenxue521.com/book/93olski/)
 - [欲加之罪](https://www.wenxue521.com/book/93olskh/)
 - [占有欲Daddy是我老公？](https://www.wenxue521.com/book/93olskg/)
 - [禁止继承限制级雌君](https://www.wenxue521.com/book/93olskf/)
@@ -36,7 +38,6 @@
 - [穿为龙傲天发妻后](https://www.wenxue521.com/book/93olsjo/)
 - [和治君只是饭搭子的关系](https://www.wenxue521.com/book/93olsjn/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.wenxue521.com/book/93olsjm/)
-- [自知之明](https://www.wenxue521.com/book/93olsjl/)
 - [双生子反派的端水抑郁妈[九零]](https://www.wenxue521.com/book/93olsjk/)
 - [炮灰的海外亲戚回国啦！](https://www.wenxue521.com/book/93olsjj/)
 - [恐游作精女配求生指南](https://www.wenxue521.com/book/93olsji/)
@@ -82,7 +83,6 @@
 - [[足球]小小鸟堂堂来袭](https://www.wenxue521.com/book/93olsi9/)
 - [清穿女回来后[天幕]](https://www.wenxue521.com/book/93olsi8/)
 - [我司艺人永不塌房](https://www.wenxue521.com/book/93olshu/)
-- [[综英美]让我统治哥谭！！！](https://www.wenxue521.com/book/93olsg3/)
 - [我们生活玩家是这样的](https://www.wenxue521.com/book/93olsd6/)
 - [星际团宠小人鱼](https://www.wenxue521.com/book/93olsc5/)
 - [十九世纪贵族厨房（美食）](https://www.wenxue521.com/book/93olsc4/)
@@ -91,14 +91,12 @@
 - [[封神]圣人生欲](https://www.wenxue521.com/book/93olsba/)
 - [原配夫人](https://www.wenxue521.com/book/93olsb6/)
 - [高调装神，猥琐发育](https://www.wenxue521.com/book/93olsaf/)
-- [假少爷不想活了](https://www.wenxue521.com/book/93olsac/)
+- [假少爷离开后](https://www.wenxue521.com/book/93olsac/)
 - [直男咒术师的限制级游戏](https://www.wenxue521.com/book/93ols9s/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.wenxue521.com/book/93ols76/)
-- [绝不会喜欢五条君的！](https://www.wenxue521.com/book/93olquc/)
 - [六零之成了卷王的妹妹](https://www.wenxue521.com/book/93olqu6/)
 - [路人攻了主角攻［快穿］](https://www.wenxue521.com/book/93olqrg/)
 - [昭暮](https://www.wenxue521.com/book/93olh8o/)
-- [古代种田养娃日常](https://www.wenxue521.com/book/93ol683/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.wenxue521.com/book/93ol5q3/)
 - [[足球]足坛人生模拟器](https://www.wenxue521.com/book/93ok7mu/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.wenxue521.com/book/93ok66f/)
@@ -144,10 +142,9 @@
 - [逃出金丝笼，我力挽山河开国称帝](https://www.wenxue521.com/book/t5m7kc/)
 - [韩团绿卡不想忍了](https://www.wenxue521.com/book/t5m6k2/)
 - [被糟蹋的老实人决定反击](https://www.wenxue521.com/book/t5m5oo/)
-- [娶了女装心机太子](https://www.wenxue521.com/book/t5m41b/)
 - [清冷丞相怀了死对头的崽](https://www.wenxue521.com/book/t5m3io/)
 - [村霸非要入赘受气包](https://www.wenxue521.com/book/t5m313/)
-- [八零恶毒后妈杀疯了](https://www.wenxue521.com/book/t5m1ph/)
+- [卷王后妈，八零养娃](https://www.wenxue521.com/book/t5m1ph/)
 - [这个位面归我了！[经营]](https://www.wenxue521.com/book/t5m1ek/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.wenxue521.com/book/t5lutq/)
 - [和山神搭伙开农场的日子](https://www.wenxue521.com/book/t5lufh/)
@@ -174,7 +171,6 @@
 - [我是唯一地上神国](https://www.wenxue521.com/book/9ap7r/)
 - [苏娘子汴京摆摊日常（美食）](https://www.wenxue521.com/book/9aop5/)
 - [清澈女大的六零年代](https://www.wenxue521.com/book/9aont/)
-- [猫猫也要养家糊口](https://www.wenxue521.com/book/9aokl/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1322/index.md)

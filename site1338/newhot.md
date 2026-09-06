@@ -1,7 +1,7 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-09-05 03:26:13
+更新时间：2026-09-06 03:27:07
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。
 
@@ -12,6 +12,7 @@
 - [全世界名为爱的恶意](https://www.fshxjd.com/book/74i3ms9/)
 - [[综英美]和亲友群穿哥谭以后](https://www.fshxjd.com/book/74i3mqq/)
 - [[足球]小小鸟堂堂来袭](https://www.fshxjd.com/book/74i3mqd/)
+- [穿为龙傲天发妻后](https://www.fshxjd.com/book/74i3mqc/)
 - [禁止继承限制级雌君](https://www.fshxjd.com/book/74i3mpt/)
 - [清穿女回来后[天幕]](https://www.fshxjd.com/book/74i3mpo/)
 - [等我吃腻了再倒闭可以吗](https://www.fshxjd.com/book/74i3mpl/)
@@ -19,7 +20,6 @@
 - [[崩铁]请给玩家一个准确的血条！](https://www.fshxjd.com/book/74i3mon/)
 - [这个替嫁让我来！](https://www.fshxjd.com/book/74i3moc/)
 - [自知之明](https://www.fshxjd.com/book/74i3moa/)
-- [我的烧烤摊超美味[美食]](https://www.fshxjd.com/book/74i3ltr/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.fshxjd.com/book/74i3ltp/)
 - [暴君偏头痛](https://www.fshxjd.com/book/74i3lr1/)
 - [渡鬼](https://www.fshxjd.com/book/74i3lqg/)
@@ -40,11 +40,9 @@
 - [我超凶的！[快穿]](https://www.fshxjd.com/book/74i3bcg/)
 - [我有嘉宾](https://www.fshxjd.com/book/74i3ap1/)
 - [我比反派先崩坏[快穿]](https://www.fshxjd.com/book/74i3ale/)
-- [从异世界穿回来后](https://www.fshxjd.com/book/74i3a1p/)
 - [cos温迪后玩到真崩铁了](https://www.fshxjd.com/book/74i366f/)
 - [娇气点怎么啦？［快穿］](https://www.fshxjd.com/book/74i35li/)
 - [你，后室管理员](https://www.fshxjd.com/book/74i35l8/)
-- [星际团宠小人鱼](https://www.fshxjd.com/book/74i35i1/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.fshxjd.com/book/74i34u0/)
 - [不义世界都是我马甲[综英美]](https://www.fshxjd.com/book/74i34nl/)
 - [[综武侠]风流](https://www.fshxjd.com/book/74i32r5/)
@@ -333,7 +331,6 @@
 - [我养龙傲天的那些年](https://www.fshxjd.com/book/74i0cor/)
 - [我让人生赢家俯首称臣的那些年](https://www.fshxjd.com/book/74i0cla/)
 - [[综英美]萌萌小蜘蛛在哥谭](https://www.fshxjd.com/book/74i0cl1/)
-- [多梦你一会儿](https://www.fshxjd.com/book/74i0cip/)
 - [在横滨横行霸道的那些年](https://www.fshxjd.com/book/74i0cf6/)
 - [师妹为何要如此](https://www.fshxjd.com/book/74i0cel/)
 - [这死beta老说我们不可能](https://www.fshxjd.com/book/74i0cdf/)
@@ -389,6 +386,7 @@
 - [这谁的沙雕二次元心声！](https://www.fshxjd.com/book/74i092l/)
 - [直播捏玩具被榜一大哥撅了](https://www.fshxjd.com/book/74i0923/)
 - [咒术师，但队友是侦探](https://www.fshxjd.com/book/74i08sm/)
+- [被阴湿坏女人缠上后](https://www.fshxjd.com/book/74i08s9/)
 - [每天都在和太宰互换身体](https://www.fshxjd.com/book/74i08nd/)
 - [小狗向导，世界瑰宝！](https://www.fshxjd.com/book/74i08n6/)
 - [请问夫君你哪位](https://www.fshxjd.com/book/74i08jg/)
@@ -400,7 +398,6 @@
 - [末世山居日常](https://www.fshxjd.com/book/74i07uo/)
 - [放开那个黑暗哨兵！](https://www.fshxjd.com/book/74i07sh/)
 - [在重男兄弟间夹缝求生](https://www.fshxjd.com/book/74i07s1/)
-- [和前女友的心上人he了](https://www.fshxjd.com/book/74i07qp/)
 - [隔壁班的松田君](https://www.fshxjd.com/book/74i07ov/)
 - [国舅太难追了](https://www.fshxjd.com/book/74i07ll/)
 - [高冷影后逼我标记她](https://www.fshxjd.com/book/74i07ke/)
@@ -432,6 +429,7 @@
 - [盛夏晴浓](https://www.fshxjd.com/book/74hvmj8/)
 - [[综英美]让我统治哥谭！！！](https://www.fshxjd.com/book/74hvlbg/)
 - [好巧，你也是妹控？[综崩铁]](https://www.fshxjd.com/book/74hvjcq/)
+- [欢迎来到重生点](https://www.fshxjd.com/book/74hvi20/)
 - [好兄弟暴富后非要跟我结婚](https://www.fshxjd.com/book/74hvhfr/)
 - [关于我虚构了一个男友这件事](https://www.fshxjd.com/book/74hvhbl/)
 - [求生游戏：当邪神成为生活玩家后](https://www.fshxjd.com/book/74hvgoh/)

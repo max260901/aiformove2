@@ -1,13 +1,15 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-09-05 03:27:13
+更新时间：2026-09-06 03:28:08
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
 - [故事文学网](https://www.gushi1314.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.gushi1314.com/book/8m9juci/)
+- [揣崽丧夫后被情敌强娶了](https://www.gushi1314.com/book/8m9juch/)
 - [病美人重生日记](https://www.gushi1314.com/book/8m9jucg/)
 - [恐游作精女配求生指南](https://www.gushi1314.com/book/8m9jucf/)
 - [魔尊闭关十年连生十一子？！](https://www.gushi1314.com/book/8m9juce/)
@@ -76,12 +78,10 @@
 - [国运求生：我的金手指是生命树](https://www.gushi1314.com/book/8m9juae/)
 - [前妻她肯定会后悔](https://www.gushi1314.com/book/8m9juad/)
 - [万人嫌从末世回来了](https://www.gushi1314.com/book/8m9juac/)
-- [自知之明](https://www.gushi1314.com/book/8m9juab/)
 - [占有欲Daddy是我老公？](https://www.gushi1314.com/book/8m9juaa/)
 - [谁都不爱的和亲公主](https://www.gushi1314.com/book/8m9jua9/)
 - [同时扮演贵族学院F4和平民校花](https://www.gushi1314.com/book/8m9jua8/)
 - [SSS级异种都是我前任](https://www.gushi1314.com/book/8m9jua7/)
-- [[综英美]让我统治哥谭！！！](https://www.gushi1314.com/book/8m9ju8l/)
 - [我们生活玩家是这样的](https://www.gushi1314.com/book/8m9ju6e/)
 - [我司艺人永不塌房](https://www.gushi1314.com/book/8m9ju57/)
 - [[封神]圣人生欲](https://www.gushi1314.com/book/8m9ju4p/)
@@ -91,14 +91,12 @@
 - [十九世纪贵族厨房（美食）](https://www.gushi1314.com/book/8m9ju2m/)
 - [星际团宠小人鱼](https://www.gushi1314.com/book/8m9ju2l/)
 - [高调装神，猥琐发育](https://www.gushi1314.com/book/8m9ju2f/)
-- [假少爷不想活了](https://www.gushi1314.com/book/8m9ju2b/)
+- [假少爷离开后](https://www.gushi1314.com/book/8m9ju2b/)
 - [直男咒术师的限制级游戏](https://www.gushi1314.com/book/8m9ju1p/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.gushi1314.com/book/8m9jtu1/)
-- [绝不会喜欢五条君的！](https://www.gushi1314.com/book/8m9jsm2/)
 - [六零之成了卷王的妹妹](https://www.gushi1314.com/book/8m9jsm0/)
 - [路人攻了主角攻［快穿］](https://www.gushi1314.com/book/8m9jsj1/)
 - [昭暮](https://www.gushi1314.com/book/8m9jj3h/)
-- [古代种田养娃日常](https://www.gushi1314.com/book/8m9itj9/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.gushi1314.com/book/8m9isu7/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.gushi1314.com/book/8m9icev/)
 - [[足球]足坛人生模拟器](https://www.gushi1314.com/book/8m9ibsa/)
@@ -140,7 +138,6 @@
 - [朕也要被强制吗？](https://www.gushi1314.com/book/rqj1qs/)
 - [在重生文里考科举](https://www.gushi1314.com/book/rqj1pu/)
 - [妻主风流（女尊）](https://www.gushi1314.com/book/rqj0ju/)
-- [娶了女装心机太子](https://www.gushi1314.com/book/rqir8s/)
 - [多梦你一会儿](https://www.gushi1314.com/book/rqiqt9/)
 - [韩团绿卡不想忍了](https://www.gushi1314.com/book/rqiq9o/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.gushi1314.com/book/rqiorn/)
@@ -148,7 +145,7 @@
 - [被糟蹋的老实人决定反击](https://www.gushi1314.com/book/rqinnh/)
 - [村霸非要入赘受气包](https://www.gushi1314.com/book/rqim1g/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.gushi1314.com/book/rqikar/)
-- [八零恶毒后妈杀疯了](https://www.gushi1314.com/book/rqikao/)
+- [卷王后妈，八零养娃](https://www.gushi1314.com/book/rqikao/)
 - [清冷丞相怀了死对头的崽](https://www.gushi1314.com/book/rqijs0/)
 - [和山神搭伙开农场的日子](https://www.gushi1314.com/book/rqihc4/)
 - [心动嫌疑人](https://www.gushi1314.com/book/rqig7r/)
@@ -165,7 +162,6 @@
 - [大瑛弟国](https://www.gushi1314.com/book/2p1qb8/)
 - [在魔法贵族学院当白月光](https://www.gushi1314.com/book/2p1q8m/)
 - [我有一座安全城](https://www.gushi1314.com/book/2p1q50/)
-- [猫猫也要养家糊口](https://www.gushi1314.com/book/2p1q0i/)
 - [海岛求生：生活玩家种田囤货](https://www.gushi1314.com/book/2p1q07/)
 - [全民求生:从小木屋到魔法农场](https://www.gushi1314.com/book/2p1ptk/)
 - [95美国贵族高中模拟](https://www.gushi1314.com/book/2p1p7h/)

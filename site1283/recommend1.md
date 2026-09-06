@@ -1,13 +1,15 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-05 03:24:25
+更新时间：2026-09-06 03:25:15
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
 - [书包网](https://www.cialisgs.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.cialisgs.com/book/89ru3qk/)
+- [揣崽丧夫后被情敌强娶了](https://www.cialisgs.com/book/89ru3qj/)
 - [占有欲Daddy是我老公？](https://www.cialisgs.com/book/89ru3qi/)
 - [和治君只是饭搭子的关系](https://www.cialisgs.com/book/89ru3qh/)
 - [谁说踢球就不能成为名侦探[足球]](https://www.cialisgs.com/book/89ru3qg/)
@@ -71,7 +73,6 @@
 - [[洪荒]成为太清妹妹后](https://www.cialisgs.com/book/89ru3ol/)
 - [死遁APP](https://www.cialisgs.com/book/89ru3ok/)
 - [强取师尊后](https://www.cialisgs.com/book/89ru3oj/)
-- [自知之明](https://www.cialisgs.com/book/89ru3oi/)
 - [万人嫌从末世回来了](https://www.cialisgs.com/book/89ru3oh/)
 - [魔尊闭关十年连生十一子？！](https://www.cialisgs.com/book/89ru3og/)
 - [八零法医，带全家致富](https://www.cialisgs.com/book/89ru3of/)
@@ -82,7 +83,6 @@
 - [正是冬雪沸腾时](https://www.cialisgs.com/book/89ru3oa/)
 - [穿为龙傲天发妻后](https://www.cialisgs.com/book/89ru3o9/)
 - [我司艺人永不塌房](https://www.cialisgs.com/book/89ru3nr/)
-- [[综英美]让我统治哥谭！！！](https://www.cialisgs.com/book/89ru3n0/)
 - [我们生活玩家是这样的](https://www.cialisgs.com/book/89ru3jn/)
 - [星际团宠小人鱼](https://www.cialisgs.com/book/89ru3is/)
 - [始乱终弃清冷首辅后](https://www.cialisgs.com/book/89ru3in/)
@@ -91,14 +91,12 @@
 - [[封神]圣人生欲](https://www.cialisgs.com/book/89ru3h9/)
 - [十九世纪贵族厨房（美食）](https://www.cialisgs.com/book/89ru3eg/)
 - [高调装神，猥琐发育](https://www.cialisgs.com/book/89ru3ed/)
-- [假少爷不想活了](https://www.cialisgs.com/book/89ru3db/)
+- [假少爷离开后](https://www.cialisgs.com/book/89ru3db/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.cialisgs.com/book/89ru3ci/)
 - [直男咒术师的限制级游戏](https://www.cialisgs.com/book/89ru3bn/)
 - [六零之成了卷王的妹妹](https://www.cialisgs.com/book/89ru24b/)
-- [绝不会喜欢五条君的！](https://www.cialisgs.com/book/89ru23q/)
 - [路人攻了主角攻［快穿］](https://www.cialisgs.com/book/89ru22d/)
 - [昭暮](https://www.cialisgs.com/book/89rtoen/)
-- [古代种田养娃日常](https://www.cialisgs.com/book/89rtcav/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.cialisgs.com/book/89rt2fp/)
 - [上个鬼班[无限]](https://www.cialisgs.com/book/89rsbo3/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.cialisgs.com/book/89rs6tq/)
@@ -145,9 +143,8 @@
 - [这个位面归我了！[经营]](https://www.cialisgs.com/book/qiq5rp/)
 - [村霸非要入赘受气包](https://www.cialisgs.com/book/qiq5as/)
 - [被糟蹋的老实人决定反击](https://www.cialisgs.com/book/qiq58l/)
-- [娶了女装心机太子](https://www.cialisgs.com/book/qiq55a/)
 - [韩团绿卡不想忍了](https://www.cialisgs.com/book/qiq4q7/)
-- [八零恶毒后妈杀疯了](https://www.cialisgs.com/book/qiq2vt/)
+- [卷王后妈，八零养娃](https://www.cialisgs.com/book/qiq2vt/)
 - [清冷丞相怀了死对头的崽](https://www.cialisgs.com/book/qiq2ph/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.cialisgs.com/book/qiq0l5/)
 - [和山神搭伙开农场的日子](https://www.cialisgs.com/book/qipulk/)
@@ -169,7 +166,6 @@
 - [苏娘子汴京摆摊日常（美食）](https://www.cialisgs.com/book/2l2gau/)
 - [清澈女大的六零年代](https://www.cialisgs.com/book/8g8j6/)
 - [五十年代港城日常](https://www.cialisgs.com/book/8g8e2/)
-- [猫猫也要养家糊口](https://www.cialisgs.com/book/8g8dk/)
 - [[娱乐圈]过分美丽的她](https://www.cialisgs.com/book/8g8c6/)
 - [全民求生:从小木屋到魔法农场](https://www.cialisgs.com/book/8g8bb/)
 - [高门小婢](https://www.cialisgs.com/book/8g8am/)

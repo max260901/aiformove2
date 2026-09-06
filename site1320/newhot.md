@@ -1,13 +1,14 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-09-05 03:27:13
+更新时间：2026-09-06 03:28:08
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
 - [故事文学网](https://www.gushi1314.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.gushi1314.com/book/8m9jucj/)
 - [我骗家里的钱养你啊](https://www.gushi1314.com/book/8m9jucd/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.gushi1314.com/book/8m9juc4/)
 - [等我吃腻了再倒闭可以吗](https://www.gushi1314.com/book/8m9juc3/)
@@ -17,6 +18,7 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.gushi1314.com/book/8m9jub9/)
 - [咦？我爸爸复活啦](https://www.gushi1314.com/book/8m9jub6/)
 - [全世界名为爱的恶意](https://www.gushi1314.com/book/8m9jub2/)
+- [穿为龙傲天发妻后](https://www.gushi1314.com/book/8m9jub0/)
 - [清穿女回来后[天幕]](https://www.gushi1314.com/book/8m9juar/)
 - [自知之明](https://www.gushi1314.com/book/8m9juab/)
 - [同时扮演贵族学院F4和平民校花](https://www.gushi1314.com/book/8m9jua8/)
@@ -25,18 +27,15 @@
 - [暴君偏头痛](https://www.gushi1314.com/book/8m9ju7f/)
 - [躲避原书剧情五年后](https://www.gushi1314.com/book/8m9ju76/)
 - [青城玩家明明超强却过分谨慎](https://www.gushi1314.com/book/8m9ju5v/)
-- [我的烧烤摊超美味[美食]](https://www.gushi1314.com/book/8m9ju5j/)
 - [渡鬼](https://www.gushi1314.com/book/8m9ju5a/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.gushi1314.com/book/8m9ju58/)
 - [[封神]圣人生欲](https://www.gushi1314.com/book/8m9ju4p/)
 - [你，后室管理员](https://www.gushi1314.com/book/8m9ju36/)
-- [星际团宠小人鱼](https://www.gushi1314.com/book/8m9ju2l/)
 - [被四皇错看成小动物后](https://www.gushi1314.com/book/8m9ju2j/)
 - [高调装神，猥琐发育](https://www.gushi1314.com/book/8m9ju2f/)
 - [直男咒术师的限制级游戏](https://www.gushi1314.com/book/8m9ju1p/)
 - [京秋婚约](https://www.gushi1314.com/book/8m9jtvc/)
 - [阴郁路人不想被喜欢](https://www.gushi1314.com/book/8m9jtv0/)
-- [从异世界穿回来后](https://www.gushi1314.com/book/8m9jtuv/)
 - [纯爱宇智波基本恋爱法](https://www.gushi1314.com/book/8m9jtta/)
 - [求生游戏：当邪神成为生活玩家后](https://www.gushi1314.com/book/8m9jtt4/)
 - [昭暮](https://www.gushi1314.com/book/8m9jj3h/)
@@ -404,6 +403,7 @@
 - [在重男兄弟间夹缝求生](https://www.gushi1314.com/book/rqje05/)
 - [普通高中生，但兼职咒术师](https://www.gushi1314.com/book/rqjdtk/)
 - [当了卧底的我发现遍地熟人](https://www.gushi1314.com/book/rqjds0/)
+- [被阴湿坏女人缠上后](https://www.gushi1314.com/book/rqjdr5/)
 - [忍界观察日记](https://www.gushi1314.com/book/rqjdfl/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.gushi1314.com/book/rqjcv8/)
 - [这谁的沙雕二次元心声！](https://www.gushi1314.com/book/rqj9pb/)
@@ -413,9 +413,7 @@
 - [我最讨厌打球了！](https://www.gushi1314.com/book/rqiuv5/)
 - [误入反派培养直播后](https://www.gushi1314.com/book/rqitan/)
 - [[足球]罗蜜第一志愿](https://www.gushi1314.com/book/rqirav/)
-- [多梦你一会儿](https://www.gushi1314.com/book/rqiqt9/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.gushi1314.com/book/rqiors/)
-- [和前女友的心上人he了](https://www.gushi1314.com/book/rqij4r/)
 - [哥你不能不要我](https://www.gushi1314.com/book/rqi56o/)
 ## 相关内容
 - [README](/README.md)

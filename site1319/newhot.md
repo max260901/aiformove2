@@ -1,17 +1,19 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-09-05 03:30:12
+更新时间：2026-09-06 03:31:09
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
 - [看书小说网](https://www.kanshu666.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.kanshu666.com/book/8jv7igo/)
 - [咦？我爸爸复活啦](https://www.kanshu666.com/book/8jv7igk/)
 - [同时扮演贵族学院F4和平民校花](https://www.kanshu666.com/book/8jv7igh/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.kanshu666.com/book/8jv7igd/)
 - [自知之明](https://www.kanshu666.com/book/8jv7igb/)
+- [穿为龙傲天发妻后](https://www.kanshu666.com/book/8jv7ig7/)
 - [等我吃腻了再倒闭可以吗](https://www.kanshu666.com/book/8jv7ifi/)
 - [清穿女回来后[天幕]](https://www.kanshu666.com/book/8jv7ifd/)
 - [[足球]小小鸟堂堂来袭](https://www.kanshu666.com/book/8jv7ifc/)
@@ -20,7 +22,6 @@
 - [禁止继承限制级雌君](https://www.kanshu666.com/book/8jv7ier/)
 - [我骗家里的钱养你啊](https://www.kanshu666.com/book/8jv7iei/)
 - [[综英美]和亲友群穿哥谭以后](https://www.kanshu666.com/book/8jv7ief/)
-- [我的烧烤摊超美味[美食]](https://www.kanshu666.com/book/8jv7ie0/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kanshu666.com/book/8jv7ici/)
 - [[综英美]让我统治哥谭！！！](https://www.kanshu666.com/book/8jv7ice/)
 - [青城玩家明明超强却过分谨慎](https://www.kanshu666.com/book/8jv7ic9/)
@@ -30,12 +31,10 @@
 - [失而复得的白月光[快穿]](https://www.kanshu666.com/book/8jv7i9g/)
 - [[封神]圣人生欲](https://www.kanshu666.com/book/8jv7i8c/)
 - [你，后室管理员](https://www.kanshu666.com/book/8jv7i87/)
-- [星际团宠小人鱼](https://www.kanshu666.com/book/8jv7i7j/)
 - [被四皇错看成小动物后](https://www.kanshu666.com/book/8jv7i70/)
 - [高调装神，猥琐发育](https://www.kanshu666.com/book/8jv7i6h/)
 - [阴郁路人不想被喜欢](https://www.kanshu666.com/book/8jv7i64/)
 - [京秋婚约](https://www.kanshu666.com/book/8jv7i5c/)
-- [从异世界穿回来后](https://www.kanshu666.com/book/8jv7i3s/)
 - [直男咒术师的限制级游戏](https://www.kanshu666.com/book/8jv7i2n/)
 - [纯爱宇智波基本恋爱法](https://www.kanshu666.com/book/8jv7i22/)
 - [求生游戏：当邪神成为生活玩家后](https://www.kanshu666.com/book/8jv7i19/)
@@ -407,6 +406,7 @@
 - [作家与读者](https://www.kanshu666.com/book/rj5ccu/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.kanshu666.com/book/rj5bts/)
 - [神之子与排球的适配性](https://www.kanshu666.com/book/rj5b8d/)
+- [被阴湿坏女人缠上后](https://www.kanshu666.com/book/rj5au6/)
 - [虫族治愈师，但恐虫](https://www.kanshu666.com/book/rj5ag1/)
 - [你也没死？](https://www.kanshu666.com/book/rj58m6/)
 - [老公是松散生命体](https://www.kanshu666.com/book/rj56nd/)
@@ -414,10 +414,8 @@
 - [这谁的沙雕二次元心声！](https://www.kanshu666.com/book/rj54ab/)
 - [我最讨厌打球了！](https://www.kanshu666.com/book/rj4v3s/)
 - [误入反派培养直播后](https://www.kanshu666.com/book/rj4tvr/)
-- [多梦你一会儿](https://www.kanshu666.com/book/rj4r8k/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.kanshu666.com/book/rj4oqb/)
 - [[足球]罗蜜第一志愿](https://www.kanshu666.com/book/rj4noc/)
-- [和前女友的心上人he了](https://www.kanshu666.com/book/rj4let/)
 - [哥你不能不要我](https://www.kanshu666.com/book/rj45vi/)
 ## 相关内容
 - [README](/README.md)

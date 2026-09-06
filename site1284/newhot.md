@@ -1,13 +1,14 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-09-05 03:32:27
+更新时间：2026-09-06 03:33:23
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
 - [爱你中文网](https://www.longjiangstone.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.longjiangstone.com/book/34b4ql/)
 - [我骗家里的钱养你啊](https://www.longjiangstone.com/book/34b4qi/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.longjiangstone.com/book/34b4qg/)
 - [自知之明](https://www.longjiangstone.com/book/34b4qa/)
@@ -20,16 +21,14 @@
 - [咦？我爸爸复活啦](https://www.longjiangstone.com/book/34b4ol/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.longjiangstone.com/book/34b4oi/)
 - [禁止继承限制级雌君](https://www.longjiangstone.com/book/34b4ob/)
+- [穿为龙傲天发妻后](https://www.longjiangstone.com/book/34b4oa/)
 - [渡鬼](https://www.longjiangstone.com/book/34b4nt/)
 - [[综英美]让我统治哥谭！！！](https://www.longjiangstone.com/book/34b4np/)
 - [躲避原书剧情五年后](https://www.longjiangstone.com/book/34b4m9/)
 - [暴君偏头痛](https://www.longjiangstone.com/book/34b4m4/)
-- [从异世界穿回来后](https://www.longjiangstone.com/book/34b4l5/)
-- [我的烧烤摊超美味[美食]](https://www.longjiangstone.com/book/34b4kl/)
 - [青城玩家明明超强却过分谨慎](https://www.longjiangstone.com/book/34b4ki/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.longjiangstone.com/book/34b4kh/)
 - [失而复得的白月光[快穿]](https://www.longjiangstone.com/book/34b4jc/)
-- [星际团宠小人鱼](https://www.longjiangstone.com/book/34b4hq/)
 - [你，后室管理员](https://www.longjiangstone.com/book/34b4hl/)
 - [[封神]圣人生欲](https://www.longjiangstone.com/book/34b4ha/)
 - [被四皇错看成小动物后](https://www.longjiangstone.com/book/34b4h7/)
@@ -401,6 +400,7 @@
 - [[足球]在比利时我们只玩天赋](https://www.longjiangstone.com/book/a2i5f/)
 - [虫族治愈师，但恐虫](https://www.longjiangstone.com/book/a2i54/)
 - [直播捏玩具被榜一大哥撅了](https://www.longjiangstone.com/book/a2i50/)
+- [被阴湿坏女人缠上后](https://www.longjiangstone.com/book/a2hud/)
 - [无能的丈夫们](https://www.longjiangstone.com/book/a2hp8/)
 - [神之子与排球的适配性](https://www.longjiangstone.com/book/a2hkr/)
 - [隔壁班的松田君](https://www.longjiangstone.com/book/a2h9n/)
@@ -415,9 +415,7 @@
 - [我最讨厌打球了！](https://www.longjiangstone.com/book/a2517/)
 - [误入反派培养直播后](https://www.longjiangstone.com/book/a22i7/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.longjiangstone.com/book/a201l/)
-- [多梦你一会儿](https://www.longjiangstone.com/book/a1vpn/)
 - [[足球]罗蜜第一志愿](https://www.longjiangstone.com/book/a1rb2/)
-- [和前女友的心上人he了](https://www.longjiangstone.com/book/a1mbg/)
 - [哥你不能不要我](https://www.longjiangstone.com/book/a1apr/)
 ## 相关内容
 - [README](/README.md)

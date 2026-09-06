@@ -1,13 +1,15 @@
 
 # 零点看书吧-书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-05 03:26:29
+更新时间：2026-09-06 03:27:22
 
 零点看书吧是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节。作为无弹窗的小说阅读平台，零点看书吧成为网络小说爱好者必备的选择。
 
 - [零点看书吧](https://www.gjnbgb.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.gjnbgb.com/book/2s9t8t5/)
+- [揣崽丧夫后被情敌强娶了](https://www.gjnbgb.com/book/2s9t8q8/)
 - [末世八年春，游戏降临](https://www.gjnbgb.com/book/2s9t5fr/)
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.gjnbgb.com/book/2s9t5fp/)
 - [死遁APP](https://www.gjnbgb.com/book/2s9t5fm/)
@@ -30,7 +32,6 @@
 - [[洪荒]成为太清妹妹后](https://www.gjnbgb.com/book/2s9t5e9/)
 - [魔法种田，从退队经营农场开始](https://www.gjnbgb.com/book/2s9t5e6/)
 - [人，今晚土拨鼠站岗](https://www.gjnbgb.com/book/2s9t5e3/)
-- [自知之明](https://www.gjnbgb.com/book/2s9t5dv/)
 - [爱情的肯定句](https://www.gjnbgb.com/book/2s9t5dq/)
 - [世界伏于她刀下[无限]](https://www.gjnbgb.com/book/2s9t5dk/)
 - [娘娘扶摇直上](https://www.gjnbgb.com/book/2s9t5dj/)
@@ -107,7 +108,6 @@
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.gjnbgb.com/book/2s9qico/)
 - [路人攻了主角攻［快穿］](https://www.gjnbgb.com/book/2s9qhsg/)
 - [开局绑定郭奉孝，谋定三国风云](https://www.gjnbgb.com/book/2s9qgk4/)
-- [[综英美]让我统治哥谭！！！](https://www.gjnbgb.com/book/2s9qgah/)
 - [苏娘子汴京摆摊日常（美食）](https://www.gjnbgb.com/book/2s9qg91/)
 - [直男咒术师的限制级游戏](https://www.gjnbgb.com/book/2s9qdut/)
 - [漂亮女配是万人迷［快穿］](https://www.gjnbgb.com/book/2s9qasc/)
@@ -137,13 +137,11 @@
 - [村霸非要入赘受气包](https://www.gjnbgb.com/book/2s9p8o6/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.gjnbgb.com/book/2s9p81t/)
 - [和山神搭伙开农场的日子](https://www.gjnbgb.com/book/2s9p7gd/)
-- [娶了女装心机太子](https://www.gjnbgb.com/book/2s9p6es/)
 - [[综英美]和亲友群穿哥谭以后](https://www.gjnbgb.com/book/2s9p65o/)
 - [被糟蹋的老实人决定反击](https://www.gjnbgb.com/book/2s9p65a/)
 - [假意逢承](https://www.gjnbgb.com/book/2s9p4a6/)
 - [权宋一只统](https://www.gjnbgb.com/book/2s9ouvg/)
 - [恶犬攻绑定上司的乖狗系统](https://www.gjnbgb.com/book/2s9ouiu/)
-- [绝不会喜欢五条君的！](https://www.gjnbgb.com/book/2s9ordh/)
 - [爱好和平但狂拆机甲](https://www.gjnbgb.com/book/2s9oqd6/)
 - [你让魔王组建勇者小队？](https://www.gjnbgb.com/book/2s9onjd/)
 - [成为养成系练习生后](https://www.gjnbgb.com/book/2s9nqb0/)
@@ -155,12 +153,11 @@
 - [全民求生:从小木屋到魔法农场](https://www.gjnbgb.com/book/2s9npgf/)
 - [完蛋！被恨孕男包围了！](https://www.gjnbgb.com/book/2s9npf3/)
 - [六零之成了卷王的妹妹](https://www.gjnbgb.com/book/2s9npdc/)
-- [古代种田养娃日常](https://www.gjnbgb.com/book/2s9npd3/)
 - [海岛求生：生活玩家种田囤货](https://www.gjnbgb.com/book/2s9np9s/)
 - [高调装神，猥琐发育](https://www.gjnbgb.com/book/2s9np4t/)
 - [[娱乐圈]过分美丽的她](https://www.gjnbgb.com/book/2s9np43/)
 - [95美国贵族高中模拟](https://www.gjnbgb.com/book/2s9np2b/)
-- [假少爷不想活了](https://www.gjnbgb.com/book/2s9nop8/)
+- [假少爷离开后](https://www.gjnbgb.com/book/2s9nop8/)
 - [五十年代港城日常](https://www.gjnbgb.com/book/2s9nooq/)
 - [十九世纪贵族厨房（美食）](https://www.gjnbgb.com/book/2s9nonj/)
 - [[封神]圣人生欲](https://www.gjnbgb.com/book/2s9nom2/)
@@ -170,10 +167,9 @@
 - [大瑛弟国](https://www.gjnbgb.com/book/2s9nnq4/)
 - [清澈女大的六零年代](https://www.gjnbgb.com/book/2s9nnjc/)
 - [巨物致富：回乡开钓场](https://www.gjnbgb.com/book/2s9nnfo/)
-- [八零恶毒后妈杀疯了](https://www.gjnbgb.com/book/2s9nnee/)
+- [卷王后妈，八零养娃](https://www.gjnbgb.com/book/2s9nnee/)
 - [日化人生[科研]](https://www.gjnbgb.com/book/2s9nndn/)
 - [星际团宠小人鱼](https://www.gjnbgb.com/book/2s9nn9s/)
-- [猫猫也要养家糊口](https://www.gjnbgb.com/book/2s9nn7j/)
 - [原配夫人](https://www.gjnbgb.com/book/2s9nn6p/)
 ## 相关内容
 - [README](/README.md)

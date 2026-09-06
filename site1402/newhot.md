@@ -1,7 +1,7 @@
 
 # 耽美小说网 - 最热门的耽美小说在线阅读
 
-更新时间：2026-09-05 03:33:45
+更新时间：2026-09-06 03:34:40
 
 耽美小说网是一个广大书友喜欢的小说网，免费为您提供热门耽美小说、女生小说、都市言情小说无弹窗在线阅读和txt下载。
 
@@ -12,12 +12,12 @@
 - [躲避原书剧情五年后](https://www.nvwagen.com/book/8u4j54m/)
 - [自知之明](https://www.nvwagen.com/book/8u4j4vq/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.nvwagen.com/book/8u4j4vf/)
+- [穿为龙傲天发妻后](https://www.nvwagen.com/book/8u4j4us/)
 - [清穿女回来后[天幕]](https://www.nvwagen.com/book/8u4j4ud/)
 - [禁止继承限制级雌君](https://www.nvwagen.com/book/8u4j4s8/)
 - [娇气点怎么啦？［快穿］](https://www.nvwagen.com/book/8u4j4on/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.nvwagen.com/book/8u4j3v3/)
 - [不义世界都是我马甲[综英美]](https://www.nvwagen.com/book/8u4j3oh/)
-- [从异世界穿回来后](https://www.nvwagen.com/book/8u4j2j4/)
 - [[综武侠]风流](https://www.nvwagen.com/book/8u4j225/)
 - [孤独症崽崽穿越到狗血爽文里[穿书]](https://www.nvwagen.com/book/8u4j10b/)
 - [我有嘉宾](https://www.nvwagen.com/book/8u4j0sb/)
@@ -58,7 +58,6 @@
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.nvwagen.com/book/8u4hnso/)
 - [女装生崽，娃爹宇智波](https://www.nvwagen.com/book/8u4hnqd/)
 - [五美元在哥谭活一月](https://www.nvwagen.com/book/8u4hnlr/)
-- [我的烧烤摊超美味[美食]](https://www.nvwagen.com/book/8u4hngr/)
 - [渡鬼](https://www.nvwagen.com/book/8u4hn86/)
 - [[综英美]flash小游戏，哥谭出品](https://www.nvwagen.com/book/8u4hn3m/)
 - [超A奶龙饲养指南](https://www.nvwagen.com/book/8u4hmvc/)
@@ -224,7 +223,6 @@
 - [逑丽色难得](https://www.nvwagen.com/book/8u4gn59/)
 - [清穿纯妃养娃日常](https://www.nvwagen.com/book/8u4gmvf/)
 - [请别摘下超能力社恐的耳机](https://www.nvwagen.com/book/8u4gmtm/)
-- [多梦你一会儿](https://www.nvwagen.com/book/8u4gmq2/)
 - [吃瓜也能整顿豪门？](https://www.nvwagen.com/book/8u4gmn0/)
 - [人外收集录［快穿］](https://www.nvwagen.com/book/8u4gmip/)
 - [都说了我很娇纵了](https://www.nvwagen.com/book/8u4gmcj/)
@@ -267,7 +265,6 @@
 - [忍界修罗金屋藏娇了？](https://www.nvwagen.com/book/8u4ghfq/)
 - [揍敌客大小姐好难攻略](https://www.nvwagen.com/book/8u4ghen/)
 - [娇气包在无限游戏被坏男人骗](https://www.nvwagen.com/book/8u4ghas/)
-- [和前女友的心上人he了](https://www.nvwagen.com/book/8u4gh72/)
 - [侯府打工人](https://www.nvwagen.com/book/8u4gh4o/)
 - [野比春子穿越事件簿](https://www.nvwagen.com/book/8u4gh4m/)
 - [[综英美]穿越后和小红鸟灵魂互换了](https://www.nvwagen.com/book/8u4ggu0/)
@@ -394,6 +391,7 @@
 - [普通高中生，但兼职咒术师](https://www.nvwagen.com/book/8u4g80f/)
 - [虫族治愈师，但恐虫](https://www.nvwagen.com/book/8u4g7v9/)
 - [好兄弟暴富后非要跟我结婚](https://www.nvwagen.com/book/8u4g7mr/)
+- [被阴湿坏女人缠上后](https://www.nvwagen.com/book/8u4g7mb/)
 - [顶流他姐有神豪系统](https://www.nvwagen.com/book/8u4g7f0/)
 - [撕毁女配剧本的我被神之子读心了](https://www.nvwagen.com/book/8u4g7ep/)
 - [救命！猫尾巴藏不住了](https://www.nvwagen.com/book/8u4g7e2/)
@@ -425,16 +423,18 @@
 - [柯学剧本杀，但恋爱流打法](https://www.nvwagen.com/book/8u4g52v/)
 - [我，剑圣，养生中，勿扰](https://www.nvwagen.com/book/8u4g4fp/)
 - [李玉灯](https://www.nvwagen.com/book/8u4g4as/)
+- [欢迎来到重生点](https://www.nvwagen.com/book/8u4g3hi/)
 - [好巧，你也是妹控？[综崩铁]](https://www.nvwagen.com/book/8u4g2u0/)
 - [等我吃腻了再倒闭可以吗](https://www.nvwagen.com/book/8u4g19s/)
 - [盛夏晴浓](https://www.nvwagen.com/book/8u4g159/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.nvwagen.com/book/8u4fvb7/)
 - [[综英美]和亲友群穿哥谭以后](https://www.nvwagen.com/book/8u4fufa/)
 - [自大狂](https://www.nvwagen.com/book/8u4flss/)
+- [书呆子扮演渣攻翻车【快穿】](https://www.nvwagen.com/book/8u4fepg/)
+- [丧尸老婆喂养日记](https://www.nvwagen.com/book/8u4f3fq/)
 - [纯爱宇智波基本恋爱法](https://www.nvwagen.com/book/8u4e4li/)
 - [被四皇错看成小动物后](https://www.nvwagen.com/book/8u4e3ea/)
 - [你，后室管理员](https://www.nvwagen.com/book/8u4e39t/)
-- [星际团宠小人鱼](https://www.nvwagen.com/book/8u4e2tj/)
 - [高调装神，猥琐发育](https://www.nvwagen.com/book/8u4e2sf/)
 - [误入反派培养直播后](https://www.nvwagen.com/book/8u4e26u/)
 - [[封神]圣人生欲](https://www.nvwagen.com/book/8u4e1vi/)
