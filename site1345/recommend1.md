@@ -1,13 +1,15 @@
 
 # 探秘笔神阁小说-好看小说快速更新,页面清新流畅的免费小说网
 
-更新时间：2026-09-05 03:39:12
+更新时间：2026-09-06 03:40:04
 
 探秘笔神阁小说收录了大量受欢迎的小说作品，以极快的速度进行更新，并且保证用户在阅读时能够享受到清新流畅的页面体验。作为一个完全免费的小说网站，它深受广大网友的喜爱。
 
 - [探秘笔神阁小说](https://www.tanmi818.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.tanmi818.com/book/977fhbm/)
+- [揣崽丧夫后被情敌强娶了](https://www.tanmi818.com/book/977fhbl/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.tanmi818.com/book/977fhbg/)
 - [恐游里的邻居们[万人迷]](https://www.tanmi818.com/book/977fhba/)
 - [占有欲Daddy是我老公？](https://www.tanmi818.com/book/977fhb7/)
@@ -65,7 +67,6 @@
 - [魔咒请说普通话[西幻]](https://www.tanmi818.com/book/977fh72/)
 - [魔改剧本后我爆火了[娱乐圈]](https://www.tanmi818.com/book/977fh71/)
 - [[原神]魔法使恋爱指南](https://www.tanmi818.com/book/977fh70/)
-- [自知之明](https://www.tanmi818.com/book/977fh6t/)
 - [SSS级异种都是我前任](https://www.tanmi818.com/book/977fh6s/)
 - [星露谷，但日本战国](https://www.tanmi818.com/book/977fh6p/)
 - [仙尊心尖宠，但被魔尊抢了](https://www.tanmi818.com/book/977fh6n/)
@@ -119,7 +120,6 @@
 - [漂亮女配是万人迷［快穿］](https://www.tanmi818.com/book/977ci5i/)
 - [苏娘子汴京摆摊日常（美食）](https://www.tanmi818.com/book/977cgi4/)
 - [我有一座地下城](https://www.tanmi818.com/book/977cg2j/)
-- [[综英美]让我统治哥谭！！！](https://www.tanmi818.com/book/977cce1/)
 - [阴阳师也可以打网球](https://www.tanmi818.com/book/977cb90/)
 - [如何嫁给当朝首辅](https://www.tanmi818.com/book/977canh/)
 - [和治君只是饭搭子的关系](https://www.tanmi818.com/book/977caer/)
@@ -127,7 +127,7 @@
 - [和贵志君是世界第一的好朋友](https://www.tanmi818.com/book/977ca4b/)
 - [多梦你一会儿](https://www.tanmi818.com/book/977c9u1/)
 - [五条老师与他的封建妻子](https://www.tanmi818.com/book/977c8q7/)
-- [八零恶毒后妈杀疯了](https://www.tanmi818.com/book/977c8lm/)
+- [卷王后妈，八零养娃](https://www.tanmi818.com/book/977c8lm/)
 - [在魔法贵族学院当白月光](https://www.tanmi818.com/book/977c7in/)
 - [我187了，你敢见我吗？](https://www.tanmi818.com/book/977c5um/)
 - [我司艺人永不塌房](https://www.tanmi818.com/book/977c4ic/)
@@ -145,7 +145,6 @@
 - [趁她之危](https://www.tanmi818.com/book/977bf8b/)
 - [村霸非要入赘受气包](https://www.tanmi818.com/book/977bf2d/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.tanmi818.com/book/977beds/)
-- [娶了女装心机太子](https://www.tanmi818.com/book/977be4g/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.tanmi818.com/book/977bde0/)
 - [清冷丞相怀了死对头的崽](https://www.tanmi818.com/book/977bdar/)
 - [和山神搭伙开农场的日子](https://www.tanmi818.com/book/977ba3b/)
@@ -155,20 +154,17 @@
 - [权宋一只统](https://www.tanmi818.com/book/977b338/)
 - [爱好和平但狂拆机甲](https://www.tanmi818.com/book/977arst/)
 - [我是唯一地上神国](https://www.tanmi818.com/book/977a02d/)
-- [猫猫也要养家糊口](https://www.tanmi818.com/book/9779vuk/)
-- [古代种田养娃日常](https://www.tanmi818.com/book/9779vp3/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.tanmi818.com/book/9779vn4/)
 - [海岛求生：生活玩家种田囤货](https://www.tanmi818.com/book/9779vh5/)
 - [五十年代港城日常](https://www.tanmi818.com/book/9779v2c/)
 - [大瑛弟国](https://www.tanmi818.com/book/9779v1e/)
 - [成为养成系练习生后](https://www.tanmi818.com/book/9779uup/)
-- [假少爷不想活了](https://www.tanmi818.com/book/9779upa/)
+- [假少爷离开后](https://www.tanmi818.com/book/9779upa/)
 - [我有一座安全城](https://www.tanmi818.com/book/9779ugk/)
 - [清澈女大的六零年代](https://www.tanmi818.com/book/9779uff/)
 - [全民求生:从小木屋到魔法农场](https://www.tanmi818.com/book/9779u9l/)
 - [直男咒术师的限制级游戏](https://www.tanmi818.com/book/9779u7v/)
 - [巨物致富：回乡开钓场](https://www.tanmi818.com/book/9779u0g/)
-- [绝不会喜欢五条君的！](https://www.tanmi818.com/book/9779u06/)
 - [高门小婢](https://www.tanmi818.com/book/9779tok/)
 - [95美国贵族高中模拟](https://www.tanmi818.com/book/9779tnu/)
 - [六零之成了卷王的妹妹](https://www.tanmi818.com/book/9779td8/)

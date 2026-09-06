@@ -1,7 +1,7 @@
 
 # 微雨数据小说,新笔趣小说阅读网,顶点小说网备份-热门小说大全
 
-更新时间：2026-09-05 03:40:14
+更新时间：2026-09-06 03:41:05
 
 微雨数据小说网作为广大书友喜爱的平台之一，同时也是顶点小说阅读网的官方备份网站，汇集了当前最受欢迎和最火热的小说资源。当遇到顶点小说网无法访问时，请访问笔趣看小说网继续享受精彩内容！
 
@@ -14,10 +14,10 @@
 - [［综英美］蝙蝠崽？我不是啊！](https://www.weiyushuju.com/book/6rf7ajs/)
 - [禁止继承限制级雌君](https://www.weiyushuju.com/book/6rf7ajl/)
 - [清穿女回来后[天幕]](https://www.weiyushuju.com/book/6rf7ajg/)
+- [穿为龙傲天发妻后](https://www.weiyushuju.com/book/6rf7aj6/)
 - [娇气点怎么啦？［快穿］](https://www.weiyushuju.com/book/6rf7af2/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.weiyushuju.com/book/6rf79le/)
 - [不义世界都是我马甲[综英美]](https://www.weiyushuju.com/book/6rf79e0/)
-- [从异世界穿回来后](https://www.weiyushuju.com/book/6rf788t/)
 - [[综武侠]风流](https://www.weiyushuju.com/book/6rf77r9/)
 - [我有嘉宾](https://www.weiyushuju.com/book/6rf76mr/)
 - [孤独症崽崽穿越到狗血爽文里[穿书]](https://www.weiyushuju.com/book/6rf76jc/)
@@ -59,7 +59,6 @@
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.weiyushuju.com/book/6rf5tba/)
 - [暗堕本丸，在线直播](https://www.weiyushuju.com/book/6rf5tb7/)
 - [渡鬼](https://www.weiyushuju.com/book/6rf5t58/)
-- [我的烧烤摊超美味[美食]](https://www.weiyushuju.com/book/6rf5t1e/)
 - [[足球]听克圣的话，成了米兰金童](https://www.weiyushuju.com/book/6rf5smk/)
 - [我有一座城](https://www.weiyushuju.com/book/6rf5s4u/)
 - [bl世界的路人不想被掰弯](https://www.weiyushuju.com/book/6rf5rj7/)
@@ -231,7 +230,6 @@
 - [这谁的沙雕二次元心声！](https://www.weiyushuju.com/book/6rf4rm0/)
 - [变成龙傲天的心上猫后](https://www.weiyushuju.com/book/6rf4rlv/)
 - [蜜蜂膝盖银子弹](https://www.weiyushuju.com/book/6rf4rgr/)
-- [多梦你一会儿](https://www.weiyushuju.com/book/6rf4r25/)
 - [皇后守则[快穿]](https://www.weiyushuju.com/book/6rf4r1f/)
 - [都说了我很娇纵了](https://www.weiyushuju.com/book/6rf4qt3/)
 - [荒谬神父是个渣](https://www.weiyushuju.com/book/6rf4qq7/)
@@ -248,7 +246,6 @@
 - [豪门养子怀了大哥的崽](https://www.weiyushuju.com/book/6rf4p8o/)
 - [退圈后，我靠职场综艺火爆全网](https://www.weiyushuju.com/book/6rf4p6d/)
 - [[综英美]小玉有话说](https://www.weiyushuju.com/book/6rf4p5s/)
-- [和前女友的心上人he了](https://www.weiyushuju.com/book/6rf4p4d/)
 - [如何登顶反派第一](https://www.weiyushuju.com/book/6rf4oss/)
 - [炮灰的我该如何上位？](https://www.weiyushuju.com/book/6rf4oq9/)
 - [人在综漫，但崩铁马甲](https://www.weiyushuju.com/book/6rf4opm/)
@@ -400,6 +397,7 @@
 - [神之子与排球的适配性](https://www.weiyushuju.com/book/6rf4cv2/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.weiyushuju.com/book/6rf4cre/)
 - [失忆后，和五条激情互演](https://www.weiyushuju.com/book/6rf4cqc/)
+- [被阴湿坏女人缠上后](https://www.weiyushuju.com/book/6rf4cmt/)
 - [撕毁女配剧本的我被神之子读心了](https://www.weiyushuju.com/book/6rf4cm5/)
 - [暴君偏头痛](https://www.weiyushuju.com/book/6rf4cf7/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.weiyushuju.com/book/6rf4ce8/)
@@ -425,13 +423,15 @@
 - [好巧，你也是妹控？[综崩铁]](https://www.weiyushuju.com/book/6rf4atq/)
 - [我，剑圣，养生中，勿扰](https://www.weiyushuju.com/book/6rf4as9/)
 - [柯学剧本杀，但恋爱流打法](https://www.weiyushuju.com/book/6rf4aru/)
+- [欢迎来到重生点](https://www.weiyushuju.com/book/6rf4ao7/)
 - [李玉灯](https://www.weiyushuju.com/book/6rf4876/)
 - [盛夏晴浓](https://www.weiyushuju.com/book/6rf4835/)
 - [等我吃腻了再倒闭可以吗](https://www.weiyushuju.com/book/6rf47jl/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.weiyushuju.com/book/6rf44i2/)
 - [[综英美]和亲友群穿哥谭以后](https://www.weiyushuju.com/book/6rf42ap/)
 - [自大狂](https://www.weiyushuju.com/book/6rf3pk2/)
-- [星际团宠小人鱼](https://www.weiyushuju.com/book/6rf2a5n/)
+- [书呆子扮演渣攻翻车【快穿】](https://www.weiyushuju.com/book/6rf3jvp/)
+- [丧尸老婆喂养日记](https://www.weiyushuju.com/book/6rf37tn/)
 - [误入反派培养直播后](https://www.weiyushuju.com/book/6rf29g6/)
 - [纯爱宇智波基本恋爱法](https://www.weiyushuju.com/book/6rf29aj/)
 - [[封神]圣人生欲](https://www.weiyushuju.com/book/6rf295t/)

@@ -1,13 +1,15 @@
 
 # 读者电子书-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-09-05 03:25:27
+更新时间：2026-09-06 03:26:19
 
 读者电子书提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
 
 - [读者电子书](https://www.duzhe368.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.duzhe368.com/book/3hfvb7j/)
+- [揣崽丧夫后被情敌强娶了](https://www.duzhe368.com/book/3hfvb7i/)
 - [漫画取材所引发的修罗场](https://www.duzhe368.com/book/3hfvb7f/)
 - [二次分化后他怀了死对头的崽](https://www.duzhe368.com/book/3hfvb7d/)
 - [暗恋的价格是三万块](https://www.duzhe368.com/book/3hfvb7c/)
@@ -28,7 +30,6 @@
 - [清穿女回来后[天幕]](https://www.duzhe368.com/book/3hfvb68/)
 - [恶毒男配只想躺平](https://www.duzhe368.com/book/3hfvb65/)
 - [你让魔王组建勇者小队？](https://www.duzhe368.com/book/3hfvb63/)
-- [自知之明](https://www.duzhe368.com/book/3hfvb62/)
 - [爱情的肯定句](https://www.duzhe368.com/book/3hfvb60/)
 - [热恋过期需重追](https://www.duzhe368.com/book/3hfvb5v/)
 - [仙尊心尖宠，但被魔尊抢了](https://www.duzhe368.com/book/3hfvb5s/)
@@ -124,10 +125,9 @@
 - [多梦你一会儿](https://www.duzhe368.com/book/3hfs4ds/)
 - [[封神]圣人生欲](https://www.duzhe368.com/book/3hfs47l/)
 - [和贵志君是世界第一的好朋友](https://www.duzhe368.com/book/3hfs3qc/)
-- [[综英美]让我统治哥谭！！！](https://www.duzhe368.com/book/3hfs3p5/)
 - [和治君只是饭搭子的关系](https://www.duzhe368.com/book/3hfs3n1/)
 - [五条老师与他的封建妻子](https://www.duzhe368.com/book/3hfs20i/)
-- [八零恶毒后妈杀疯了](https://www.duzhe368.com/book/3hfs0rp/)
+- [卷王后妈，八零养娃](https://www.duzhe368.com/book/3hfs0rp/)
 - [在魔法贵族学院当白月光](https://www.duzhe368.com/book/3hfs0km/)
 - [我司艺人永不塌房](https://www.duzhe368.com/book/3hfs02r/)
 - [我187了，你敢见我吗？](https://www.duzhe368.com/book/3hfru2d/)
@@ -145,7 +145,6 @@
 - [趁她之危](https://www.duzhe368.com/book/3hfr9uq/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.duzhe368.com/book/3hfr8g0/)
 - [村霸非要入赘受气包](https://www.duzhe368.com/book/3hfr7tn/)
-- [娶了女装心机太子](https://www.duzhe368.com/book/3hfr77c/)
 - [清冷丞相怀了死对头的崽](https://www.duzhe368.com/book/3hfr6vu/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.duzhe368.com/book/3hfr6pu/)
 - [被糟蹋的老实人决定反击](https://www.duzhe368.com/book/3hfr3v0/)
@@ -154,14 +153,12 @@
 - [恶犬攻绑定上司的乖狗系统](https://www.duzhe368.com/book/3hfqvn6/)
 - [权宋一只统](https://www.duzhe368.com/book/3hfqqqm/)
 - [爱好和平但狂拆机甲](https://www.duzhe368.com/book/3hfqn0f/)
-- [古代种田养娃日常](https://www.duzhe368.com/book/3hfpq0i/)
 - [我是唯一地上神国](https://www.duzhe368.com/book/3hfppvf/)
 - [[娱乐圈]过分美丽的她](https://www.duzhe368.com/book/3hfppge/)
 - [日化人生[科研]](https://www.duzhe368.com/book/3hfppfb/)
-- [假少爷不想活了](https://www.duzhe368.com/book/3hfppdd/)
+- [假少爷离开后](https://www.duzhe368.com/book/3hfppdd/)
 - [大瑛弟国](https://www.duzhe368.com/book/3hfpp62/)
 - [95美国贵族高中模拟](https://www.duzhe368.com/book/3hfpp5l/)
-- [绝不会喜欢五条君的！](https://www.duzhe368.com/book/3hfpp3u/)
 - [六零之成了卷王的妹妹](https://www.duzhe368.com/book/3hfpp3i/)
 - [我有一座安全城](https://www.duzhe368.com/book/3hfpoio/)
 - [巨物致富：回乡开钓场](https://www.duzhe368.com/book/3hfpoei/)
@@ -173,7 +170,6 @@
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.duzhe368.com/book/3hfpn89/)
 - [清澈女大的六零年代](https://www.duzhe368.com/book/3hfpn2v/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.duzhe368.com/book/3hfpmur/)
-- [猫猫也要养家糊口](https://www.duzhe368.com/book/3hfpmrf/)
 - [直男咒术师的限制级游戏](https://www.duzhe368.com/book/3hfpmre/)
 ## 相关内容
 - [README](/README.md)

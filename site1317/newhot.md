@@ -1,13 +1,14 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-05 03:47:25
+更新时间：2026-09-06 03:48:16
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。
 
 - [作品思路客](https://www.zuopin666.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.zuopin666.com/book/8befhkl/)
 - [清穿女回来后[天幕]](https://www.zuopin666.com/book/8befhk5/)
 - [同时扮演贵族学院F4和平民校花](https://www.zuopin666.com/book/8befhk3/)
 - [禁止继承限制级雌君](https://www.zuopin666.com/book/8befhjv/)
@@ -18,19 +19,17 @@
 - [全世界名为爱的恶意](https://www.zuopin666.com/book/8befhje/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.zuopin666.com/book/8befhj6/)
 - [[综英美]和亲友群穿哥谭以后](https://www.zuopin666.com/book/8befhj3/)
+- [穿为龙傲天发妻后](https://www.zuopin666.com/book/8befhiu/)
 - [[足球]小小鸟堂堂来袭](https://www.zuopin666.com/book/8befhim/)
 - [咦？我爸爸复活啦](https://www.zuopin666.com/book/8befhil/)
 - [[综英美]让我统治哥谭！！！](https://www.zuopin666.com/book/8befhhi/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.zuopin666.com/book/8befhgm/)
 - [渡鬼](https://www.zuopin666.com/book/8befhg8/)
-- [从异世界穿回来后](https://www.zuopin666.com/book/8befhg1/)
-- [我的烧烤摊超美味[美食]](https://www.zuopin666.com/book/8befhfs/)
 - [失而复得的白月光[快穿]](https://www.zuopin666.com/book/8befhfr/)
 - [躲避原书剧情五年后](https://www.zuopin666.com/book/8befhfk/)
 - [暴君偏头痛](https://www.zuopin666.com/book/8befhdh/)
 - [青城玩家明明超强却过分谨慎](https://www.zuopin666.com/book/8befhd4/)
 - [你，后室管理员](https://www.zuopin666.com/book/8befhcs/)
-- [星际团宠小人鱼](https://www.zuopin666.com/book/8befhcl/)
 - [[封神]圣人生欲](https://www.zuopin666.com/book/8befhcb/)
 - [被四皇错看成小动物后](https://www.zuopin666.com/book/8befhao/)
 - [高调装神，猥琐发育](https://www.zuopin666.com/book/8befhaf/)
@@ -404,6 +403,7 @@
 - [忍界观察日记](https://www.zuopin666.com/book/qnsj8u/)
 - [作家与读者](https://www.zuopin666.com/book/qnsih9/)
 - [无能的丈夫们](https://www.zuopin666.com/book/qnsia5/)
+- [被阴湿坏女人缠上后](https://www.zuopin666.com/book/qnsi1h/)
 - [[足球]在比利时我们只玩天赋](https://www.zuopin666.com/book/qnshjd/)
 - [虫族治愈师，但恐虫](https://www.zuopin666.com/book/qnshav/)
 - [神之子与排球的适配性](https://www.zuopin666.com/book/qnsh6g/)
@@ -415,9 +415,7 @@
 - [我最讨厌打球了！](https://www.zuopin666.com/book/qns5hh/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.zuopin666.com/book/qns1hg/)
 - [误入反派培养直播后](https://www.zuopin666.com/book/qns0iu/)
-- [多梦你一会儿](https://www.zuopin666.com/book/qns012/)
 - [[足球]罗蜜第一志愿](https://www.zuopin666.com/book/qnrtla/)
-- [和前女友的心上人he了](https://www.zuopin666.com/book/qnrmnb/)
 - [哥你不能不要我](https://www.zuopin666.com/book/qnrd1o/)
 ## 相关内容
 - [README](/README.md)

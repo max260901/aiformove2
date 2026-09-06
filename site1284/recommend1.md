@@ -1,13 +1,15 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-09-05 03:32:27
+更新时间：2026-09-06 03:33:23
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
 - [爱你中文网](https://www.longjiangstone.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.longjiangstone.com/book/34b4qk/)
+- [揣崽丧夫后被情敌强娶了](https://www.longjiangstone.com/book/34b4qj/)
 - [我骗家里的钱养你啊](https://www.longjiangstone.com/book/34b4qi/)
 - [谁说踢球就不能成为名侦探[足球]](https://www.longjiangstone.com/book/34b4qh/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.longjiangstone.com/book/34b4qg/)
@@ -15,7 +17,6 @@
 - [在中世纪做奴隶](https://www.longjiangstone.com/book/34b4qd/)
 - [人，今晚土拨鼠站岗](https://www.longjiangstone.com/book/34b4qc/)
 - [[足球]雏鸟](https://www.longjiangstone.com/book/34b4qb/)
-- [自知之明](https://www.longjiangstone.com/book/34b4qa/)
 - [魔法种田，从退队经营农场开始](https://www.longjiangstone.com/book/34b4q9/)
 - [恐游作精女配求生指南](https://www.longjiangstone.com/book/34b4q8/)
 - [[足球]小小鸟堂堂来袭](https://www.longjiangstone.com/book/34b4q7/)
@@ -82,7 +83,6 @@
 - [穿为龙傲天发妻后](https://www.longjiangstone.com/book/34b4oa/)
 - [魔咒请说普通话[西幻]](https://www.longjiangstone.com/book/34b4o9/)
 - [我们生活玩家是这样的](https://www.longjiangstone.com/book/34b4nv/)
-- [[综英美]让我统治哥谭！！！](https://www.longjiangstone.com/book/34b4np/)
 - [我司艺人永不塌房](https://www.longjiangstone.com/book/34b4mp/)
 - [原配夫人](https://www.longjiangstone.com/book/34b4it/)
 - [始乱终弃清冷首辅后](https://www.longjiangstone.com/book/34b4il/)
@@ -91,14 +91,12 @@
 - [[封神]圣人生欲](https://www.longjiangstone.com/book/34b4ha/)
 - [十九世纪贵族厨房（美食）](https://www.longjiangstone.com/book/34b4gl/)
 - [高调装神，猥琐发育](https://www.longjiangstone.com/book/34b4gf/)
-- [假少爷不想活了](https://www.longjiangstone.com/book/34b4gd/)
+- [假少爷离开后](https://www.longjiangstone.com/book/34b4gd/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.longjiangstone.com/book/34b4fs/)
 - [直男咒术师的限制级游戏](https://www.longjiangstone.com/book/34b4cq/)
-- [绝不会喜欢五条君的！](https://www.longjiangstone.com/book/34b33m/)
 - [六零之成了卷王的妹妹](https://www.longjiangstone.com/book/34b33b/)
 - [路人攻了主角攻［快穿］](https://www.longjiangstone.com/book/34b335/)
 - [昭暮](https://www.longjiangstone.com/book/34apg1/)
-- [古代种田养娃日常](https://www.longjiangstone.com/book/34ae5u/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.longjiangstone.com/book/34adn5/)
 - [[足球]足坛人生模拟器](https://www.longjiangstone.com/book/349eju/)
 - [上个鬼班[无限]](https://www.longjiangstone.com/book/34944t/)
@@ -143,12 +141,11 @@
 - [多梦你一会儿](https://www.longjiangstone.com/book/a1vpn/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.longjiangstone.com/book/a1v5v/)
 - [韩团绿卡不想忍了](https://www.longjiangstone.com/book/a1ss9/)
-- [娶了女装心机太子](https://www.longjiangstone.com/book/a1ss5/)
 - [被糟蹋的老实人决定反击](https://www.longjiangstone.com/book/a1rdn/)
 - [村霸非要入赘受气包](https://www.longjiangstone.com/book/a1qpr/)
 - [这个位面归我了！[经营]](https://www.longjiangstone.com/book/a1pso/)
 - [清冷丞相怀了死对头的崽](https://www.longjiangstone.com/book/a1phm/)
-- [八零恶毒后妈杀疯了](https://www.longjiangstone.com/book/a1o1s/)
+- [卷王后妈，八零养娃](https://www.longjiangstone.com/book/a1o1s/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.longjiangstone.com/book/a1m1h/)
 - [和山神搭伙开农场的日子](https://www.longjiangstone.com/book/a1lan/)
 - [心动嫌疑人](https://www.longjiangstone.com/book/a1kmg/)
@@ -169,7 +166,6 @@
 - [在魔法贵族学院当白月光](https://www.longjiangstone.com/book/103hv/)
 - [大瑛弟国](https://www.longjiangstone.com/book/103bp/)
 - [开局绑定郭奉孝，谋定三国风云](https://www.longjiangstone.com/book/102p3/)
-- [猫猫也要养家糊口](https://www.longjiangstone.com/book/102lt/)
 - [完蛋！被恨孕男包围了！](https://www.longjiangstone.com/book/102if/)
 - [95美国贵族高中模拟](https://www.longjiangstone.com/book/37e9/)
 - [全民求生:从小木屋到魔法农场](https://www.longjiangstone.com/book/3771/)

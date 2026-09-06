@@ -1,13 +1,14 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-09-05 03:45:59
+更新时间：2026-09-06 03:46:48
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
 - [酷匠小说网](https://www.yumin66.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.yumin66.com/book/5q5nem/)
 - [等我吃腻了再倒闭可以吗](https://www.yumin66.com/book/5q5neh/)
 - [[综英美]和亲友群穿哥谭以后](https://www.yumin66.com/book/5q5nea/)
 - [清穿女回来后[天幕]](https://www.yumin66.com/book/5q5ne7/)
@@ -19,9 +20,8 @@
 - [我骗家里的钱养你啊](https://www.yumin66.com/book/5q5ndd/)
 - [禁止继承限制级雌君](https://www.yumin66.com/book/5q5ndb/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.yumin66.com/book/5q5nd3/)
+- [穿为龙傲天发妻后](https://www.yumin66.com/book/5q5ncq/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.yumin66.com/book/5q5ncf/)
-- [我的烧烤摊超美味[美食]](https://www.yumin66.com/book/5q5nc0/)
-- [从异世界穿回来后](https://www.yumin66.com/book/5q5nbe/)
 - [[综英美]让我统治哥谭！！！](https://www.yumin66.com/book/5q5nav/)
 - [暴君偏头痛](https://www.yumin66.com/book/5q5n9i/)
 - [躲避原书剧情五年后](https://www.yumin66.com/book/5q5n8r/)
@@ -30,7 +30,6 @@
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yumin66.com/book/5q5n74/)
 - [[封神]圣人生欲](https://www.yumin66.com/book/5q5n5t/)
 - [你，后室管理员](https://www.yumin66.com/book/5q5n5l/)
-- [星际团宠小人鱼](https://www.yumin66.com/book/5q5n58/)
 - [被四皇错看成小动物后](https://www.yumin66.com/book/5q5n53/)
 - [高调装神，猥琐发育](https://www.yumin66.com/book/5q5n4h/)
 - [直男咒术师的限制级游戏](https://www.yumin66.com/book/5q5n44/)
@@ -395,6 +394,7 @@
 - [苦咒琉璃](https://www.yumin66.com/book/il84n/)
 - [直播捏玩具被榜一大哥撅了](https://www.yumin66.com/book/il7o2/)
 - [顶流他姐有神豪系统](https://www.yumin66.com/book/il7ii/)
+- [被阴湿坏女人缠上后](https://www.yumin66.com/book/il7fj/)
 - [青山不渡](https://www.yumin66.com/book/il7b5/)
 - [失忆后，和五条激情互演](https://www.yumin66.com/book/il703/)
 - [无能的丈夫们](https://www.yumin66.com/book/il6on/)
@@ -414,9 +414,7 @@
 - [我最讨厌打球了！](https://www.yumin66.com/book/ikp9a/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.yumin66.com/book/ikll5/)
 - [误入反派培养直播后](https://www.yumin66.com/book/ikkeb/)
-- [多梦你一会儿](https://www.yumin66.com/book/ikk5b/)
 - [[足球]罗蜜第一志愿](https://www.yumin66.com/book/ikgn3/)
-- [和前女友的心上人he了](https://www.yumin66.com/book/ikcsv/)
 - [哥你不能不要我](https://www.yumin66.com/book/ijvg6/)
 ## 相关内容
 - [README](/README.md)

@@ -1,13 +1,14 @@
 
 # 情感小说-精彩小说推荐网,涵盖言情都市历史科幻等多种类型
 
-更新时间：2026-09-05 03:35:16
+更新时间：2026-09-06 03:36:12
 
 情感小说致力于为广大书友推荐各种类型好看的小说，包括但不限于言情、都市、历史、科幻、灵异、军事、悬疑、玄幻、武侠、末世等。看小说，找小说就上书格格小说推荐网！
 
 - [情感小说](https://www.qinggan1687.com/)
 
 ## 最新小说
+- [穿为龙傲天发妻后](https://www.qinggan1687.com/book/3qc5irq/)
 - [全世界名为爱的恶意](https://www.qinggan1687.com/book/3qc5irn/)
 - [等我吃腻了再倒闭可以吗](https://www.qinggan1687.com/book/3qc5irg/)
 - [禁止继承限制级雌君](https://www.qinggan1687.com/book/3qc5iqh/)
@@ -31,11 +32,9 @@
 - [[足球]番外乐子集](https://www.qinggan1687.com/book/3qc59a5/)
 - [我超凶的！[快穿]](https://www.qinggan1687.com/book/3qc57dc/)
 - [我比反派先崩坏[快穿]](https://www.qinggan1687.com/book/3qc56k3/)
-- [我的烧烤摊超美味[美食]](https://www.qinggan1687.com/book/3qc56ch/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.qinggan1687.com/book/3qc56b7/)
 - [渡鬼](https://www.qinggan1687.com/book/3qc56au/)
 - [cos温迪后玩到真崩铁了](https://www.qinggan1687.com/book/3qc524v/)
-- [从异世界穿回来后](https://www.qinggan1687.com/book/3qc51vs/)
 - [我有嘉宾](https://www.qinggan1687.com/book/3qc51m3/)
 - [娇气点怎么啦？［快穿］](https://www.qinggan1687.com/book/3qc51kj/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.qinggan1687.com/book/3qc50tl/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.qinggan1687.com/book/3qc4bte/)
 - [昭暮](https://www.qinggan1687.com/book/3qc4ars/)
 - [你，后室管理员](https://www.qinggan1687.com/book/3qc474s/)
-- [星际团宠小人鱼](https://www.qinggan1687.com/book/3qc474b/)
 - [高调装神，猥琐发育](https://www.qinggan1687.com/book/3qc401u/)
 - [某横滨的时间操纵](https://www.qinggan1687.com/book/3qc3pi4/)
 - [反派执迷不悟之后（快穿）](https://www.qinggan1687.com/book/3qc3pd3/)
@@ -293,7 +291,6 @@
 - [修仙回来后开了间民宿](https://www.qinggan1687.com/book/3qc2cj5/)
 - [贵族学院的直男跟班](https://www.qinggan1687.com/book/3qc2cg7/)
 - [陌上炊烟（种田）](https://www.qinggan1687.com/book/3qc2ccg/)
-- [多梦你一会儿](https://www.qinggan1687.com/book/3qc2c9j/)
 - [佐久早才不是洁癖！](https://www.qinggan1687.com/book/3qc2c5g/)
 - [拯救美强惨女主进行时[快穿]](https://www.qinggan1687.com/book/3qc2c29/)
 - [乙骨同学很好欺负](https://www.qinggan1687.com/book/3qc2bub/)
@@ -385,7 +382,6 @@
 - [超忆症大佬在古代破案](https://www.qinggan1687.com/book/3qc25jp/)
 - [炮灰今天也在加班[快穿]](https://www.qinggan1687.com/book/3qc25i3/)
 - [小寡夫还有两幅面孔](https://www.qinggan1687.com/book/3qc25hj/)
-- [和前女友的心上人he了](https://www.qinggan1687.com/book/3qc25bb/)
 - [你男朋友我接手了](https://www.qinggan1687.com/book/3qc25b7/)
 - [随便捡小狗会出大问题](https://www.qinggan1687.com/book/3qc2593/)
 - [穿进忍界后每天迫害黑绝](https://www.qinggan1687.com/book/3qc2590/)
@@ -403,6 +399,7 @@
 - [小狗向导，世界瑰宝！](https://www.qinggan1687.com/book/3qc24e8/)
 - [国舅太难追了](https://www.qinggan1687.com/book/3qc24cv/)
 - [神之子与排球的适配性](https://www.qinggan1687.com/book/3qc2462/)
+- [被阴湿坏女人缠上后](https://www.qinggan1687.com/book/3qc245c/)
 - [在重男兄弟间夹缝求生](https://www.qinggan1687.com/book/3qc2443/)
 - [直播捏玩具被榜一大哥撅了](https://www.qinggan1687.com/book/3qc241k/)
 - [咒术师，但队友是侦探](https://www.qinggan1687.com/book/3qc23qh/)
@@ -429,6 +426,7 @@
 - [[足球]小小鸟堂堂来袭](https://www.qinggan1687.com/book/3qc1o09/)
 - [幼崽假少爷选择回归寒门](https://www.qinggan1687.com/book/3qc1nru/)
 - [好巧，你也是妹控？[综崩铁]](https://www.qinggan1687.com/book/3qc1mg7/)
+- [欢迎来到重生点](https://www.qinggan1687.com/book/3qc1m24/)
 - [青城玩家明明超强却过分谨慎](https://www.qinggan1687.com/book/3qc1lu6/)
 - [法外狂猫](https://www.qinggan1687.com/book/3qc1idb/)
 - [好兄弟暴富后非要跟我结婚](https://www.qinggan1687.com/book/3qc1hdo/)

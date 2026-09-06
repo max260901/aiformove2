@@ -1,7 +1,7 @@
 
 # 书香小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-05 03:38:29
+更新时间：2026-09-06 03:39:21
 
 书香小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -14,6 +14,7 @@
 - [全世界名为爱的恶意](https://www.shuxiang368.com/book/3qko7sm/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.shuxiang368.com/book/3qko7sk/)
 - [自知之明](https://www.shuxiang368.com/book/3qko7ro/)
+- [穿为龙傲天发妻后](https://www.shuxiang368.com/book/3qko7rd/)
 - [禁止继承限制级雌君](https://www.shuxiang368.com/book/3qko7pk/)
 - [等我吃腻了再倒闭可以吗](https://www.shuxiang368.com/book/3qko7oq/)
 - [修仙界都为我神魂颠倒](https://www.shuxiang368.com/book/3qko5or/)
@@ -31,11 +32,9 @@
 - [[足球]番外乐子集](https://www.shuxiang368.com/book/3qknub2/)
 - [我超凶的！[快穿]](https://www.shuxiang368.com/book/3qknsfe/)
 - [我比反派先崩坏[快穿]](https://www.shuxiang368.com/book/3qknrll/)
-- [我的烧烤摊超美味[美食]](https://www.shuxiang368.com/book/3qknrek/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shuxiang368.com/book/3qknrcl/)
 - [渡鬼](https://www.shuxiang368.com/book/3qknrbl/)
 - [cos温迪后玩到真崩铁了](https://www.shuxiang368.com/book/3qknn8g/)
-- [从异世界穿回来后](https://www.shuxiang368.com/book/3qknn1o/)
 - [我有嘉宾](https://www.shuxiang368.com/book/3qknmpj/)
 - [娇气点怎么啦？［快穿］](https://www.shuxiang368.com/book/3qknmk0/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.shuxiang368.com/book/3qknm0t/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.shuxiang368.com/book/3qkn109/)
 - [昭暮](https://www.shuxiang368.com/book/3qkmvvc/)
 - [你，后室管理员](https://www.shuxiang368.com/book/3qkms4i/)
-- [星际团宠小人鱼](https://www.shuxiang368.com/book/3qkms1p/)
 - [高调装神，猥琐发育](https://www.shuxiang368.com/book/3qkmkum/)
 - [某横滨的时间操纵](https://www.shuxiang368.com/book/3qkmed3/)
 - [伪装路人后成了反派首领](https://www.shuxiang368.com/book/3qkmecf/)
@@ -291,7 +289,6 @@
 - [穿进民国后宅从杂役做起](https://www.shuxiang368.com/book/3qkl1su/)
 - [一觉醒来老公变男大了](https://www.shuxiang368.com/book/3qkl1jt/)
 - [捡到一条许愿龙](https://www.shuxiang368.com/book/3qkl1g4/)
-- [多梦你一会儿](https://www.shuxiang368.com/book/3qkl1ec/)
 - [[西汉]我打工给全家改命](https://www.shuxiang368.com/book/3qkl1dl/)
 - [漫画路人绑定系统后](https://www.shuxiang368.com/book/3qkl1c5/)
 - [修仙回来后开了间民宿](https://www.shuxiang368.com/book/3qkl1af/)
@@ -365,7 +362,6 @@
 - [隔壁班的松田君](https://www.shuxiang368.com/book/3qkkshu/)
 - [龙傲天未婚妻不退婚了](https://www.shuxiang368.com/book/3qkksgn/)
 - [当了卧底的我发现遍地熟人](https://www.shuxiang368.com/book/3qkksfk/)
-- [和前女友的心上人he了](https://www.shuxiang368.com/book/3qkksd6/)
 - [误把钓系病美人O娇养后](https://www.shuxiang368.com/book/3qkksb2/)
 - [苦咒琉璃](https://www.shuxiang368.com/book/3qkks8b/)
 - [[综英美]是追到小红鸟的超人之子](https://www.shuxiang368.com/book/3qkks6o/)
@@ -398,6 +394,7 @@
 - [失忆后，和五条激情互演](https://www.shuxiang368.com/book/3qkkps3/)
 - [司寝宫女](https://www.shuxiang368.com/book/3qkkps1/)
 - [让我再吃一口](https://www.shuxiang368.com/book/3qkkpr9/)
+- [被阴湿坏女人缠上后](https://www.shuxiang368.com/book/3qkkpqh/)
 - [每天都在和太宰互换身体](https://www.shuxiang368.com/book/3qkkpon/)
 - [高冷影后逼我标记她](https://www.shuxiang368.com/book/3qkkp3g/)
 - [癫骨](https://www.shuxiang368.com/book/3qkkovv/)
@@ -429,6 +426,7 @@
 - [幼崽假少爷选择回归寒门](https://www.shuxiang368.com/book/3qkkdml/)
 - [[足球]小小鸟堂堂来袭](https://www.shuxiang368.com/book/3qkkcov/)
 - [好巧，你也是妹控？[综崩铁]](https://www.shuxiang368.com/book/3qkkapc/)
+- [欢迎来到重生点](https://www.shuxiang368.com/book/3qkkakh/)
 - [青城玩家明明超强却过分谨慎](https://www.shuxiang368.com/book/3qkk8p9/)
 - [法外狂猫](https://www.shuxiang368.com/book/3qkk8dh/)
 - [好兄弟暴富后非要跟我结婚](https://www.shuxiang368.com/book/3qkk6rf/)

@@ -1,7 +1,7 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-05 03:34:15
+更新时间：2026-09-06 03:35:11
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。
 
@@ -13,6 +13,7 @@
 - [禁止继承限制级雌君](https://www.pusytgp.com/book/7pbovh5/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.pusytgp.com/book/7pbovgv/)
 - [咦？我爸爸复活啦](https://www.pusytgp.com/book/7pbovgc/)
+- [穿为龙傲天发妻后](https://www.pusytgp.com/book/7pbovg0/)
 - [清穿女回来后[天幕]](https://www.pusytgp.com/book/7pbovfm/)
 - [[综英美]和亲友群穿哥谭以后](https://www.pusytgp.com/book/7pbovfk/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.pusytgp.com/book/7pbovf7/)
@@ -21,7 +22,6 @@
 - [全世界名为爱的恶意](https://www.pusytgp.com/book/7pbovcj/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.pusytgp.com/book/7pbouif/)
 - [暴君偏头痛](https://www.pusytgp.com/book/7pbouic/)
-- [我的烧烤摊超美味[美食]](https://www.pusytgp.com/book/7pboui3/)
 - [渡鬼](https://www.pusytgp.com/book/7pbouh6/)
 - [修仙界都为我神魂颠倒](https://www.pusytgp.com/book/7pbot7p/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.pusytgp.com/book/7pbot66/)
@@ -40,9 +40,7 @@
 - [我超凶的！[快穿]](https://www.pusytgp.com/book/7pbok25/)
 - [我有嘉宾](https://www.pusytgp.com/book/7pbojan/)
 - [我比反派先崩坏[快穿]](https://www.pusytgp.com/book/7pboj8l/)
-- [从异世界穿回来后](https://www.pusytgp.com/book/7pboil6/)
 - [cos温迪后玩到真崩铁了](https://www.pusytgp.com/book/7pboeso/)
-- [星际团宠小人鱼](https://www.pusytgp.com/book/7pboe9n/)
 - [你，后室管理员](https://www.pusytgp.com/book/7pboe7m/)
 - [娇气点怎么啦？［快穿］](https://www.pusytgp.com/book/7pboe7b/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.pusytgp.com/book/7pbodfg/)
@@ -330,7 +328,6 @@
 - [师妹为何要如此](https://www.pusytgp.com/book/7pbllmv/)
 - [从伟大航道到黑暗大陆](https://www.pusytgp.com/book/7pbllmq/)
 - [大美人怀了enigma上司的崽](https://www.pusytgp.com/book/7pbllme/)
-- [多梦你一会儿](https://www.pusytgp.com/book/7pblljm/)
 - [女帝起家前录](https://www.pusytgp.com/book/7pblljg/)
 - [豪门狗血文里的天才后妈](https://www.pusytgp.com/book/7pbllj2/)
 - [我养龙傲天的那些年](https://www.pusytgp.com/book/7pbllf1/)
@@ -384,7 +381,6 @@
 - [败类](https://www.pusytgp.com/book/7pbli7v/)
 - [随便捡小狗会出大问题](https://www.pusytgp.com/book/7pblhvt/)
 - [邪神祂总被觊觎](https://www.pusytgp.com/book/7pblhv8/)
-- [和前女友的心上人he了](https://www.pusytgp.com/book/7pblhol/)
 - [这谁的沙雕二次元心声！](https://www.pusytgp.com/book/7pblhka/)
 - [司寝宫女](https://www.pusytgp.com/book/7pblhjm/)
 - [普通高中生，但兼职咒术师](https://www.pusytgp.com/book/7pblh9v/)
@@ -416,6 +412,7 @@
 - [救命！猫尾巴藏不住了](https://www.pusytgp.com/book/7pblf41/)
 - [神之子与排球的适配性](https://www.pusytgp.com/book/7pblf2d/)
 - [在重男兄弟间夹缝求生](https://www.pusytgp.com/book/7pblf2a/)
+- [被阴湿坏女人缠上后](https://www.pusytgp.com/book/7pblf1n/)
 - [转生成为伊路米的双生姐姐](https://www.pusytgp.com/book/7pblf13/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.pusytgp.com/book/7pbledd/)
 - [[封神]圣人生欲](https://www.pusytgp.com/book/7pblds0/)
@@ -432,6 +429,7 @@
 - [盛夏晴浓](https://www.pusytgp.com/book/7pbl05o/)
 - [[综英美]让我统治哥谭！！！](https://www.pusytgp.com/book/7pbkumb/)
 - [好巧，你也是妹控？[综崩铁]](https://www.pusytgp.com/book/7pbksfn/)
+- [欢迎来到重生点](https://www.pusytgp.com/book/7pbks23/)
 - [求生游戏：当邪神成为生活玩家后](https://www.pusytgp.com/book/7pbkpma/)
 - [关于我虚构了一个男友这件事](https://www.pusytgp.com/book/7pbkpie/)
 - [好兄弟暴富后非要跟我结婚](https://www.pusytgp.com/book/7pbko4m/)

@@ -1,13 +1,15 @@
 
 # 都来读小说网 - 免费电子书阅读平台
 
-更新时间：2026-09-05 03:38:57
+更新时间：2026-09-06 03:39:50
 
 都来读小说网提供快速更新的海量免费小说资源，主要以TXT格式为主，致力于为读者带来优质的阅读体验。
 
 - [都来读小说网](https://www.swazs.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.swazs.com/book/1u7kmcg/)
+- [和八个男人在极寒游戏求生](https://www.swazs.com/book/1u7km9b/)
 - [我们小区穿末世](https://www.swazs.com/book/1u7kiv2/)
 - [夫人每天都在伪装](https://www.swazs.com/book/1u7kiv1/)
 - [在年代文里跑运输](https://www.swazs.com/book/1u7kiuv/)
@@ -49,7 +51,6 @@
 - [[洪荒]成为太清妹妹后](https://www.swazs.com/book/1u7kisc/)
 - [[足球]雏鸟](https://www.swazs.com/book/1u7kis6/)
 - [死遁APP](https://www.swazs.com/book/1u7kis5/)
-- [自知之明](https://www.swazs.com/book/1u7kis3/)
 - [清穿女回来后[天幕]](https://www.swazs.com/book/1u7kis2/)
 - [正是冬雪沸腾时](https://www.swazs.com/book/1u7kis1/)
 - [双生子反派的端水抑郁妈[九零]](https://www.swazs.com/book/1u7kirv/)
@@ -102,7 +103,6 @@
 - [开局绑定郭奉孝，谋定三国风云](https://www.swazs.com/book/1u7ig2q/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.swazs.com/book/1u7ifh0/)
 - [死对头又在挑衅我](https://www.swazs.com/book/1u7if91/)
-- [[综英美]让我统治哥谭！！！](https://www.swazs.com/book/1u7iees/)
 - [美貌单出，杀穿港娱［八零］](https://www.swazs.com/book/1u7ie87/)
 - [路人攻了主角攻［快穿］](https://www.swazs.com/book/1u7idmh/)
 - [如何嫁给当朝首辅](https://www.swazs.com/book/1u7i99a/)
@@ -142,11 +142,9 @@
 - [恶犬攻绑定上司的乖狗系统](https://www.swazs.com/book/1u7go2k/)
 - [娘娘扶摇直上](https://www.swazs.com/book/1u7gme3/)
 - [权宋一只统](https://www.swazs.com/book/1u7gm24/)
-- [绝不会喜欢五条君的！](https://www.swazs.com/book/1u7glqu/)
 - [爱好和平但狂拆机甲](https://www.swazs.com/book/1u7ggii/)
 - [你让魔王组建勇者小队？](https://www.swazs.com/book/1u7gfs7/)
 - [我有一座安全城](https://www.swazs.com/book/1u7filg/)
-- [猫猫也要养家糊口](https://www.swazs.com/book/1u7fige/)
 - [海岛求生：生活玩家种田囤货](https://www.swazs.com/book/1u7fia2/)
 - [星际团宠小人鱼](https://www.swazs.com/book/1u7fi8l/)
 - [清澈女大的六零年代](https://www.swazs.com/book/1u7fi1e/)
@@ -162,19 +160,17 @@
 - [五十年代港城日常](https://www.swazs.com/book/1u7fgm8/)
 - [日化人生[科研]](https://www.swazs.com/book/1u7fgm3/)
 - [全民求生:从小木屋到魔法农场](https://www.swazs.com/book/1u7fgkr/)
-- [假少爷不想活了](https://www.swazs.com/book/1u7fgdh/)
+- [假少爷离开后](https://www.swazs.com/book/1u7fgdh/)
 - [高门小婢](https://www.swazs.com/book/1u7fgbg/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.swazs.com/book/1u7fgb4/)
-- [八零恶毒后妈杀疯了](https://www.swazs.com/book/1u7fg9v/)
+- [卷王后妈，八零养娃](https://www.swazs.com/book/1u7fg9v/)
 - [[封神]圣人生欲](https://www.swazs.com/book/1u7fg6j/)
 - [十九世纪贵族厨房（美食）](https://www.swazs.com/book/1u7fg5k/)
 - [九零首富的替嫁小媳妇](https://www.swazs.com/book/1u7fg1a/)
 - [巨物致富：回乡开钓场](https://www.swazs.com/book/1u7ffvg/)
-- [古代种田养娃日常](https://www.swazs.com/book/1u7ffua/)
 - [成为养成系练习生后](https://www.swazs.com/book/1u7fftb/)
 - [高调装神，猥琐发育](https://www.swazs.com/book/1u7fft4/)
 - [大瑛弟国](https://www.swazs.com/book/1u7ffko/)
-- [娶了女装心机太子](https://www.swazs.com/book/1u7ffi8/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1400/index.md)

@@ -1,13 +1,15 @@
 
 # 牛魔王JJ电子书 - 小说阅读网, 全本免费完结小说在线阅读及下载
 
-更新时间：2026-09-05 03:33:30
+更新时间：2026-09-06 03:34:26
 
 牛魔王JJ电子书提供精彩小说阅读服务，包括各种类型的小说排行榜、免费好看的小说等。涵盖穿越小说、都市小说、言情小说、玄幻小说等多种类别，支持全本全集完结小说在线阅读以及TXT下载。
 
 - [牛魔王JJ电子书](https://www.nmwjj.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.nmwjj.com/book/18cjl06/)
+- [揣崽丧夫后被情敌强娶了](https://www.nmwjj.com/book/18cjkvh/)
 - [[全职高手]治疗什么的不干了！](https://www.nmwjj.com/book/18cjhjo/)
 - [人，今晚土拨鼠站岗](https://www.nmwjj.com/book/18cjhjn/)
 - [[原神]魔法使恋爱指南](https://www.nmwjj.com/book/18cjhjl/)
@@ -16,7 +18,6 @@
 - [病美人重生日记](https://www.nmwjj.com/book/18cjhjd/)
 - [[足球]雏鸟](https://www.nmwjj.com/book/18cjhjc/)
 - [从1951开始](https://www.nmwjj.com/book/18cjhja/)
-- [自知之明](https://www.nmwjj.com/book/18cjhj9/)
 - [二次分化后他怀了死对头的崽](https://www.nmwjj.com/book/18cjhj8/)
 - [好心的俄罗斯人](https://www.nmwjj.com/book/18cjhj5/)
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.nmwjj.com/book/18cjhj2/)
@@ -106,7 +107,6 @@
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.nmwjj.com/book/18cgvua/)
 - [同时扮演贵族学院F4和平民校花](https://www.nmwjj.com/book/18cgv3o/)
 - [苏娘子汴京摆摊日常（美食）](https://www.nmwjj.com/book/18cgsth/)
-- [[综英美]让我统治哥谭！！！](https://www.nmwjj.com/book/18cgsbe/)
 - [路人攻了主角攻［快穿］](https://www.nmwjj.com/book/18cgs0a/)
 - [开局绑定郭奉孝，谋定三国风云](https://www.nmwjj.com/book/18cgrth/)
 - [直男咒术师的限制级游戏](https://www.nmwjj.com/book/18cgolp/)
@@ -137,17 +137,15 @@
 - [和山神搭伙开农场的日子](https://www.nmwjj.com/book/18cfjnk/)
 - [村霸非要入赘受气包](https://www.nmwjj.com/book/18cfj2h/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.nmwjj.com/book/18cfin1/)
-- [娶了女装心机太子](https://www.nmwjj.com/book/18cfie6/)
 - [[综英美]和亲友群穿哥谭以后](https://www.nmwjj.com/book/18cfic4/)
 - [假意逢承](https://www.nmwjj.com/book/18cfhlu/)
 - [被糟蹋的老实人决定反击](https://www.nmwjj.com/book/18cfgqs/)
 - [权宋一只统](https://www.nmwjj.com/book/18cfcd4/)
 - [恶犬攻绑定上司的乖狗系统](https://www.nmwjj.com/book/18cf9v3/)
-- [绝不会喜欢五条君的！](https://www.nmwjj.com/book/18cf8ob/)
 - [爱好和平但狂拆机甲](https://www.nmwjj.com/book/18cf4kb/)
 - [你让魔王组建勇者小队？](https://www.nmwjj.com/book/18cf1eu/)
 - [大瑛弟国](https://www.nmwjj.com/book/18ce66m/)
-- [假少爷不想活了](https://www.nmwjj.com/book/18ce64e/)
+- [假少爷离开后](https://www.nmwjj.com/book/18ce64e/)
 - [在民俗惊悚片被诸神庇护](https://www.nmwjj.com/book/18ce5v2/)
 - [九零首富的替嫁小媳妇](https://www.nmwjj.com/book/18ce5ut/)
 - [[封神]圣人生欲](https://www.nmwjj.com/book/18ce5p4/)
@@ -157,7 +155,6 @@
 - [巨物致富：回乡开钓场](https://www.nmwjj.com/book/18ce5el/)
 - [全民求生:从小木屋到魔法农场](https://www.nmwjj.com/book/18ce5b4/)
 - [我是唯一地上神国](https://www.nmwjj.com/book/18ce5a3/)
-- [古代种田养娃日常](https://www.nmwjj.com/book/18ce544/)
 - [星际团宠小人鱼](https://www.nmwjj.com/book/18ce52v/)
 - [[娱乐圈]过分美丽的她](https://www.nmwjj.com/book/18ce4vd/)
 - [高调装神，猥琐发育](https://www.nmwjj.com/book/18ce4lp/)
@@ -168,8 +165,7 @@
 - [清澈女大的六零年代](https://www.nmwjj.com/book/18ce491/)
 - [成为养成系练习生后](https://www.nmwjj.com/book/18ce478/)
 - [十九世纪贵族厨房（美食）](https://www.nmwjj.com/book/18ce459/)
-- [猫猫也要养家糊口](https://www.nmwjj.com/book/18ce43k/)
-- [八零恶毒后妈杀疯了](https://www.nmwjj.com/book/18ce431/)
+- [卷王后妈，八零养娃](https://www.nmwjj.com/book/18ce431/)
 - [五十年代港城日常](https://www.nmwjj.com/book/18ce3ok/)
 - [海岛求生：生活玩家种田囤货](https://www.nmwjj.com/book/18ce3m7/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.nmwjj.com/book/18ce3lv/)

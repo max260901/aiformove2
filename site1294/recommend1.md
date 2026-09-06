@@ -1,13 +1,15 @@
 
 # 思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-05 03:22:14
+更新时间：2026-09-06 03:23:05
 
 思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。
 
 - [思路客](https://www.968577.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.968577.com/book/1b28mij/)
+- [和八个男人在极寒游戏求生](https://www.968577.com/book/1b28mii/)
 - [人，今晚土拨鼠站岗](https://www.968577.com/book/1b28mih/)
 - [恐游作精女配求生指南](https://www.968577.com/book/1b28mig/)
 - [大佬的漂亮老婆回来带崽了[八零]](https://www.968577.com/book/1b28mif/)
@@ -35,7 +37,6 @@
 - [国运求生：我的金手指是生命树](https://www.968577.com/book/1b28mhp/)
 - [SSS级异种都是我前任](https://www.968577.com/book/1b28mho/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.968577.com/book/1b28mhn/)
-- [自知之明](https://www.968577.com/book/1b28mhm/)
 - [末世八年春，游戏降临](https://www.968577.com/book/1b28mhl/)
 - [死遁APP](https://www.968577.com/book/1b28mhk/)
 - [乖乖女的杂货铺[八零]](https://www.968577.com/book/1b28mhj/)
@@ -81,7 +82,6 @@
 - [星露谷，但日本战国](https://www.968577.com/book/1b28mga/)
 - [我们小区穿末世](https://www.968577.com/book/1b28mg9/)
 - [娘娘扶摇直上](https://www.968577.com/book/1b28mg8/)
-- [[综英美]让我统治哥谭！！！](https://www.968577.com/book/1b28me6/)
 - [我们生活玩家是这样的](https://www.968577.com/book/1b28mdc/)
 - [我司艺人永不塌房](https://www.968577.com/book/1b28mc1/)
 - [九零首富的替嫁小媳妇](https://www.968577.com/book/1b28maa/)
@@ -91,14 +91,12 @@
 - [原配夫人](https://www.968577.com/book/1b28m90/)
 - [十九世纪贵族厨房（美食）](https://www.968577.com/book/1b28m8h/)
 - [高调装神，猥琐发育](https://www.968577.com/book/1b28m8g/)
-- [假少爷不想活了](https://www.968577.com/book/1b28m8c/)
+- [假少爷离开后](https://www.968577.com/book/1b28m8c/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.968577.com/book/1b28m62/)
 - [直男咒术师的限制级游戏](https://www.968577.com/book/1b28m3a/)
-- [绝不会喜欢五条君的！](https://www.968577.com/book/1b28krq/)
 - [六零之成了卷王的妹妹](https://www.968577.com/book/1b28krb/)
 - [路人攻了主角攻［快穿］](https://www.968577.com/book/1b28koj/)
 - [昭暮](https://www.968577.com/book/1b28b9l/)
-- [古代种田养娃日常](https://www.968577.com/book/1b27vim/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.968577.com/book/1b27lp0/)
 - [上个鬼班[无限]](https://www.968577.com/book/1b275vv/)
 - [[足球]足坛人生模拟器](https://www.968577.com/book/1b2733d/)
@@ -142,14 +140,13 @@
 - [妻主风流（女尊）](https://www.968577.com/book/49rfuf/)
 - [多梦你一会儿](https://www.968577.com/book/49r9le/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.968577.com/book/49r8oe/)
-- [娶了女装心机太子](https://www.968577.com/book/49r7vs/)
 - [被糟蹋的老实人决定反击](https://www.968577.com/book/49r7qg/)
 - [韩团绿卡不想忍了](https://www.968577.com/book/49r7a9/)
 - [这个位面归我了！[经营]](https://www.968577.com/book/49r5f2/)
 - [清冷丞相怀了死对头的崽](https://www.968577.com/book/49r4pc/)
 - [村霸非要入赘受气包](https://www.968577.com/book/49r464/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.968577.com/book/49r3nr/)
-- [八零恶毒后妈杀疯了](https://www.968577.com/book/49r3f7/)
+- [卷王后妈，八零养娃](https://www.968577.com/book/49r3f7/)
 - [和山神搭伙开农场的日子](https://www.968577.com/book/49r170/)
 - [心动嫌疑人](https://www.968577.com/book/49r0th/)
 - [恶犬攻绑定上司的乖狗系统](https://www.968577.com/book/49qvak/)
@@ -169,7 +166,6 @@
 - [95美国贵族高中模拟](https://www.968577.com/book/dp0du/)
 - [我是唯一地上神国](https://www.968577.com/book/dp0a8/)
 - [开局绑定郭奉孝，谋定三国风云](https://www.968577.com/book/1c435/)
-- [猫猫也要养家糊口](https://www.968577.com/book/1c40d/)
 - [[娱乐圈]过分美丽的她](https://www.968577.com/book/1c3oi/)
 - [苏娘子汴京摆摊日常（美食）](https://www.968577.com/book/1c3l6/)
 - [在魔法贵族学院当白月光](https://www.968577.com/book/1c3in/)

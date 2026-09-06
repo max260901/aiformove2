@@ -1,13 +1,15 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-09-05 03:29:09
+更新时间：2026-09-06 03:30:05
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。
 
 - [奇书网](https://www.jxbfsz.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.jxbfsz.com/book/29i1pb6/)
+- [和八个男人在极寒游戏求生](https://www.jxbfsz.com/book/29i1pb5/)
 - [仙尊心尖宠，但被魔尊抢了](https://www.jxbfsz.com/book/29i1pav/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.jxbfsz.com/book/29i1pau/)
 - [烈火焚身[巴黎圣母院]](https://www.jxbfsz.com/book/29i1par/)
@@ -41,7 +43,6 @@
 - [你让魔王组建勇者小队？](https://www.jxbfsz.com/book/29i1p95/)
 - [[足球]小小鸟堂堂来袭](https://www.jxbfsz.com/book/29i1p94/)
 - [世界伏于她刀下[无限]](https://www.jxbfsz.com/book/29i1p8u/)
-- [自知之明](https://www.jxbfsz.com/book/29i1p8r/)
 - [等我吃腻了再倒闭可以吗](https://www.jxbfsz.com/book/29i1p8p/)
 - [全世界名为爱的恶意](https://www.jxbfsz.com/book/29i1p8n/)
 - [欲和离？夫君他目不识丁](https://www.jxbfsz.com/book/29i1p8l/)
@@ -91,7 +92,7 @@
 - [在卷王和废物之间选择做吉祥物](https://www.jxbfsz.com/book/29i0n4g/)
 - [昭暮](https://www.jxbfsz.com/book/29i0k0f/)
 - [从维多利亚时代开始](https://www.jxbfsz.com/book/29i0j9d/)
-- [假少爷不想活了](https://www.jxbfsz.com/book/29i0cq6/)
+- [假少爷离开后](https://www.jxbfsz.com/book/29i0cq6/)
 - [食明](https://www.jxbfsz.com/book/29i04ef/)
 - [诡话第一boss](https://www.jxbfsz.com/book/29i016g/)
 - [专业女配的自我修养（快穿）](https://www.jxbfsz.com/book/29hvucd/)
@@ -129,7 +130,7 @@
 - [和治君只是饭搭子的关系](https://www.jxbfsz.com/book/29huf9f/)
 - [五条老师与他的封建妻子](https://www.jxbfsz.com/book/29huebi/)
 - [我187了，你敢见我吗？](https://www.jxbfsz.com/book/29hud0a/)
-- [八零恶毒后妈杀疯了](https://www.jxbfsz.com/book/29huael/)
+- [卷王后妈，八零养娃](https://www.jxbfsz.com/book/29huael/)
 - [和姐姐的前女友欢愉后](https://www.jxbfsz.com/book/29hu8nb/)
 - [[封神]圣人生欲](https://www.jxbfsz.com/book/29hu85n/)
 - [我司艺人永不塌房](https://www.jxbfsz.com/book/29hu7vo/)
@@ -138,13 +139,11 @@
 - [在重生文里考科举](https://www.jxbfsz.com/book/29httra/)
 - [妻主风流（女尊）](https://www.jxbfsz.com/book/29htsii/)
 - [韩团绿卡不想忍了](https://www.jxbfsz.com/book/29htq3g/)
-- [[综英美]让我统治哥谭！！！](https://www.jxbfsz.com/book/29htq00/)
 - [死亡悖论[无限流]](https://www.jxbfsz.com/book/29htpmv/)
 - [心动嫌疑人](https://www.jxbfsz.com/book/29hto8d/)
 - [这个位面归我了！[经营]](https://www.jxbfsz.com/book/29htnub/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.jxbfsz.com/book/29htm0g/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.jxbfsz.com/book/29htlsg/)
-- [娶了女装心机太子](https://www.jxbfsz.com/book/29htl9a/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.jxbfsz.com/book/29htl3m/)
 - [被糟蹋的老实人决定反击](https://www.jxbfsz.com/book/29htjlu/)
 - [死遁的亡夫们都回来了](https://www.jxbfsz.com/book/29htie5/)
@@ -158,7 +157,6 @@
 - [高门小婢](https://www.jxbfsz.com/book/29hs864/)
 - [老实人妻，但顶级魅魔](https://www.jxbfsz.com/book/29hs7qs/)
 - [清澈女大的六零年代](https://www.jxbfsz.com/book/29hs7pc/)
-- [猫猫也要养家糊口](https://www.jxbfsz.com/book/29hs7lm/)
 - [海岛求生：生活玩家种田囤货](https://www.jxbfsz.com/book/29hs7bn/)
 - [我是唯一地上神国](https://www.jxbfsz.com/book/29hs78i/)
 - [我有一座安全城](https://www.jxbfsz.com/book/29hs76u/)
@@ -167,8 +165,6 @@
 - [日化人生[科研]](https://www.jxbfsz.com/book/29hs6p3/)
 - [路人攻了主角攻［快穿］](https://www.jxbfsz.com/book/29hs6g6/)
 - [成为养成系练习生后](https://www.jxbfsz.com/book/29hs6ep/)
-- [古代种田养娃日常](https://www.jxbfsz.com/book/29hs69j/)
-- [绝不会喜欢五条君的！](https://www.jxbfsz.com/book/29hs61t/)
 - [六零之成了卷王的妹妹](https://www.jxbfsz.com/book/29hs5t6/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.jxbfsz.com/book/29hs5gv/)
 - [巨物致富：回乡开钓场](https://www.jxbfsz.com/book/29hs5dv/)
