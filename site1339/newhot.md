@@ -1,7 +1,7 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-09-05 03:41:31
+更新时间：2026-09-06 03:42:22
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。
 
@@ -14,13 +14,13 @@
 - [［综英美］蝙蝠崽？我不是啊！](https://www.wkntmcb.com/book/48j2f0i/)
 - [自知之明](https://www.wkntmcb.com/book/48j2evl/)
 - [[足球]小小鸟堂堂来袭](https://www.wkntmcb.com/book/48j2evc/)
+- [穿为龙傲天发妻后](https://www.wkntmcb.com/book/48j2ev9/)
 - [全世界名为爱的恶意](https://www.wkntmcb.com/book/48j2eua/)
 - [禁止继承限制级雌君](https://www.wkntmcb.com/book/48j2eu9/)
 - [清穿女回来后[天幕]](https://www.wkntmcb.com/book/48j2eta/)
 - [[综英美]和亲友群穿哥谭以后](https://www.wkntmcb.com/book/48j2et8/)
 - [这个替嫁让我来！](https://www.wkntmcb.com/book/48j2eso/)
 - [暴君偏头痛](https://www.wkntmcb.com/book/48j2e1u/)
-- [我的烧烤摊超美味[美食]](https://www.wkntmcb.com/book/48j2e1i/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wkntmcb.com/book/48j2e1b/)
 - [渡鬼](https://www.wkntmcb.com/book/48j2dvm/)
 - [修仙界都为我神魂颠倒](https://www.wkntmcb.com/book/48j2coh/)
@@ -40,9 +40,7 @@
 - [我超凶的！[快穿]](https://www.wkntmcb.com/book/48j23hp/)
 - [我有嘉宾](https://www.wkntmcb.com/book/48j22s5/)
 - [我比反派先崩坏[快穿]](https://www.wkntmcb.com/book/48j22p2/)
-- [从异世界穿回来后](https://www.wkntmcb.com/book/48j2273/)
 - [cos温迪后玩到真崩铁了](https://www.wkntmcb.com/book/48j1ub9/)
-- [星际团宠小人鱼](https://www.wkntmcb.com/book/48j1tq7/)
 - [你，后室管理员](https://www.wkntmcb.com/book/48j1tng/)
 - [娇气点怎么啦？［快穿］](https://www.wkntmcb.com/book/48j1tmj/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.wkntmcb.com/book/48j1t0l/)
@@ -324,7 +322,6 @@
 - [被离婚后嫁给了年代文大佬[穿书]](https://www.wkntmcb.com/book/48iv5s4/)
 - [豪门狗血文里的天才后妈](https://www.wkntmcb.com/book/48iv5rq/)
 - [师妹为何要如此](https://www.wkntmcb.com/book/48iv5rl/)
-- [多梦你一会儿](https://www.wkntmcb.com/book/48iv5oc/)
 - [[综武侠]有间民宿](https://www.wkntmcb.com/book/48iv5dt/)
 - [银发死鱼眼也要打排球](https://www.wkntmcb.com/book/48iv5d6/)
 - [这死beta老说我们不可能](https://www.wkntmcb.com/book/48iv5b9/)
@@ -392,7 +389,6 @@
 - [直播捏玩具被榜一大哥撅了](https://www.wkntmcb.com/book/48iv0k5/)
 - [[足球]在比利时我们只玩天赋](https://www.wkntmcb.com/book/48iv0in/)
 - [国舅太难追了](https://www.wkntmcb.com/book/48iv0ah/)
-- [和前女友的心上人he了](https://www.wkntmcb.com/book/48iv0a7/)
 - [末世山居日常](https://www.wkntmcb.com/book/48iv072/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.wkntmcb.com/book/48iv04n/)
 - [举朝上下为我的神仙人设头疼中](https://www.wkntmcb.com/book/48iv03u/)
@@ -402,6 +398,7 @@
 - [青山不渡](https://www.wkntmcb.com/book/48iuvh8/)
 - [我靠玛丽苏系统伪装神女](https://www.wkntmcb.com/book/48iuvh5/)
 - [顶流他姐有神豪系统](https://www.wkntmcb.com/book/48iuvfu/)
+- [被阴湿坏女人缠上后](https://www.wkntmcb.com/book/48iuv89/)
 - [神之子与排球的适配性](https://www.wkntmcb.com/book/48iuv7i/)
 - [失忆后，和五条激情互演](https://www.wkntmcb.com/book/48iuv2v/)
 - [转生成为伊路米的双生姐姐](https://www.wkntmcb.com/book/48iuv2b/)
@@ -431,6 +428,7 @@
 - [战死的阿爹回来了[年代]](https://www.wkntmcb.com/book/48iuhnv/)
 - [[综英美]让我统治哥谭！！！](https://www.wkntmcb.com/book/48iuer6/)
 - [盛夏晴浓](https://www.wkntmcb.com/book/48iudm6/)
+- [欢迎来到重生点](https://www.wkntmcb.com/book/48iucm6/)
 - [好巧，你也是妹控？[综崩铁]](https://www.wkntmcb.com/book/48iuaf1/)
 - [好兄弟暴富后非要跟我结婚](https://www.wkntmcb.com/book/48iu8rs/)
 - [求生游戏：当邪神成为生活玩家后](https://www.wkntmcb.com/book/48iu810/)

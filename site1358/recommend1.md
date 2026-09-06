@@ -1,13 +1,14 @@
 
 # 哲理书客吧-全本小说免费阅读及txt下载,最新章节无弹窗
 
-更新时间：2026-09-05 03:46:34
+更新时间：2026-09-06 03:47:25
 
 哲理书客吧提供最快更新的热门网络小说最新章节，支持全本小说在线免费阅读与txt电子书打包下载服务。收录多本经典好看的小说，并承诺无广告弹窗清爽阅读体验，是小说爱好者的理想选择。
 
 - [哲理书客吧](https://www.zheli518.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.zheli518.com/book/4taqmm2/)
 - [从1951开始](https://www.zheli518.com/book/4taqmm1/)
 - [娘娘扶摇直上](https://www.zheli518.com/book/4taqmlv/)
 - [清穿女回来后[天幕]](https://www.zheli518.com/book/4taqmlp/)
@@ -20,7 +21,6 @@
 - [漫画取材所引发的修罗场](https://www.zheli518.com/book/4taqml7/)
 - [魔咒请说普通话[西幻]](https://www.zheli518.com/book/4taqml5/)
 - [暗恋的价格是三万块](https://www.zheli518.com/book/4taqml4/)
-- [自知之明](https://www.zheli518.com/book/4taqml3/)
 - [你让魔王组建勇者小队？](https://www.zheli518.com/book/4taqml0/)
 - [等我吃腻了再倒闭可以吗](https://www.zheli518.com/book/4taqmkv/)
 - [病美人重生日记](https://www.zheli518.com/book/4taqmkh/)
@@ -100,7 +100,6 @@
 - [摄政王家的咸鱼夫郎](https://www.zheli518.com/book/4taok47/)
 - [我与龙傲天寿命共享](https://www.zheli518.com/book/4taojiu/)
 - [如何正确哄睡暴君](https://www.zheli518.com/book/4taofv8/)
-- [九零首富的替嫁小媳妇](https://www.zheli518.com/book/4taoc4n/)
 - [怀了前任大哥的崽后](https://www.zheli518.com/book/4taobmh/)
 - [死遁的亡夫们都回来了](https://www.zheli518.com/book/4taoblf/)
 - [我骗家里的钱养你啊](https://www.zheli518.com/book/4tao9rp/)
@@ -125,10 +124,9 @@
 - [如何嫁给当朝首辅](https://www.zheli518.com/book/4tanfud/)
 - [阴阳师也可以打网球](https://www.zheli518.com/book/4tanfq3/)
 - [[封神]圣人生欲](https://www.zheli518.com/book/4tanfc1/)
-- [[综英美]让我统治哥谭！！！](https://www.zheli518.com/book/4tanf7e/)
 - [五条老师与他的封建妻子](https://www.zheli518.com/book/4tanedi/)
 - [在魔法贵族学院当白月光](https://www.zheli518.com/book/4tanebi/)
-- [八零恶毒后妈杀疯了](https://www.zheli518.com/book/4tane6s/)
+- [卷王后妈，八零养娃](https://www.zheli518.com/book/4tane6s/)
 - [我司艺人永不塌房](https://www.zheli518.com/book/4tanacr/)
 - [我187了，你敢见我吗？](https://www.zheli518.com/book/4tanac4/)
 - [和姐姐的前女友欢愉后](https://www.zheli518.com/book/4tan80r/)
@@ -142,7 +140,6 @@
 - [死亡悖论[无限流]](https://www.zheli518.com/book/4tamnu8/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.zheli518.com/book/4tamn6o/)
 - [这个位面归我了！[经营]](https://www.zheli518.com/book/4taml9u/)
-- [娶了女装心机太子](https://www.zheli518.com/book/4tamk6t/)
 - [清冷丞相怀了死对头的崽](https://www.zheli518.com/book/4tamk6h/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.zheli518.com/book/4tamk3n/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.zheli518.com/book/4tamjqc/)
@@ -156,25 +153,23 @@
 - [爱好和平但狂拆机甲](https://www.zheli518.com/book/4tam2g3/)
 - [大瑛弟国](https://www.zheli518.com/book/4tal5hb/)
 - [六零之成了卷王的妹妹](https://www.zheli518.com/book/4tal5ff/)
-- [假少爷不想活了](https://www.zheli518.com/book/4tal5ci/)
+- [假少爷离开后](https://www.zheli518.com/book/4tal5ci/)
 - [直男咒术师的限制级游戏](https://www.zheli518.com/book/4tal5a1/)
 - [我有一座安全城](https://www.zheli518.com/book/4tal59c/)
 - [[娱乐圈]过分美丽的她](https://www.zheli518.com/book/4tal57m/)
 - [全民求生:从小木屋到魔法农场](https://www.zheli518.com/book/4tal534/)
 - [95美国贵族高中模拟](https://www.zheli518.com/book/4tal510/)
 - [五十年代港城日常](https://www.zheli518.com/book/4tal4t0/)
-- [绝不会喜欢五条君的！](https://www.zheli518.com/book/4tal4qk/)
 - [巨物致富：回乡开钓场](https://www.zheli518.com/book/4tal4pn/)
 - [清澈女大的六零年代](https://www.zheli518.com/book/4tal4hb/)
 - [我是唯一地上神国](https://www.zheli518.com/book/4tal4cd/)
 - [日化人生[科研]](https://www.zheli518.com/book/4tal458/)
 - [成为养成系练习生后](https://www.zheli518.com/book/4tal42q/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.zheli518.com/book/4tal3a0/)
-- [古代种田养娃日常](https://www.zheli518.com/book/4tal388/)
+- [老公对不起](https://www.zheli518.com/book/4tal2q6/)
 - [海岛求生：生活玩家种田囤货](https://www.zheli518.com/book/4tal2jl/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.zheli518.com/book/4tal2hv/)
 - [高门小婢](https://www.zheli518.com/book/4tal2dt/)
-- [猫猫也要养家糊口](https://www.zheli518.com/book/4tal2d6/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1358/index.md)

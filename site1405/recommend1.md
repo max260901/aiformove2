@@ -1,18 +1,19 @@
 
 # 耽美小说 - 最新全本免费手机小说阅读推荐
 
-更新时间：2026-09-05 03:36:55
+更新时间：2026-09-06 03:37:51
 
 耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！
 
 - [耽美小说](https://www.shgifts8.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.shgifts8.com/book/32uibam/)
+- [和八个男人在极寒游戏求生](https://www.shgifts8.com/book/32uib9c/)
 - [爱情的肯定句](https://www.shgifts8.com/book/32ui7ui/)
 - [欲加之罪](https://www.shgifts8.com/book/32ui7ug/)
 - [前妻她肯定会后悔](https://www.shgifts8.com/book/32ui7uf/)
 - [仙尊心尖宠，但被魔尊抢了](https://www.shgifts8.com/book/32ui7ub/)
-- [自知之明](https://www.shgifts8.com/book/32ui7ua/)
 - [SSS级异种都是我前任](https://www.shgifts8.com/book/32ui7u8/)
 - [夫人每天都在伪装](https://www.shgifts8.com/book/32ui7u6/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.shgifts8.com/book/32ui7u2/)
@@ -101,7 +102,6 @@
 - [死对头又在挑衅我](https://www.shgifts8.com/book/32ug5cu/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.shgifts8.com/book/32ug4lt/)
 - [沈助理又在隐藏他的超能力](https://www.shgifts8.com/book/32ug4go/)
-- [[综英美]让我统治哥谭！！！](https://www.shgifts8.com/book/32ug4g8/)
 - [开局绑定郭奉孝，谋定三国风云](https://www.shgifts8.com/book/32ug3s5/)
 - [美貌单出，杀穿港娱［八零］](https://www.shgifts8.com/book/32ug3f5/)
 - [路人攻了主角攻［快穿］](https://www.shgifts8.com/book/32ug384/)
@@ -142,7 +142,6 @@
 - [娘娘扶摇直上](https://www.shgifts8.com/book/32uedg0/)
 - [权宋一只统](https://www.shgifts8.com/book/32uecp9/)
 - [恶犬攻绑定上司的乖狗系统](https://www.shgifts8.com/book/32ueb89/)
-- [绝不会喜欢五条君的！](https://www.shgifts8.com/book/32ue8s7/)
 - [爱好和平但狂拆机甲](https://www.shgifts8.com/book/32ue80e/)
 - [你让魔王组建勇者小队？](https://www.shgifts8.com/book/32ue2gq/)
 - [始乱终弃清冷首辅后](https://www.shgifts8.com/book/32ud7ge/)
@@ -153,14 +152,12 @@
 - [高门小婢](https://www.shgifts8.com/book/32ud74p/)
 - [大瑛弟国](https://www.shgifts8.com/book/32ud6ma/)
 - [趁她之危](https://www.shgifts8.com/book/32ud6gc/)
-- [八零恶毒后妈杀疯了](https://www.shgifts8.com/book/32ud6f9/)
+- [卷王后妈，八零养娃](https://www.shgifts8.com/book/32ud6f9/)
 - [十九世纪贵族厨房（美食）](https://www.shgifts8.com/book/32ud6d3/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shgifts8.com/book/32ud69n/)
 - [完蛋！被恨孕男包围了！](https://www.shgifts8.com/book/32ud60n/)
 - [我是唯一地上神国](https://www.shgifts8.com/book/32ud5um/)
 - [[封神]圣人生欲](https://www.shgifts8.com/book/32ud5t4/)
-- [娶了女装心机太子](https://www.shgifts8.com/book/32ud5rb/)
-- [古代种田养娃日常](https://www.shgifts8.com/book/32ud5q6/)
 - [九零首富的替嫁小媳妇](https://www.shgifts8.com/book/32ud5k5/)
 - [五十年代港城日常](https://www.shgifts8.com/book/32ud5i9/)
 - [[娱乐圈]过分美丽的她](https://www.shgifts8.com/book/32ud5i5/)
@@ -170,10 +167,9 @@
 - [清澈女大的六零年代](https://www.shgifts8.com/book/32ud545/)
 - [原配夫人](https://www.shgifts8.com/book/32ud52l/)
 - [巨物致富：回乡开钓场](https://www.shgifts8.com/book/32ud52d/)
-- [猫猫也要养家糊口](https://www.shgifts8.com/book/32ud504/)
 - [在民俗惊悚片被诸神庇护](https://www.shgifts8.com/book/32ud4qa/)
 - [六零之成了卷王的妹妹](https://www.shgifts8.com/book/32ud4pb/)
-- [假少爷不想活了](https://www.shgifts8.com/book/32ud4mg/)
+- [假少爷离开后](https://www.shgifts8.com/book/32ud4mg/)
 - [星际团宠小人鱼](https://www.shgifts8.com/book/32ud4io/)
 ## 相关内容
 - [README](/README.md)

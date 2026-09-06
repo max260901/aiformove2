@@ -1,13 +1,15 @@
 
 # 看居中文网_免费小说在线阅读|无弹窗广告值得收藏
 
-更新时间：2026-09-05 03:29:42
+更新时间：2026-09-06 03:30:38
 
 看居中文网是最热门的免费小说网站，提供包括但不限于玄幻、都市、言情等多种类型的小说在线阅读服务。本站实时更新小说最新章节列表，拥有全面的小说排行榜，致力于为读者提供一个干净舒适的阅读环境，无弹窗广告干扰，是您寻找好书的理想之地。
 
 - [看居中文网](https://www.kanju688.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.kanju688.com/book/pb0bc6/)
+- [和八个男人在极寒游戏求生](https://www.kanju688.com/book/pb0bc5/)
 - [失忆后和死对头有了崽](https://www.kanju688.com/book/pb0bc2/)
 - [穿为龙傲天发妻后](https://www.kanju688.com/book/pb0bc1/)
 - [恐游里的邻居们[万人迷]](https://www.kanju688.com/book/pb0bbt/)
@@ -39,7 +41,6 @@
 - [炮灰的海外亲戚回国啦！](https://www.kanju688.com/book/pb0b9o/)
 - [在年代文里跑运输](https://www.kanju688.com/book/pb0b9n/)
 - [全世界名为爱的恶意](https://www.kanju688.com/book/pb0b9i/)
-- [自知之明](https://www.kanju688.com/book/pb0b9h/)
 - [国运求生：我的金手指是生命树](https://www.kanju688.com/book/pb0b9a/)
 - [恶毒男配只想躺平](https://www.kanju688.com/book/pb0b98/)
 - [等我吃腻了再倒闭可以吗](https://www.kanju688.com/book/pb0b96/)
@@ -119,7 +120,6 @@
 - [苏娘子汴京摆摊日常（美食）](https://www.kanju688.com/book/patbtc/)
 - [漂亮女配是万人迷［快穿］](https://www.kanju688.com/book/patbsh/)
 - [我有一座地下城](https://www.kanju688.com/book/pat9ff/)
-- [[综英美]让我统治哥谭！！！](https://www.kanju688.com/book/pat64q/)
 - [[封神]圣人生欲](https://www.kanju688.com/book/pat5t6/)
 - [如何嫁给当朝首辅](https://www.kanju688.com/book/pat5k0/)
 - [阴阳师也可以打网球](https://www.kanju688.com/book/pat4o1/)
@@ -128,7 +128,7 @@
 - [和贵志君是世界第一的好朋友](https://www.kanju688.com/book/pat3vh/)
 - [在魔法贵族学院当白月光](https://www.kanju688.com/book/pat2d7/)
 - [五条老师与他的封建妻子](https://www.kanju688.com/book/pat1jg/)
-- [八零恶毒后妈杀疯了](https://www.kanju688.com/book/pat0vn/)
+- [卷王后妈，八零养娃](https://www.kanju688.com/book/pat0vn/)
 - [我司艺人永不塌房](https://www.kanju688.com/book/pasuqc/)
 - [我187了，你敢见我吗？](https://www.kanju688.com/book/pasuph/)
 - [和姐姐的前女友欢愉后](https://www.kanju688.com/book/passvl/)
@@ -142,7 +142,6 @@
 - [死亡悖论[无限流]](https://www.kanju688.com/book/pasdip/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.kanju688.com/book/pasac9/)
 - [这个位面归我了！[经营]](https://www.kanju688.com/book/pas9de/)
-- [娶了女装心机太子](https://www.kanju688.com/book/pas8lp/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.kanju688.com/book/pas8gi/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.kanju688.com/book/pas7kb/)
 - [村霸非要入赘受气包](https://www.kanju688.com/book/pas6ts/)
@@ -154,7 +153,7 @@
 - [恶犬攻绑定上司的乖狗系统](https://www.kanju688.com/book/parvve/)
 - [权宋一只统](https://www.kanju688.com/book/parqum/)
 - [爱好和平但狂拆机甲](https://www.kanju688.com/book/parn9n/)
-- [假少爷不想活了](https://www.kanju688.com/book/paqppu/)
+- [假少爷离开后](https://www.kanju688.com/book/paqppu/)
 - [[娱乐圈]过分美丽的她](https://www.kanju688.com/book/paqppb/)
 - [五十年代港城日常](https://www.kanju688.com/book/paqpot/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.kanju688.com/book/paqpmm/)
@@ -163,15 +162,12 @@
 - [我有一座安全城](https://www.kanju688.com/book/paqpgg/)
 - [日化人生[科研]](https://www.kanju688.com/book/paqpe1/)
 - [直男咒术师的限制级游戏](https://www.kanju688.com/book/paqpcv/)
-- [绝不会喜欢五条君的！](https://www.kanju688.com/book/paqp41/)
 - [成为养成系练习生后](https://www.kanju688.com/book/paqor8/)
 - [海岛求生：生活玩家种田囤货](https://www.kanju688.com/book/paqomg/)
 - [95美国贵族高中模拟](https://www.kanju688.com/book/paqob4/)
 - [六零之成了卷王的妹妹](https://www.kanju688.com/book/paqo70/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kanju688.com/book/paqo6m/)
-- [古代种田养娃日常](https://www.kanju688.com/book/paqo1s/)
 - [清澈女大的六零年代](https://www.kanju688.com/book/paqnqo/)
-- [猫猫也要养家糊口](https://www.kanju688.com/book/paqnko/)
 - [我是唯一地上神国](https://www.kanju688.com/book/paqngp/)
 - [高门小婢](https://www.kanju688.com/book/paqnb3/)
 - [大瑛弟国](https://www.kanju688.com/book/paqn49/)

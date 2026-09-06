@@ -1,13 +1,15 @@
 
 # 宁波慈绿农垦小说-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-05 03:33:15
+更新时间：2026-09-06 03:34:11
 
 宁波慈绿农垦小说提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
 - [宁波慈绿农垦小说](https://www.nbcxnk.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.nbcxnk.com/book/2ss0ur7/)
+- [揣崽丧夫后被情敌强娶了](https://www.nbcxnk.com/book/2ss0ur4/)
 - [恐游作精女配求生指南](https://www.nbcxnk.com/book/2ss0rg1/)
 - [国运求生：我的金手指是生命树](https://www.nbcxnk.com/book/2ss0rfv/)
 - [SSS级异种都是我前任](https://www.nbcxnk.com/book/2ss0rft/)
@@ -43,7 +45,6 @@
 - [二次分化后他怀了死对头的崽](https://www.nbcxnk.com/book/2ss0rd7/)
 - [夫人每天都在伪装](https://www.nbcxnk.com/book/2ss0rd4/)
 - [万人嫌从末世回来了](https://www.nbcxnk.com/book/2ss0rd2/)
-- [自知之明](https://www.nbcxnk.com/book/2ss0rcu/)
 - [热恋过期需重追](https://www.nbcxnk.com/book/2ss0rcr/)
 - [[原神]魔法使恋爱指南](https://www.nbcxnk.com/book/2ss0rcq/)
 - [好心的俄罗斯人](https://www.nbcxnk.com/book/2ss0rcp/)
@@ -107,7 +108,6 @@
 - [开局绑定郭奉孝，谋定三国风云](https://www.nbcxnk.com/book/2srufkg/)
 - [苏娘子汴京摆摊日常（美食）](https://www.nbcxnk.com/book/2srues5/)
 - [路人攻了主角攻［快穿］](https://www.nbcxnk.com/book/2srue2f/)
-- [[综英美]让我统治哥谭！！！](https://www.nbcxnk.com/book/2srudfq/)
 - [美貌单出，杀穿港娱［八零］](https://www.nbcxnk.com/book/2srud6d/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.nbcxnk.com/book/2srud4v/)
 - [直男咒术师的限制级游戏](https://www.nbcxnk.com/book/2sru93k/)
@@ -137,21 +137,18 @@
 - [带清冷女主回乡养螃蟹[种田]](https://www.nbcxnk.com/book/2srt5la/)
 - [清冷丞相怀了死对头的崽](https://www.nbcxnk.com/book/2srt4kv/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.nbcxnk.com/book/2srt3tu/)
-- [娶了女装心机太子](https://www.nbcxnk.com/book/2srt3in/)
 - [和山神搭伙开农场的日子](https://www.nbcxnk.com/book/2srt20n/)
 - [被糟蹋的老实人决定反击](https://www.nbcxnk.com/book/2srt1qv/)
 - [村霸非要入赘受气包](https://www.nbcxnk.com/book/2srt1cj/)
 - [假意逢承](https://www.nbcxnk.com/book/2srt0gc/)
 - [恶犬攻绑定上司的乖狗系统](https://www.nbcxnk.com/book/2srsqkf/)
 - [权宋一只统](https://www.nbcxnk.com/book/2srsp0a/)
-- [绝不会喜欢五条君的！](https://www.nbcxnk.com/book/2srsle8/)
 - [爱好和平但狂拆机甲](https://www.nbcxnk.com/book/2srsjrv/)
 - [你让魔王组建勇者小队？](https://www.nbcxnk.com/book/2srshq4/)
 - [日化人生[科研]](https://www.nbcxnk.com/book/2srrkvi/)
 - [在民俗惊悚片被诸神庇护](https://www.nbcxnk.com/book/2srrkt8/)
-- [古代种田养娃日常](https://www.nbcxnk.com/book/2srrkmb/)
 - [十九世纪贵族厨房（美食）](https://www.nbcxnk.com/book/2srrkjc/)
-- [假少爷不想活了](https://www.nbcxnk.com/book/2srrkim/)
+- [假少爷离开后](https://www.nbcxnk.com/book/2srrkim/)
 - [清澈女大的六零年代](https://www.nbcxnk.com/book/2srrkd5/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.nbcxnk.com/book/2srrk55/)
 - [始乱终弃清冷首辅后](https://www.nbcxnk.com/book/2srrk48/)
@@ -165,11 +162,10 @@
 - [九零首富的替嫁小媳妇](https://www.nbcxnk.com/book/2srrjca/)
 - [高调装神，猥琐发育](https://www.nbcxnk.com/book/2srrj6v/)
 - [95美国贵族高中模拟](https://www.nbcxnk.com/book/2srriuu/)
-- [八零恶毒后妈杀疯了](https://www.nbcxnk.com/book/2srrirn/)
+- [卷王后妈，八零养娃](https://www.nbcxnk.com/book/2srrirn/)
 - [我是唯一地上神国](https://www.nbcxnk.com/book/2srrila/)
 - [[娱乐圈]过分美丽的她](https://www.nbcxnk.com/book/2srriko/)
 - [五十年代港城日常](https://www.nbcxnk.com/book/2srrijp/)
-- [猫猫也要养家糊口](https://www.nbcxnk.com/book/2srria7/)
 - [[封神]圣人生欲](https://www.nbcxnk.com/book/2srri6c/)
 - [高门小婢](https://www.nbcxnk.com/book/2srri0b/)
 - [成为养成系练习生后](https://www.nbcxnk.com/book/2srrhus/)

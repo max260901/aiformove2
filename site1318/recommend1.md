@@ -1,13 +1,15 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-09-05 03:37:40
+更新时间：2026-09-06 03:38:34
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
 - [书旗小说网](https://www.shuqi687.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.shuqi687.com/book/8vsmjgi/)
+- [和八个男人在极寒游戏求生](https://www.shuqi687.com/book/8vsmjgh/)
 - [你让魔王组建勇者小队？](https://www.shuqi687.com/book/8vsmjgg/)
 - [魔尊闭关十年连生十一子？！](https://www.shuqi687.com/book/8vsmjgf/)
 - [占有欲Daddy是我老公？](https://www.shuqi687.com/book/8vsmjge/)
@@ -67,7 +69,6 @@
 - [等我吃腻了再倒闭可以吗](https://www.shuqi687.com/book/8vsmjen/)
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.shuqi687.com/book/8vsmjem/)
 - [在中世纪做奴隶](https://www.shuqi687.com/book/8vsmjel/)
-- [自知之明](https://www.shuqi687.com/book/8vsmjek/)
 - [烈火焚身[巴黎圣母院]](https://www.shuqi687.com/book/8vsmjej/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.shuqi687.com/book/8vsmjei/)
 - [魔咒请说普通话[西幻]](https://www.shuqi687.com/book/8vsmjeh/)
@@ -83,7 +84,6 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.shuqi687.com/book/8vsmje7/)
 - [我们生活玩家是这样的](https://www.shuqi687.com/book/8vsmjc8/)
 - [我司艺人永不塌房](https://www.shuqi687.com/book/8vsmjc7/)
-- [[综英美]让我统治哥谭！！！](https://www.shuqi687.com/book/8vsmjai/)
 - [星际团宠小人鱼](https://www.shuqi687.com/book/8vsmj8b/)
 - [十九世纪贵族厨房（美食）](https://www.shuqi687.com/book/8vsmj7k/)
 - [九零首富的替嫁小媳妇](https://www.shuqi687.com/book/8vsmj7h/)
@@ -91,14 +91,12 @@
 - [始乱终弃清冷首辅后](https://www.shuqi687.com/book/8vsmj6l/)
 - [[封神]圣人生欲](https://www.shuqi687.com/book/8vsmj6h/)
 - [高调装神，猥琐发育](https://www.shuqi687.com/book/8vsmj6e/)
-- [假少爷不想活了](https://www.shuqi687.com/book/8vsmj6b/)
+- [假少爷离开后](https://www.shuqi687.com/book/8vsmj6b/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.shuqi687.com/book/8vsmj5a/)
 - [直男咒术师的限制级游戏](https://www.shuqi687.com/book/8vsmj4f/)
-- [绝不会喜欢五条君的！](https://www.shuqi687.com/book/8vsmhq9/)
 - [六零之成了卷王的妹妹](https://www.shuqi687.com/book/8vsmhpf/)
 - [路人攻了主角攻［快穿］](https://www.shuqi687.com/book/8vsmho6/)
 - [昭暮](https://www.shuqi687.com/book/8vsm87g/)
-- [古代种田养娃日常](https://www.shuqi687.com/book/8vslsll/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.shuqi687.com/book/8vslrvp/)
 - [[足球]足坛人生模拟器](https://www.shuqi687.com/book/8vskrrl/)
 - [上个鬼班[无限]](https://www.shuqi687.com/book/8vskm9v/)
@@ -144,12 +142,11 @@
 - [逃出金丝笼，我力挽山河开国称帝](https://www.shuqi687.com/book/sp9e5f/)
 - [村霸非要入赘受气包](https://www.shuqi687.com/book/sp9dn2/)
 - [韩团绿卡不想忍了](https://www.shuqi687.com/book/sp9dit/)
-- [娶了女装心机太子](https://www.shuqi687.com/book/sp9cqv/)
 - [被糟蹋的老实人决定反击](https://www.shuqi687.com/book/sp9c34/)
 - [这个位面归我了！[经营]](https://www.shuqi687.com/book/sp9bri/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.shuqi687.com/book/sp9a39/)
 - [清冷丞相怀了死对头的崽](https://www.shuqi687.com/book/sp992h/)
-- [八零恶毒后妈杀疯了](https://www.shuqi687.com/book/sp98i2/)
+- [卷王后妈，八零养娃](https://www.shuqi687.com/book/sp98i2/)
 - [心动嫌疑人](https://www.shuqi687.com/book/sp97vc/)
 - [和山神搭伙开农场的日子](https://www.shuqi687.com/book/sp97t9/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.shuqi687.com/book/sp944v/)
@@ -171,7 +168,6 @@
 - [开局绑定郭奉孝，谋定三国风云](https://www.shuqi687.com/book/2s41if/)
 - [高门小婢](https://www.shuqi687.com/book/2s41al/)
 - [我是唯一地上神国](https://www.shuqi687.com/book/96qdu/)
-- [猫猫也要养家糊口](https://www.shuqi687.com/book/96q5o/)
 - [海岛求生：生活玩家种田囤货](https://www.shuqi687.com/book/96pv1/)
 - [清澈女大的六零年代](https://www.shuqi687.com/book/tfeh/)
 - [完蛋！被恨孕男包围了！](https://www.shuqi687.com/book/tfc4/)

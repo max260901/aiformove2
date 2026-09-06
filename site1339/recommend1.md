@@ -1,13 +1,15 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-09-05 03:41:31
+更新时间：2026-09-06 03:42:22
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。
 
 - [三哥小说网](https://www.wkntmcb.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.wkntmcb.com/book/48j2f1k/)
+- [和八个男人在极寒游戏求生](https://www.wkntmcb.com/book/48j2f1j/)
 - [国师](https://www.wkntmcb.com/book/48j2f1i/)
 - [失忆后和死对头有了崽](https://www.wkntmcb.com/book/48j2f1h/)
 - [谁都不爱的和亲公主](https://www.wkntmcb.com/book/48j2f1g/)
@@ -31,7 +33,6 @@
 - [在年代文里跑运输](https://www.wkntmcb.com/book/48j2f02/)
 - [世界伏于她刀下[无限]](https://www.wkntmcb.com/book/48j2evu/)
 - [魔尊闭关十年连生十一子？！](https://www.wkntmcb.com/book/48j2evo/)
-- [自知之明](https://www.wkntmcb.com/book/48j2evl/)
 - [强取师尊后](https://www.wkntmcb.com/book/48j2evj/)
 - [我只想上京赶考啊[聊斋]](https://www.wkntmcb.com/book/48j2eve/)
 - [[足球]小小鸟堂堂来袭](https://www.wkntmcb.com/book/48j2evc/)
@@ -91,7 +92,7 @@
 - [完蛋！被恨孕男包围了！](https://www.wkntmcb.com/book/48j1cpc/)
 - [昭暮](https://www.wkntmcb.com/book/48j19j2/)
 - [从维多利亚时代开始](https://www.wkntmcb.com/book/48j1915/)
-- [假少爷不想活了](https://www.wkntmcb.com/book/48j12li/)
+- [假少爷离开后](https://www.wkntmcb.com/book/48j12li/)
 - [食明](https://www.wkntmcb.com/book/48j0pu6/)
 - [诡话第一boss](https://www.wkntmcb.com/book/48j0mse/)
 - [十九世纪贵族厨房（美食）](https://www.wkntmcb.com/book/48j0lsv/)
@@ -130,7 +131,7 @@
 - [五条老师与他的封建妻子](https://www.wkntmcb.com/book/48iv40s/)
 - [我187了，你敢见我吗？](https://www.wkntmcb.com/book/48iv37u/)
 - [和姐姐的前女友欢愉后](https://www.wkntmcb.com/book/48iv13m/)
-- [八零恶毒后妈杀疯了](https://www.wkntmcb.com/book/48iuv85/)
+- [卷王后妈，八零养娃](https://www.wkntmcb.com/book/48iuv85/)
 - [[封神]圣人生欲](https://www.wkntmcb.com/book/48ius3c/)
 - [我司艺人永不塌房](https://www.wkntmcb.com/book/48iurmn/)
 - [大唐守军家属](https://www.wkntmcb.com/book/48iunle/)
@@ -139,11 +140,9 @@
 - [韩团绿卡不想忍了](https://www.wkntmcb.com/book/48iui3d/)
 - [妻主风流（女尊）](https://www.wkntmcb.com/book/48iugql/)
 - [这个位面归我了！[经营]](https://www.wkntmcb.com/book/48iufcd/)
-- [[综英美]让我统治哥谭！！！](https://www.wkntmcb.com/book/48iuer6/)
 - [心动嫌疑人](https://www.wkntmcb.com/book/48iuej6/)
 - [死亡悖论[无限流]](https://www.wkntmcb.com/book/48iueg1/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.wkntmcb.com/book/48iuc63/)
-- [娶了女装心机太子](https://www.wkntmcb.com/book/48iubvs/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.wkntmcb.com/book/48iub7p/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.wkntmcb.com/book/48iuadv/)
 - [死遁的亡夫们都回来了](https://www.wkntmcb.com/book/48iu8hp/)
@@ -167,14 +166,11 @@
 - [巨物致富：回乡开钓场](https://www.wkntmcb.com/book/48issh3/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.wkntmcb.com/book/48issdk/)
 - [我有一座安全城](https://www.wkntmcb.com/book/48issd7/)
-- [猫猫也要养家糊口](https://www.wkntmcb.com/book/48isruo/)
 - [[娱乐圈]过分美丽的她](https://www.wkntmcb.com/book/48isrsf/)
 - [海岛求生：生活玩家种田囤货](https://www.wkntmcb.com/book/48isrs8/)
 - [全民求生:从小木屋到魔法农场](https://www.wkntmcb.com/book/48isrp5/)
-- [古代种田养娃日常](https://www.wkntmcb.com/book/48isr85/)
 - [老实人妻，但顶级魅魔](https://www.wkntmcb.com/book/48isr03/)
 - [五十年代港城日常](https://www.wkntmcb.com/book/48isqtt/)
-- [绝不会喜欢五条君的！](https://www.wkntmcb.com/book/48isqmt/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1339/index.md)

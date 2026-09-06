@@ -1,7 +1,7 @@
 
 # 梦翔橙子小说网-全本小说最值得收藏的在线阅读平台
 
-更新时间：2026-09-05 03:33:00
+更新时间：2026-09-06 03:33:56
 
 梦翔橙子小说网为您提供最新、最热门的小说资源，拥有全网最全面的小说库。无论是全本还是连载中，都能在这里找到。是解决书荒问题的理想选择，让您的阅读体验更加流畅愉快。
 
@@ -12,6 +12,7 @@
 - [等我吃腻了再倒闭可以吗](https://www.mengxiang668.com/book/2nrq7ff/)
 - [清穿女回来后[天幕]](https://www.mengxiang668.com/book/2nrq7f7/)
 - [禁止继承限制级雌君](https://www.mengxiang668.com/book/2nrq7f2/)
+- [穿为龙傲天发妻后](https://www.mengxiang668.com/book/2nrq7dd/)
 - [[综英美]和亲友群穿哥谭以后](https://www.mengxiang668.com/book/2nrq7ce/)
 - [自知之明](https://www.mengxiang668.com/book/2nrq7ca/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.mengxiang668.com/book/2nrq7be/)
@@ -32,10 +33,8 @@
 - [我超凶的！[快穿]](https://www.mengxiang668.com/book/2nrps0a/)
 - [我比反派先崩坏[快穿]](https://www.mengxiang668.com/book/2nrpr9q/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.mengxiang668.com/book/2nrpr0c/)
-- [我的烧烤摊超美味[美食]](https://www.mengxiang668.com/book/2nrpqtd/)
 - [渡鬼](https://www.mengxiang668.com/book/2nrpqt5/)
 - [cos温迪后玩到真崩铁了](https://www.mengxiang668.com/book/2nrpmqu/)
-- [从异世界穿回来后](https://www.mengxiang668.com/book/2nrpmkj/)
 - [我有嘉宾](https://www.mengxiang668.com/book/2nrpm9k/)
 - [娇气点怎么啦？［快穿］](https://www.mengxiang668.com/book/2nrpm69/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.mengxiang668.com/book/2nrplgq/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.mengxiang668.com/book/2nrp0o0/)
 - [昭暮](https://www.mengxiang668.com/book/2nrovib/)
 - [你，后室管理员](https://www.mengxiang668.com/book/2nrornj/)
-- [星际团宠小人鱼](https://www.mengxiang668.com/book/2nrorla/)
 - [高调装神，猥琐发育](https://www.mengxiang668.com/book/2nrokhd/)
 - [我在无限游戏里假扮NPC[无限流]](https://www.mengxiang668.com/book/2nroe51/)
 - [伪装路人后成了反派首领](https://www.mengxiang668.com/book/2nrodrm/)
@@ -286,7 +284,6 @@
 - [侦探小说的大忌[福尔摩斯]](https://www.mengxiang668.com/book/2nrn1o0/)
 - [主角对你极度痴迷](https://www.mengxiang668.com/book/2nrn1nr/)
 - [[封神]圣人生欲](https://www.mengxiang668.com/book/2nrn1cc/)
-- [多梦你一会儿](https://www.mengxiang668.com/book/2nrn1ad/)
 - [炮灰的我该如何上位？](https://www.mengxiang668.com/book/2nrn19v/)
 - [如何在玛丽苏包围圈中生存](https://www.mengxiang668.com/book/2nrn158/)
 - [一觉醒来老公变男大了](https://www.mengxiang668.com/book/2nrn14m/)
@@ -369,7 +366,6 @@
 - [小寡夫还有两幅面孔](https://www.mengxiang668.com/book/2nrms1j/)
 - [养个诡异当老婆](https://www.mengxiang668.com/book/2nrms04/)
 - [经纪人砸钱整顿内娱爆火了](https://www.mengxiang668.com/book/2nrmrod/)
-- [和前女友的心上人he了](https://www.mengxiang668.com/book/2nrmrn0/)
 - [[崩铁]自恋值拉满穿越被水仙了](https://www.mengxiang668.com/book/2nrmrct/)
 - [当了卧底的我发现遍地熟人](https://www.mengxiang668.com/book/2nrmrcb/)
 - [变成鲛人了怎么办](https://www.mengxiang668.com/book/2nrmrav/)
@@ -419,6 +415,7 @@
 - [请问夫君你哪位](https://www.mengxiang668.com/book/2nrmnfh/)
 - [司寝宫女](https://www.mengxiang668.com/book/2nrmn91/)
 - [普通高中生，但兼职咒术师](https://www.mengxiang668.com/book/2nrmn6i/)
+- [被阴湿坏女人缠上后](https://www.mengxiang668.com/book/2nrmn5r/)
 - [青空来信](https://www.mengxiang668.com/book/2nrmn3m/)
 - [举朝上下为我的神仙人设头疼中](https://www.mengxiang668.com/book/2nrmmvi/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.mengxiang668.com/book/2nrmlka/)
@@ -428,6 +425,7 @@
 - [幼崽假少爷选择回归寒门](https://www.mengxiang668.com/book/2nrmcnb/)
 - [盛夏晴浓](https://www.mengxiang668.com/book/2nrmbg1/)
 - [[足球]小小鸟堂堂来袭](https://www.mengxiang668.com/book/2nrmbe3/)
+- [欢迎来到重生点](https://www.mengxiang668.com/book/2nrm95g/)
 - [青城玩家明明超强却过分谨慎](https://www.mengxiang668.com/book/2nrm911/)
 - [好巧，你也是妹控？[综崩铁]](https://www.mengxiang668.com/book/2nrm89k/)
 - [矩阵干扰](https://www.mengxiang668.com/book/2nrm7ln/)

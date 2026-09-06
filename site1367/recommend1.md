@@ -1,13 +1,15 @@
 
 # 奇幻笔趣屋 - 书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-05 03:35:00
+更新时间：2026-09-06 03:35:57
 
 奇幻笔趣屋收录整理最新最全的热门网络小说，提供所有小说首发最新章节免费阅读服务，是书友们最值得收藏的小说阅读网站。
 
 - [奇幻笔趣屋](https://www.qihuan958.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.qihuan958.com/book/4rau0vv/)
+- [揣崽丧夫后被情敌强娶了](https://www.qihuan958.com/book/4rau0vu/)
 - [全民求生，但剑三](https://www.qihuan958.com/book/4rau0vt/)
 - [炮灰的海外亲戚回国啦！](https://www.qihuan958.com/book/4rau0vl/)
 - [乖乖女的杂货铺[八零]](https://www.qihuan958.com/book/4rau0vh/)
@@ -26,7 +28,6 @@
 - [世界伏于她刀下[无限]](https://www.qihuan958.com/book/4rau0un/)
 - [欲加之罪](https://www.qihuan958.com/book/4rau0um/)
 - [国师](https://www.qihuan958.com/book/4rau0ul/)
-- [自知之明](https://www.qihuan958.com/book/4rau0uk/)
 - [恶毒男配只想躺平](https://www.qihuan958.com/book/4rau0uh/)
 - [失忆后和死对头有了崽](https://www.qihuan958.com/book/4rau0uf/)
 - [清穿女回来后[天幕]](https://www.qihuan958.com/book/4rau0ud/)
@@ -120,13 +121,12 @@
 - [我有一座地下城](https://www.qihuan958.com/book/4rar1le/)
 - [漂亮女配是万人迷［快穿］](https://www.qihuan958.com/book/4rar1kc/)
 - [阴阳师也可以打网球](https://www.qihuan958.com/book/4raqrvg/)
-- [[综英美]让我统治哥谭！！！](https://www.qihuan958.com/book/4raqqhh/)
 - [[封神]圣人生欲](https://www.qihuan958.com/book/4raqqc1/)
 - [如何嫁给当朝首辅](https://www.qihuan958.com/book/4raqq7m/)
 - [和贵志君是世界第一的好朋友](https://www.qihuan958.com/book/4raqprk/)
 - [多梦你一会儿](https://www.qihuan958.com/book/4raqpp3/)
 - [和治君只是饭搭子的关系](https://www.qihuan958.com/book/4raqpoa/)
-- [八零恶毒后妈杀疯了](https://www.qihuan958.com/book/4raqojb/)
+- [卷王后妈，八零养娃](https://www.qihuan958.com/book/4raqojb/)
 - [在魔法贵族学院当白月光](https://www.qihuan958.com/book/4raqmst/)
 - [五条老师与他的封建妻子](https://www.qihuan958.com/book/4raqmbk/)
 - [我187了，你敢见我吗？](https://www.qihuan958.com/book/4raql9a/)
@@ -143,7 +143,6 @@
 - [带清冷女主回乡养螃蟹[种田]](https://www.qihuan958.com/book/4raq1hr/)
 - [这个位面归我了！[经营]](https://www.qihuan958.com/book/4raq0dp/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.qihuan958.com/book/4rapucm/)
-- [娶了女装心机太子](https://www.qihuan958.com/book/4raptp9/)
 - [清冷丞相怀了死对头的崽](https://www.qihuan958.com/book/4raptp5/)
 - [村霸非要入赘受气包](https://www.qihuan958.com/book/4raptn5/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.qihuan958.com/book/4rapt44/)
@@ -157,12 +156,11 @@
 - [日化人生[科研]](https://www.qihuan958.com/book/4raofs2/)
 - [高门小婢](https://www.qihuan958.com/book/4raofpi/)
 - [95美国贵族高中模拟](https://www.qihuan958.com/book/4raofe7/)
-- [绝不会喜欢五条君的！](https://www.qihuan958.com/book/4raofd1/)
 - [直男咒术师的限制级游戏](https://www.qihuan958.com/book/4raof4l/)
 - [五十年代港城日常](https://www.qihuan958.com/book/4raof2o/)
 - [[娱乐圈]过分美丽的她](https://www.qihuan958.com/book/4raoesk/)
 - [全民求生:从小木屋到魔法农场](https://www.qihuan958.com/book/4raoes5/)
-- [假少爷不想活了](https://www.qihuan958.com/book/4raoeld/)
+- [假少爷离开后](https://www.qihuan958.com/book/4raoeld/)
 - [我有一座安全城](https://www.qihuan958.com/book/4raoe7t/)
 - [成为养成系练习生后](https://www.qihuan958.com/book/4raoe7g/)
 - [我是唯一地上神国](https://www.qihuan958.com/book/4raoe0q/)
@@ -173,8 +171,6 @@
 - [巨物致富：回乡开钓场](https://www.qihuan958.com/book/4raod6f/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.qihuan958.com/book/4raod0o/)
 - [海岛求生：生活玩家种田囤货](https://www.qihuan958.com/book/4raocvd/)
-- [古代种田养娃日常](https://www.qihuan958.com/book/4raocos/)
-- [猫猫也要养家糊口](https://www.qihuan958.com/book/4raockm/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1367/index.md)

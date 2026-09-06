@@ -1,13 +1,15 @@
 
 # 落秋文学网 - 免费全本小说阅读,最新章节更新,无弹窗广告
 
-更新时间：2026-09-05 03:41:16
+更新时间：2026-09-06 03:42:07
 
 落秋文学网提供最快最新的网络小说更新服务，推荐最好看的网络小说排行榜。全站支持无弹窗广告阅读体验，全本小说均可免费在线阅读。
 
 - [落秋文学网](https://www.wenxue868.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.wenxue868.com/book/rlcn86/)
+- [揣崽丧夫后被情敌强娶了](https://www.wenxue868.com/book/rlcn85/)
 - [魔改剧本后我爆火了[娱乐圈]](https://www.wenxue868.com/book/rlcn81/)
 - [人，今晚土拨鼠站岗](https://www.wenxue868.com/book/rlcn80/)
 - [在中世纪做奴隶](https://www.wenxue868.com/book/rlcn7v/)
@@ -49,7 +51,6 @@
 - [炮灰的海外亲戚回国啦！](https://www.wenxue868.com/book/rlcn52/)
 - [[洪荒]成为太清妹妹后](https://www.wenxue868.com/book/rlcn4v/)
 - [等我吃腻了再倒闭可以吗](https://www.wenxue868.com/book/rlcn4t/)
-- [自知之明](https://www.wenxue868.com/book/rlcn4r/)
 - [穿为龙傲天发妻后](https://www.wenxue868.com/book/rlcn4q/)
 - [二次分化后他怀了死对头的崽](https://www.wenxue868.com/book/rlcn4p/)
 - [[综英美]和亲友群穿哥谭以后](https://www.wenxue868.com/book/rlcn4n/)
@@ -125,8 +126,7 @@
 - [阴阳师也可以打网球](https://www.wenxue868.com/book/rl9hi9/)
 - [和贵志君是世界第一的好朋友](https://www.wenxue868.com/book/rl9gd1/)
 - [[封神]圣人生欲](https://www.wenxue868.com/book/rl9gc1/)
-- [[综英美]让我统治哥谭！！！](https://www.wenxue868.com/book/rl9g4p/)
-- [八零恶毒后妈杀疯了](https://www.wenxue868.com/book/rl9fct/)
+- [卷王后妈，八零养娃](https://www.wenxue868.com/book/rl9fct/)
 - [在魔法贵族学院当白月光](https://www.wenxue868.com/book/rl9dku/)
 - [五条老师与他的封建妻子](https://www.wenxue868.com/book/rl9cg9/)
 - [我司艺人永不塌房](https://www.wenxue868.com/book/rl9c08/)
@@ -143,7 +143,6 @@
 - [这个位面归我了！[经营]](https://www.wenxue868.com/book/rl8n3p/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.wenxue868.com/book/rl8lds/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.wenxue868.com/book/rl8kbi/)
-- [娶了女装心机太子](https://www.wenxue868.com/book/rl8jvi/)
 - [村霸非要入赘受气包](https://www.wenxue868.com/book/rl8jue/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.wenxue868.com/book/rl8jom/)
 - [清冷丞相怀了死对头的崽](https://www.wenxue868.com/book/rl8jga/)
@@ -157,19 +156,16 @@
 - [大瑛弟国](https://www.wenxue868.com/book/rl7650/)
 - [高门小婢](https://www.wenxue868.com/book/rl75ij/)
 - [六零之成了卷王的妹妹](https://www.wenxue868.com/book/rl75g4/)
-- [假少爷不想活了](https://www.wenxue868.com/book/rl75aq/)
+- [假少爷离开后](https://www.wenxue868.com/book/rl75aq/)
 - [清澈女大的六零年代](https://www.wenxue868.com/book/rl74so/)
 - [95美国贵族高中模拟](https://www.wenxue868.com/book/rl74kj/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.wenxue868.com/book/rl74il/)
 - [成为养成系练习生后](https://www.wenxue868.com/book/rl74fq/)
 - [我是唯一地上神国](https://www.wenxue868.com/book/rl74e1/)
 - [我有一座安全城](https://www.wenxue868.com/book/rl74b5/)
-- [猫猫也要养家糊口](https://www.wenxue868.com/book/rl74av/)
 - [直男咒术师的限制级游戏](https://www.wenxue868.com/book/rl7471/)
 - [海岛求生：生活玩家种田囤货](https://www.wenxue868.com/book/rl73tv/)
-- [绝不会喜欢五条君的！](https://www.wenxue868.com/book/rl73sm/)
 - [五十年代港城日常](https://www.wenxue868.com/book/rl73lm/)
-- [古代种田养娃日常](https://www.wenxue868.com/book/rl73km/)
 - [日化人生[科研]](https://www.wenxue868.com/book/rl73gq/)
 - [[娱乐圈]过分美丽的她](https://www.wenxue868.com/book/rl73d2/)
 - [全民求生:从小木屋到魔法农场](https://www.wenxue868.com/book/rl7313/)

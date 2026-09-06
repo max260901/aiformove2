@@ -1,7 +1,7 @@
 
 # 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
 
-更新时间：2026-09-05 03:22:00
+更新时间：2026-09-06 03:22:51
 
 瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！
 
@@ -12,12 +12,12 @@
 - [躲避原书剧情五年后](https://www.49ig.com/book/436e8nt/)
 - [清穿女回来后[天幕]](https://www.49ig.com/book/436e8iu/)
 - [禁止继承限制级雌君](https://www.49ig.com/book/436e8h8/)
+- [穿为龙傲天发妻后](https://www.49ig.com/book/436e8gt/)
 - [自知之明](https://www.49ig.com/book/436e8gf/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.49ig.com/book/436e8eu/)
 - [娇气点怎么啦？［快穿］](https://www.49ig.com/book/436e8aq/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.49ig.com/book/436e7ic/)
 - [不义世界都是我马甲[综英美]](https://www.49ig.com/book/436e7b2/)
-- [从异世界穿回来后](https://www.49ig.com/book/436e615/)
 - [[综武侠]风流](https://www.49ig.com/book/436e5m9/)
 - [孤独症崽崽穿越到狗血爽文里[穿书]](https://www.49ig.com/book/436e4hv/)
 - [我有嘉宾](https://www.49ig.com/book/436e4ha/)
@@ -58,7 +58,6 @@
 - [暗堕本丸，在线直播](https://www.49ig.com/book/436cr59/)
 - [优质攻不做恋爱脑[快穿]](https://www.49ig.com/book/436cr4k/)
 - [全天下都在求太子殿下别死！](https://www.49ig.com/book/436cqvu/)
-- [我的烧烤摊超美味[美食]](https://www.49ig.com/book/436cqvt/)
 - [我当县令那些年](https://www.49ig.com/book/436cqui/)
 - [[综英美]是谁家的小鹿](https://www.49ig.com/book/436coum/)
 - [我有一座城](https://www.49ig.com/book/436coql/)
@@ -240,7 +239,6 @@
 - [[足球]职业模拟器但足坛](https://www.49ig.com/book/436bnvk/)
 - [掉马后成了奥特带恶人](https://www.49ig.com/book/436bnu5/)
 - [反派的病弱白月光重生了](https://www.49ig.com/book/436bnq3/)
-- [多梦你一会儿](https://www.49ig.com/book/436bnpv/)
 - [吃瓜也能整顿豪门？](https://www.49ig.com/book/436bnnm/)
 - [摆烂后我成了邪神学院大佬](https://www.49ig.com/book/436bnl6/)
 - [荒谬神父是个渣](https://www.49ig.com/book/436bnkp/)
@@ -269,7 +267,6 @@
 - [揍敌客大小姐好难攻略](https://www.49ig.com/book/436bl4o/)
 - [当魔修反派穿成治愈系[穿书]](https://www.49ig.com/book/436bkv8/)
 - [社畜，但是天才魔导师](https://www.49ig.com/book/436bkoh/)
-- [和前女友的心上人he了](https://www.49ig.com/book/436bkla/)
 - [幼崽假少爷选择回归寒门](https://www.49ig.com/book/436bkk8/)
 - [异种大食堂[无限]](https://www.49ig.com/book/436bkiu/)
 - [陌上炊烟（种田）](https://www.49ig.com/book/436bkfq/)
@@ -420,23 +417,26 @@
 - [咒术师，但队友是侦探](https://www.49ig.com/book/436b97a/)
 - [青山不渡](https://www.49ig.com/book/436b96v/)
 - [高冷影后逼我标记她](https://www.49ig.com/book/436b95u/)
+- [被阴湿坏女人缠上后](https://www.49ig.com/book/436b95s/)
 - [求生游戏：当邪神成为生活玩家后](https://www.49ig.com/book/436b94o/)
 - [小狗向导，世界瑰宝！](https://www.49ig.com/book/436b924/)
 - [柯学剧本杀，但恋爱流打法](https://www.49ig.com/book/436b87d/)
 - [李玉灯](https://www.49ig.com/book/436b83c/)
 - [好巧，你也是妹控？[综崩铁]](https://www.49ig.com/book/436b7s4/)
+- [欢迎来到重生点](https://www.49ig.com/book/436b7du/)
 - [我，剑圣，养生中，勿扰](https://www.49ig.com/book/436b627/)
 - [等我吃腻了再倒闭可以吗](https://www.49ig.com/book/436b4t6/)
 - [盛夏晴浓](https://www.49ig.com/book/436b33q/)
 - [[综英美]和亲友群穿哥谭以后](https://www.49ig.com/book/436b1tu/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.49ig.com/book/436b18r/)
 - [自大狂](https://www.49ig.com/book/436apqf/)
+- [书呆子扮演渣攻翻车【快穿】](https://www.49ig.com/book/436aj9i/)
+- [丧尸老婆喂养日记](https://www.49ig.com/book/436a6gf/)
 - [误入反派培养直播后](https://www.49ig.com/book/43698eg/)
 - [纯爱宇智波基本恋爱法](https://www.49ig.com/book/436986d/)
 - [你，后室管理员](https://www.49ig.com/book/4369816/)
 - [被四皇错看成小动物后](https://www.49ig.com/book/43697ic/)
 - [高调装神，猥琐发育](https://www.49ig.com/book/4369798/)
-- [星际团宠小人鱼](https://www.49ig.com/book/43696p6/)
 - [[封神]圣人生欲](https://www.49ig.com/book/43696e5/)
 ## 相关内容
 - [README](/README.md)

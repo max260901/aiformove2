@@ -1,7 +1,7 @@
 
 # 看剧文学网 - 书友最值得收藏的小说阅读网
 
-更新时间：2026-09-05 03:29:57
+更新时间：2026-09-06 03:30:54
 
 看剧文学网，精选最好看的小说推荐给大家在线阅读。这里有网络小说大全，包括最火、最热门的小说最新章节，是书友最值得收藏的免费小说阅读网。
 
@@ -13,6 +13,7 @@
 - [清穿女回来后[天幕]](https://www.kanju788.com/book/to4uiu/)
 - [等我吃腻了再倒闭可以吗](https://www.kanju788.com/book/to4ui9/)
 - [禁止继承限制级雌君](https://www.kanju788.com/book/to4ui5/)
+- [穿为龙傲天发妻后](https://www.kanju788.com/book/to4uh8/)
 - [自知之明](https://www.kanju788.com/book/to4uh6/)
 - [这个替嫁让我来！](https://www.kanju788.com/book/to4ug9/)
 - [全世界名为爱的恶意](https://www.kanju788.com/book/to4ueq/)
@@ -33,9 +34,7 @@
 - [我比反派先崩坏[快穿]](https://www.kanju788.com/book/to4id5/)
 - [渡鬼](https://www.kanju788.com/book/to4id4/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kanju788.com/book/to4ico/)
-- [我的烧烤摊超美味[美食]](https://www.kanju788.com/book/to4i9a/)
 - [cos温迪后玩到真崩铁了](https://www.kanju788.com/book/to4du3/)
-- [从异世界穿回来后](https://www.kanju788.com/book/to4dno/)
 - [我有嘉宾](https://www.kanju788.com/book/to4dfb/)
 - [娇气点怎么啦？［快穿］](https://www.kanju788.com/book/to4dbb/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.kanju788.com/book/to4cm1/)
@@ -57,7 +56,6 @@
 - [侦探立于百万生命之上](https://www.kanju788.com/book/to3od1/)
 - [特殊魅力值，已到账](https://www.kanju788.com/book/to3nmb/)
 - [昭暮](https://www.kanju788.com/book/to3ms7/)
-- [星际团宠小人鱼](https://www.kanju788.com/book/to3jnv/)
 - [你，后室管理员](https://www.kanju788.com/book/to3jeb/)
 - [高调装神，猥琐发育](https://www.kanju788.com/book/to3ckd/)
 - [渣过我的主角全都重生了[快穿]](https://www.kanju788.com/book/to359o/)
@@ -308,7 +306,6 @@
 - [奶奶蛋糕店[美食]](https://www.kanju788.com/book/to1n9c/)
 - [异种大食堂[无限]](https://www.kanju788.com/book/to1n45/)
 - [[综武侠]万人迷小姐想要富贵荣华](https://www.kanju788.com/book/to1mvn/)
-- [多梦你一会儿](https://www.kanju788.com/book/to1mpi/)
 - [破戒[娱乐圈]](https://www.kanju788.com/book/to1mo3/)
 - [娇婚惯养](https://www.kanju788.com/book/to1mdm/)
 - [魔尊他邪得发正](https://www.kanju788.com/book/to1mda/)
@@ -371,7 +368,6 @@
 - [骑！就要骑在宿敌头上作威作福](https://www.kanju788.com/book/to1iil/)
 - [养个诡异当老婆](https://www.kanju788.com/book/to1ih8/)
 - [[足球]在比利时我们只玩天赋](https://www.kanju788.com/book/to1idp/)
-- [和前女友的心上人he了](https://www.kanju788.com/book/to1ibc/)
 - [[综英美]是追到小红鸟的超人之子](https://www.kanju788.com/book/to1i8h/)
 - [忍界观察日记](https://www.kanju788.com/book/to1hu1/)
 - [御厨传人的小镇饭馆 [美食]](https://www.kanju788.com/book/to1hsh/)
@@ -408,6 +404,7 @@
 - [神之子与排球的适配性](https://www.kanju788.com/book/to1fpl/)
 - [救命！猫尾巴藏不住了](https://www.kanju788.com/book/to1fld/)
 - [举朝上下为我的神仙人设头疼中](https://www.kanju788.com/book/to1fgp/)
+- [被阴湿坏女人缠上后](https://www.kanju788.com/book/to1ffg/)
 - [癫骨](https://www.kanju788.com/book/to1feu/)
 - [青空来信](https://www.kanju788.com/book/to1fe1/)
 - [青山不渡](https://www.kanju788.com/book/to1fab/)
@@ -429,6 +426,7 @@
 - [盛夏晴浓](https://www.kanju788.com/book/to12nf/)
 - [[足球]小小鸟堂堂来袭](https://www.kanju788.com/book/to12el/)
 - [青城玩家明明超强却过分谨慎](https://www.kanju788.com/book/to114t/)
+- [欢迎来到重生点](https://www.kanju788.com/book/to10vl/)
 - [好巧，你也是妹控？[综崩铁]](https://www.kanju788.com/book/to0vv1/)
 - [暴君偏头痛](https://www.kanju788.com/book/to0tun/)
 - [侯府打工人](https://www.kanju788.com/book/to0tp9/)

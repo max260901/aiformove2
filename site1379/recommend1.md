@@ -1,13 +1,14 @@
 
 # 云南野人山野小说网 - 创意小说与文学作品分享平台
 
-更新时间：2026-09-05 03:44:56
+更新时间：2026-09-06 03:45:45
 
 欢迎来到云南野人山野小说网 - 专注于创意小说和文学作品分享的在线平台。探索精选的小说系列及文学佳作，加入我们，与众多才华横溢的作者交流心得，共同创造美好的阅读旅程。
 
 - [云南野人山野小说网](https://www.ynyrsy.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.ynyrsy.com/book/dfe92b/)
 - [康熙宠妃日常](https://www.ynyrsy.com/book/dfe5ll/)
 - [失忆后和死对头有了崽](https://www.ynyrsy.com/book/dfe5li/)
 - [[洪荒]成为太清妹妹后](https://www.ynyrsy.com/book/dfe5lh/)
@@ -53,7 +54,6 @@
 - [恶毒男配只想躺平](https://www.ynyrsy.com/book/dfe5ib/)
 - [国师](https://www.ynyrsy.com/book/dfe5i8/)
 - [从1951开始](https://www.ynyrsy.com/book/dfe5i2/)
-- [自知之明](https://www.ynyrsy.com/book/dfe5hv/)
 - [人，今晚土拨鼠站岗](https://www.ynyrsy.com/book/dfe5ht/)
 - [好心的俄罗斯人](https://www.ynyrsy.com/book/dfe5hs/)
 - [等我吃腻了再倒闭可以吗](https://www.ynyrsy.com/book/dfe5hq/)
@@ -107,7 +107,6 @@
 - [美貌单出，杀穿港娱［八零］](https://www.ynyrsy.com/book/dfbigr/)
 - [苏娘子汴京摆摊日常（美食）](https://www.ynyrsy.com/book/dfbi90/)
 - [路人攻了主角攻［快穿］](https://www.ynyrsy.com/book/dfbi7e/)
-- [[综英美]让我统治哥谭！！！](https://www.ynyrsy.com/book/dfbhvj/)
 - [开局绑定郭奉孝，谋定三国风云](https://www.ynyrsy.com/book/dfbg29/)
 - [直男咒术师的限制级游戏](https://www.ynyrsy.com/book/dfbdc1/)
 - [漂亮女配是万人迷［快穿］](https://www.ynyrsy.com/book/dfbc80/)
@@ -136,14 +135,12 @@
 - [清冷丞相怀了死对头的崽](https://www.ynyrsy.com/book/dfaakm/)
 - [村霸非要入赘受气包](https://www.ynyrsy.com/book/dfa9ab/)
 - [和山神搭伙开农场的日子](https://www.ynyrsy.com/book/dfa93k/)
-- [娶了女装心机太子](https://www.ynyrsy.com/book/dfa6sc/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.ynyrsy.com/book/dfa6iu/)
 - [[综英美]和亲友群穿哥谭以后](https://www.ynyrsy.com/book/dfa5om/)
 - [被糟蹋的老实人决定反击](https://www.ynyrsy.com/book/dfa51b/)
 - [假意逢承](https://www.ynyrsy.com/book/dfa3ks/)
 - [权宋一只统](https://www.ynyrsy.com/book/dfa0fa/)
 - [恶犬攻绑定上司的乖狗系统](https://www.ynyrsy.com/book/dfa02q/)
-- [绝不会喜欢五条君的！](https://www.ynyrsy.com/book/df9tmd/)
 - [爱好和平但狂拆机甲](https://www.ynyrsy.com/book/df9oo6/)
 - [你让魔王组建勇者小队？](https://www.ynyrsy.com/book/df9lgo/)
 - [高门小婢](https://www.ynyrsy.com/book/df8qds/)
@@ -151,14 +148,12 @@
 - [我是唯一地上神国](https://www.ynyrsy.com/book/df8q3n/)
 - [趁她之危](https://www.ynyrsy.com/book/df8q3f/)
 - [我有一座安全城](https://www.ynyrsy.com/book/df8pqj/)
-- [猫猫也要养家糊口](https://www.ynyrsy.com/book/df8poj/)
 - [始乱终弃清冷首辅后](https://www.ynyrsy.com/book/df8pkn/)
-- [古代种田养娃日常](https://www.ynyrsy.com/book/df8pgr/)
 - [六零之成了卷王的妹妹](https://www.ynyrsy.com/book/df8pg6/)
 - [95美国贵族高中模拟](https://www.ynyrsy.com/book/df8p7b/)
-- [九零首富的替嫁小媳妇](https://www.ynyrsy.com/book/df8p6k/)
 - [星际团宠小人鱼](https://www.ynyrsy.com/book/df8otm/)
 - [五十年代港城日常](https://www.ynyrsy.com/book/df8oqe/)
+- [老公对不起](https://www.ynyrsy.com/book/df8oqd/)
 - [完蛋！被恨孕男包围了！](https://www.ynyrsy.com/book/df8oni/)
 - [高调装神，猥琐发育](https://www.ynyrsy.com/book/df8olq/)
 - [[封神]圣人生欲](https://www.ynyrsy.com/book/df8oj6/)
@@ -171,10 +166,10 @@
 - [日化人生[科研]](https://www.ynyrsy.com/book/df8nu0/)
 - [成为养成系练习生后](https://www.ynyrsy.com/book/df8npu/)
 - [在民俗惊悚片被诸神庇护](https://www.ynyrsy.com/book/df8nm3/)
-- [八零恶毒后妈杀疯了](https://www.ynyrsy.com/book/df8njj/)
+- [卷王后妈，八零养娃](https://www.ynyrsy.com/book/df8njj/)
 - [[娱乐圈]过分美丽的她](https://www.ynyrsy.com/book/df8nil/)
 - [巨物致富：回乡开钓场](https://www.ynyrsy.com/book/df8n9u/)
-- [假少爷不想活了](https://www.ynyrsy.com/book/df8n8e/)
+- [假少爷离开后](https://www.ynyrsy.com/book/df8n8e/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1379/index.md)

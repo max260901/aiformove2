@@ -1,13 +1,14 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-09-05 03:43:51
+更新时间：2026-09-06 03:44:40
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。
 
 - [炫书网](https://www.xqwz8bk.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.xqwz8bk.com/book/1igm36p/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.xqwz8bk.com/book/1igm36i/)
 - [禁止继承限制级雌君](https://www.xqwz8bk.com/book/1igm36c/)
 - [[足球]小小鸟堂堂来袭](https://www.xqwz8bk.com/book/1igm36a/)
@@ -19,6 +20,7 @@
 - [等我吃腻了再倒闭可以吗](https://www.xqwz8bk.com/book/1igm35c/)
 - [自知之明](https://www.xqwz8bk.com/book/1igm357/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.xqwz8bk.com/book/1igm352/)
+- [穿为龙傲天发妻后](https://www.xqwz8bk.com/book/1igm34s/)
 - [全世界名为爱的恶意](https://www.xqwz8bk.com/book/1igm34n/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xqwz8bk.com/book/1igm330/)
 - [躲避原书剧情五年后](https://www.xqwz8bk.com/book/1igm32t/)
@@ -26,9 +28,6 @@
 - [暴君偏头痛](https://www.xqwz8bk.com/book/1igm31q/)
 - [青城玩家明明超强却过分谨慎](https://www.xqwz8bk.com/book/1igm31l/)
 - [渡鬼](https://www.xqwz8bk.com/book/1igm31j/)
-- [从异世界穿回来后](https://www.xqwz8bk.com/book/1igm31c/)
-- [我的烧烤摊超美味[美食]](https://www.xqwz8bk.com/book/1igm2vu/)
-- [星际团宠小人鱼](https://www.xqwz8bk.com/book/1igm2ui/)
 - [你，后室管理员](https://www.xqwz8bk.com/book/1igm2tn/)
 - [被四皇错看成小动物后](https://www.xqwz8bk.com/book/1igm2tf/)
 - [[封神]圣人生欲](https://www.xqwz8bk.com/book/1igm2t8/)
@@ -405,6 +404,7 @@
 - [直播捏玩具被榜一大哥撅了](https://www.xqwz8bk.com/book/51mq51/)
 - [虫族治愈师，但恐虫](https://www.xqwz8bk.com/book/51mpnt/)
 - [癫骨](https://www.xqwz8bk.com/book/51mpkg/)
+- [被阴湿坏女人缠上后](https://www.xqwz8bk.com/book/51mpju/)
 - [隔壁班的松田君](https://www.xqwz8bk.com/book/51mpic/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.xqwz8bk.com/book/51moha/)
 - [你也没死？](https://www.xqwz8bk.com/book/51mnqs/)
@@ -413,10 +413,8 @@
 - [老公是松散生命体](https://www.xqwz8bk.com/book/51mj0i/)
 - [我最讨厌打球了！](https://www.xqwz8bk.com/book/51mfm4/)
 - [误入反派培养直播后](https://www.xqwz8bk.com/book/51ma0q/)
-- [多梦你一会儿](https://www.xqwz8bk.com/book/51m9kq/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.xqwz8bk.com/book/51m8ed/)
 - [[足球]罗蜜第一志愿](https://www.xqwz8bk.com/book/51m4qf/)
-- [和前女友的心上人he了](https://www.xqwz8bk.com/book/51lvtu/)
 - [哥你不能不要我](https://www.xqwz8bk.com/book/51lih5/)
 ## 相关内容
 - [README](/README.md)

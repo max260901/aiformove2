@@ -1,13 +1,15 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-05 03:42:02
+更新时间：2026-09-06 03:42:51
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
 - [速阅阁小说网](https://www.wsfsx.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.wsfsx.com/book/5ts29ej/)
+- [揣崽丧夫后被情敌强娶了](https://www.wsfsx.com/book/5ts29ei/)
 - [国师](https://www.wsfsx.com/book/5ts29eh/)
 - [欲加之罪](https://www.wsfsx.com/book/5ts29eg/)
 - [占有欲Daddy是我老公？](https://www.wsfsx.com/book/5ts29ef/)
@@ -48,7 +50,6 @@
 - [咦？我爸爸复活啦](https://www.wsfsx.com/book/5ts29dc/)
 - [夫人每天都在伪装](https://www.wsfsx.com/book/5ts29db/)
 - [全世界名为爱的恶意](https://www.wsfsx.com/book/5ts29da/)
-- [自知之明](https://www.wsfsx.com/book/5ts29d9/)
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.wsfsx.com/book/5ts29d8/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.wsfsx.com/book/5ts29d7/)
 - [禁止继承限制级雌君](https://www.wsfsx.com/book/5ts29d6/)
@@ -81,7 +82,6 @@
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.wsfsx.com/book/5ts29ca/)
 - [乖乖女的杂货铺[八零]](https://www.wsfsx.com/book/5ts29c9/)
 - [仙尊心尖宠，但被魔尊抢了](https://www.wsfsx.com/book/5ts29c8/)
-- [[综英美]让我统治哥谭！！！](https://www.wsfsx.com/book/5ts2999/)
 - [我司艺人永不塌房](https://www.wsfsx.com/book/5ts2989/)
 - [我们生活玩家是这样的](https://www.wsfsx.com/book/5ts297m/)
 - [始乱终弃清冷首辅后](https://www.wsfsx.com/book/5ts296l/)
@@ -91,14 +91,12 @@
 - [星际团宠小人鱼](https://www.wsfsx.com/book/5ts2955/)
 - [[封神]圣人生欲](https://www.wsfsx.com/book/5ts294m/)
 - [高调装神，猥琐发育](https://www.wsfsx.com/book/5ts294e/)
-- [假少爷不想活了](https://www.wsfsx.com/book/5ts294c/)
+- [假少爷离开后](https://www.wsfsx.com/book/5ts294c/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.wsfsx.com/book/5ts293t/)
 - [直男咒术师的限制级游戏](https://www.wsfsx.com/book/5ts291p/)
-- [绝不会喜欢五条君的！](https://www.wsfsx.com/book/5ts27o9/)
 - [六零之成了卷王的妹妹](https://www.wsfsx.com/book/5ts27o1/)
 - [路人攻了主角攻［快穿］](https://www.wsfsx.com/book/5ts27ju/)
 - [昭暮](https://www.wsfsx.com/book/5ts1u37/)
-- [古代种田养娃日常](https://www.wsfsx.com/book/5ts17qf/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.wsfsx.com/book/5ts17c2/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.wsfsx.com/book/5ts0p9l/)
 - [[足球]足坛人生模拟器](https://www.wsfsx.com/book/5ts0om8/)
@@ -143,10 +141,9 @@
 - [逃出金丝笼，我力挽山河开国称帝](https://www.wsfsx.com/book/ivk9c9/)
 - [多梦你一会儿](https://www.wsfsx.com/book/ivk99v/)
 - [韩团绿卡不想忍了](https://www.wsfsx.com/book/ivk7o9/)
-- [娶了女装心机太子](https://www.wsfsx.com/book/ivk6gg/)
 - [被糟蹋的老实人决定反击](https://www.wsfsx.com/book/ivk5em/)
 - [这个位面归我了！[经营]](https://www.wsfsx.com/book/ivk4ko/)
-- [八零恶毒后妈杀疯了](https://www.wsfsx.com/book/ivk410/)
+- [卷王后妈，八零养娃](https://www.wsfsx.com/book/ivk410/)
 - [村霸非要入赘受气包](https://www.wsfsx.com/book/ivk3cl/)
 - [清冷丞相怀了死对头的崽](https://www.wsfsx.com/book/ivk2rg/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.wsfsx.com/book/ivk2b6/)
@@ -168,7 +165,6 @@
 - [华夏神明震撼星际](https://www.wsfsx.com/book/1soalc/)
 - [全民求生:从小木屋到魔法农场](https://www.wsfsx.com/book/1soaif/)
 - [开局绑定郭奉孝，谋定三国风云](https://www.wsfsx.com/book/1soabg/)
-- [猫猫也要养家糊口](https://www.wsfsx.com/book/1soa8r/)
 - [完蛋！被恨孕男包围了！](https://www.wsfsx.com/book/1soa3p/)
 - [大瑛弟国](https://www.wsfsx.com/book/62ecb/)
 - [五十年代港城日常](https://www.wsfsx.com/book/62e5k/)

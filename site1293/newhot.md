@@ -1,13 +1,14 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-05 03:23:50
+更新时间：2026-09-06 03:24:39
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
 - [速阅阁小说网](https://www.ccccenergy.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.ccccenergy.com/book/7car6cm/)
 - [禁止继承限制级雌君](https://www.ccccenergy.com/book/7car6cf/)
 - [[综英美]和亲友群穿哥谭以后](https://www.ccccenergy.com/book/7car6ce/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.ccccenergy.com/book/7car6cb/)
@@ -16,12 +17,12 @@
 - [[崩铁]请给玩家一个准确的血条！](https://www.ccccenergy.com/book/7car6c3/)
 - [清穿女回来后[天幕]](https://www.ccccenergy.com/book/7car6c2/)
 - [等我吃腻了再倒闭可以吗](https://www.ccccenergy.com/book/7car6bp/)
+- [穿为龙傲天发妻后](https://www.ccccenergy.com/book/7car6bi/)
 - [咦？我爸爸复活啦](https://www.ccccenergy.com/book/7car6b7/)
 - [[足球]小小鸟堂堂来袭](https://www.ccccenergy.com/book/7car6b4/)
 - [同时扮演贵族学院F4和平民校花](https://www.ccccenergy.com/book/7car6ab/)
 - [我骗家里的钱养你啊](https://www.ccccenergy.com/book/7car6aa/)
 - [青城玩家明明超强却过分谨慎](https://www.ccccenergy.com/book/7car691/)
-- [我的烧烤摊超美味[美食]](https://www.ccccenergy.com/book/7car689/)
 - [暴君偏头痛](https://www.ccccenergy.com/book/7car684/)
 - [失而复得的白月光[快穿]](https://www.ccccenergy.com/book/7car67a/)
 - [躲避原书剧情五年后](https://www.ccccenergy.com/book/7car66c/)
@@ -29,11 +30,9 @@
 - [[综英美]让我统治哥谭！！！](https://www.ccccenergy.com/book/7car660/)
 - [渡鬼](https://www.ccccenergy.com/book/7car65c/)
 - [[封神]圣人生欲](https://www.ccccenergy.com/book/7car64n/)
-- [星际团宠小人鱼](https://www.ccccenergy.com/book/7car63c/)
 - [你，后室管理员](https://www.ccccenergy.com/book/7car635/)
 - [被四皇错看成小动物后](https://www.ccccenergy.com/book/7car634/)
 - [高调装神，猥琐发育](https://www.ccccenergy.com/book/7car62g/)
-- [从异世界穿回来后](https://www.ccccenergy.com/book/7car60a/)
 - [京秋婚约](https://www.ccccenergy.com/book/7car5vo/)
 - [直男咒术师的限制级游戏](https://www.ccccenergy.com/book/7car5tj/)
 - [纯爱宇智波基本恋爱法](https://www.ccccenergy.com/book/7car5tc/)
@@ -371,6 +370,7 @@
 - [超忆症大佬在古代破案](https://www.ccccenergy.com/book/nkakqh/)
 - [转生成为伊路米的双生姐姐](https://www.ccccenergy.com/book/nkakp7/)
 - [末世山居日常](https://www.ccccenergy.com/book/nkakp3/)
+- [被阴湿坏女人缠上后](https://www.ccccenergy.com/book/nkakl4/)
 - [普通高中生，但兼职咒术师](https://www.ccccenergy.com/book/nkakba/)
 - [癫骨](https://www.ccccenergy.com/book/nkak99/)
 - [随便捡小狗会出大问题](https://www.ccccenergy.com/book/nkak0p/)
@@ -414,10 +414,8 @@
 - [这谁的沙雕二次元心声！](https://www.ccccenergy.com/book/nka963/)
 - [我最讨厌打球了！](https://www.ccccenergy.com/book/nka4oj/)
 - [误入反派培养直播后](https://www.ccccenergy.com/book/nka2g6/)
-- [多梦你一会儿](https://www.ccccenergy.com/book/nk9v65/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.ccccenergy.com/book/nk9tio/)
 - [[足球]罗蜜第一志愿](https://www.ccccenergy.com/book/nk9sjl/)
-- [和前女友的心上人he了](https://www.ccccenergy.com/book/nk9pte/)
 - [哥你不能不要我](https://www.ccccenergy.com/book/nk9ase/)
 ## 相关内容
 - [README](/README.md)

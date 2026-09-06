@@ -1,18 +1,20 @@
 
 # 系统流小说网 - 免费在线阅读各类热门小说
 
-更新时间：2026-09-05 03:36:07
+更新时间：2026-09-06 03:37:02
 
 系统流小说网为您提供免费在线阅读服务，涵盖了玄幻魔法、武侠修真、都市言情等多类别的小说资源，是读者们最喜爱的小说阅读平台之一。
 
 - [系统流小说网](https://www.ronsriverboat.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.ronsriverboat.com/book/8583skm/)
 - [我骗家里的钱养你啊](https://www.ronsriverboat.com/book/8583ski/)
 - [同时扮演贵族学院F4和平民校花](https://www.ronsriverboat.com/book/8583skg/)
 - [咦？我爸爸复活啦](https://www.ronsriverboat.com/book/8583sk7/)
 - [[综英美]和亲友群穿哥谭以后](https://www.ronsriverboat.com/book/8583sk3/)
 - [[足球]小小鸟堂堂来袭](https://www.ronsriverboat.com/book/8583sjv/)
+- [穿为龙傲天发妻后](https://www.ronsriverboat.com/book/8583sjt/)
 - [清穿女回来后[天幕]](https://www.ronsriverboat.com/book/8583sjq/)
 - [全世界名为爱的恶意](https://www.ronsriverboat.com/book/8583sjh/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.ronsriverboat.com/book/8583sja/)
@@ -22,7 +24,6 @@
 - [自知之明](https://www.ronsriverboat.com/book/8583sib/)
 - [青城玩家明明超强却过分谨慎](https://www.ronsriverboat.com/book/8583si3/)
 - [躲避原书剧情五年后](https://www.ronsriverboat.com/book/8583sh0/)
-- [我的烧烤摊超美味[美食]](https://www.ronsriverboat.com/book/8583sgn/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.ronsriverboat.com/book/8583sgm/)
 - [暴君偏头痛](https://www.ronsriverboat.com/book/8583sf6/)
 - [[综英美]让我统治哥谭！！！](https://www.ronsriverboat.com/book/8583seg/)
@@ -31,9 +32,7 @@
 - [你，后室管理员](https://www.ronsriverboat.com/book/8583scf/)
 - [[封神]圣人生欲](https://www.ronsriverboat.com/book/8583sbu/)
 - [被四皇错看成小动物后](https://www.ronsriverboat.com/book/8583sbg/)
-- [星际团宠小人鱼](https://www.ronsriverboat.com/book/8583sb4/)
 - [高调装神，猥琐发育](https://www.ronsriverboat.com/book/8583sag/)
-- [从异世界穿回来后](https://www.ronsriverboat.com/book/8583s8m/)
 - [纯爱宇智波基本恋爱法](https://www.ronsriverboat.com/book/8583s7l/)
 - [阴郁路人不想被喜欢](https://www.ronsriverboat.com/book/8583s6s/)
 - [京秋婚约](https://www.ronsriverboat.com/book/8583s6j/)
@@ -404,6 +403,7 @@
 - [神之子与排球的适配性](https://www.ronsriverboat.com/book/q41r4p/)
 - [癫骨](https://www.ronsriverboat.com/book/q41qum/)
 - [忍界观察日记](https://www.ronsriverboat.com/book/q41qtp/)
+- [被阴湿坏女人缠上后](https://www.ronsriverboat.com/book/q41pde/)
 - [虫族治愈师，但恐虫](https://www.ronsriverboat.com/book/q41p3m/)
 - [隔壁班的松田君](https://www.ronsriverboat.com/book/q41p15/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.ronsriverboat.com/book/q41oph/)
@@ -414,10 +414,8 @@
 - [老公是松散生命体](https://www.ronsriverboat.com/book/q41ipf/)
 - [我最讨厌打球了！](https://www.ronsriverboat.com/book/q41bun/)
 - [误入反派培养直播后](https://www.ronsriverboat.com/book/q41aa9/)
-- [多梦你一会儿](https://www.ronsriverboat.com/book/q417tj/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.ronsriverboat.com/book/q4163k/)
 - [[足球]罗蜜第一志愿](https://www.ronsriverboat.com/book/q41526/)
-- [和前女友的心上人he了](https://www.ronsriverboat.com/book/q410q5/)
 - [哥你不能不要我](https://www.ronsriverboat.com/book/q40ht7/)
 ## 相关内容
 - [README](/README.md)
