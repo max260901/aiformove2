@@ -1,17 +1,19 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-09-05 03:24:08
+更新时间：2026-09-06 03:24:57
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
 - [创意小说网](https://www.chuangyi1687.com/)
 
 ## 最新小说
+- [幼崽假少爷选择回归寒门](https://www.chuangyi1687.com/book/1hvgp2l/)
 - [等我吃腻了再倒闭可以吗](https://www.chuangyi1687.com/book/1hvgp2a/)
 - [禁止继承限制级雌君](https://www.chuangyi1687.com/book/1hvgp24/)
 - [我骗家里的钱养你啊](https://www.chuangyi1687.com/book/1hvgp1o/)
 - [[足球]小小鸟堂堂来袭](https://www.chuangyi1687.com/book/1hvgp1j/)
+- [穿为龙傲天发妻后](https://www.chuangyi1687.com/book/1hvgp1i/)
 - [[综英美]和亲友群穿哥谭以后](https://www.chuangyi1687.com/book/1hvgp1d/)
 - [同时扮演贵族学院F4和平民校花](https://www.chuangyi1687.com/book/1hvgp19/)
 - [咦？我爸爸复活啦](https://www.chuangyi1687.com/book/1hvgp17/)
@@ -26,14 +28,11 @@
 - [失而复得的白月光[快穿]](https://www.chuangyi1687.com/book/1hvgosl/)
 - [青城玩家明明超强却过分谨慎](https://www.chuangyi1687.com/book/1hvgosi/)
 - [暴君偏头痛](https://www.chuangyi1687.com/book/1hvgorj/)
-- [我的烧烤摊超美味[美食]](https://www.chuangyi1687.com/book/1hvgord/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.chuangyi1687.com/book/1hvgor5/)
 - [被四皇错看成小动物后](https://www.chuangyi1687.com/book/1hvgoqo/)
 - [[封神]圣人生欲](https://www.chuangyi1687.com/book/1hvgoq7/)
-- [星际团宠小人鱼](https://www.chuangyi1687.com/book/1hvgopt/)
 - [你，后室管理员](https://www.chuangyi1687.com/book/1hvgop8/)
 - [高调装神，猥琐发育](https://www.chuangyi1687.com/book/1hvgooe/)
-- [从异世界穿回来后](https://www.chuangyi1687.com/book/1hvgoo4/)
 - [京秋婚约](https://www.chuangyi1687.com/book/1hvgomi/)
 - [纯爱宇智波基本恋爱法](https://www.chuangyi1687.com/book/1hvgojv/)
 - [阴郁路人不想被喜欢](https://www.chuangyi1687.com/book/1hvgoju/)
@@ -400,6 +399,7 @@
 - [癫骨](https://www.chuangyi1687.com/book/4vvu37/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.chuangyi1687.com/book/4vvu36/)
 - [作家与读者](https://www.chuangyi1687.com/book/4vvu1c/)
+- [被阴湿坏女人缠上后](https://www.chuangyi1687.com/book/4vvtit/)
 - [司寝宫女](https://www.chuangyi1687.com/book/4vvth5/)
 - [[足球]在比利时我们只玩天赋](https://www.chuangyi1687.com/book/4vvtci/)
 - [小狗向导，世界瑰宝！](https://www.chuangyi1687.com/book/4vvtb2/)
@@ -415,9 +415,7 @@
 - [我最讨厌打球了！](https://www.chuangyi1687.com/book/4vvhap/)
 - [误入反派培养直播后](https://www.chuangyi1687.com/book/4vvef4/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.chuangyi1687.com/book/4vvavq/)
-- [多梦你一会儿](https://www.chuangyi1687.com/book/4vvakb/)
 - [[足球]罗蜜第一志愿](https://www.chuangyi1687.com/book/4vv7ka/)
-- [和前女友的心上人he了](https://www.chuangyi1687.com/book/4vv2v2/)
 - [哥你不能不要我](https://www.chuangyi1687.com/book/4vumbd/)
 ## 相关内容
 - [README](/README.md)

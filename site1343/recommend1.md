@@ -1,16 +1,17 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-05 03:34:15
+更新时间：2026-09-06 03:35:11
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。
 
 - [左叶小说网](https://www.pusytgp.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.pusytgp.com/book/7pbovhk/)
+- [和八个男人在极寒游戏求生](https://www.pusytgp.com/book/7pbovhj/)
 - [双生子反派的端水抑郁妈[九零]](https://www.pusytgp.com/book/7pbovhh/)
 - [前妻她肯定会后悔](https://www.pusytgp.com/book/7pbovhe/)
-- [自知之明](https://www.pusytgp.com/book/7pbovha/)
 - [[足球]小小鸟堂堂来袭](https://www.pusytgp.com/book/7pbovh6/)
 - [禁止继承限制级雌君](https://www.pusytgp.com/book/7pbovh5/)
 - [国师](https://www.pusytgp.com/book/7pbovh2/)
@@ -91,7 +92,7 @@
 - [在卷王和废物之间选择做吉祥物](https://www.pusytgp.com/book/7pbntai/)
 - [昭暮](https://www.pusytgp.com/book/7pbnq0p/)
 - [从维多利亚时代开始](https://www.pusytgp.com/book/7pbnpd1/)
-- [假少爷不想活了](https://www.pusytgp.com/book/7pbnj2v/)
+- [假少爷离开后](https://www.pusytgp.com/book/7pbnj2v/)
 - [食明](https://www.pusytgp.com/book/7pbnaef/)
 - [诡话第一boss](https://www.pusytgp.com/book/7pbn771/)
 - [十九世纪贵族厨房（美食）](https://www.pusytgp.com/book/7pbn4lf/)
@@ -129,7 +130,7 @@
 - [如何嫁给当朝首辅](https://www.pusytgp.com/book/7pbllbd/)
 - [我187了，你敢见我吗？](https://www.pusytgp.com/book/7pblihj/)
 - [五条老师与他的封建妻子](https://www.pusytgp.com/book/7pbliap/)
-- [八零恶毒后妈杀疯了](https://www.pusytgp.com/book/7pblgvf/)
+- [卷王后妈，八零养娃](https://www.pusytgp.com/book/7pblgvf/)
 - [和姐姐的前女友欢愉后](https://www.pusytgp.com/book/7pblgn1/)
 - [我司艺人永不塌房](https://www.pusytgp.com/book/7pble29/)
 - [[封神]圣人生欲](https://www.pusytgp.com/book/7pblds0/)
@@ -139,11 +140,9 @@
 - [妻主风流（女尊）](https://www.pusytgp.com/book/7pbl249/)
 - [韩团绿卡不想忍了](https://www.pusytgp.com/book/7pbl0ke/)
 - [心动嫌疑人](https://www.pusytgp.com/book/7pbkvbr/)
-- [[综英美]让我统治哥谭！！！](https://www.pusytgp.com/book/7pbkumb/)
 - [这个位面归我了！[经营]](https://www.pusytgp.com/book/7pbku9g/)
 - [死亡悖论[无限流]](https://www.pusytgp.com/book/7pbktub/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.pusytgp.com/book/7pbksp9/)
-- [娶了女装心机太子](https://www.pusytgp.com/book/7pbksac/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.pusytgp.com/book/7pbkrq6/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.pusytgp.com/book/7pbkqsh/)
 - [清冷丞相怀了死对头的崽](https://www.pusytgp.com/book/7pbkomh/)
@@ -157,7 +156,6 @@
 - [爱好和平但狂拆机甲](https://www.pusytgp.com/book/7pbka6r/)
 - [95美国贵族高中模拟](https://www.pusytgp.com/book/7pbjebn/)
 - [[娱乐圈]过分美丽的她](https://www.pusytgp.com/book/7pbjebb/)
-- [绝不会喜欢五条君的！](https://www.pusytgp.com/book/7pbje53/)
 - [海岛求生：生活玩家种田囤货](https://www.pusytgp.com/book/7pbje2o/)
 - [日化人生[科研]](https://www.pusytgp.com/book/7pbjdvq/)
 - [大瑛弟国](https://www.pusytgp.com/book/7pbjdv0/)
@@ -165,7 +163,6 @@
 - [清澈女大的六零年代](https://www.pusytgp.com/book/7pbjd2h/)
 - [五十年代港城日常](https://www.pusytgp.com/book/7pbjcvf/)
 - [巨物致富：回乡开钓场](https://www.pusytgp.com/book/7pbjcqs/)
-- [古代种田养娃日常](https://www.pusytgp.com/book/7pbjcmk/)
 - [高门小婢](https://www.pusytgp.com/book/7pbjchb/)
 - [成为养成系练习生后](https://www.pusytgp.com/book/7pbjcff/)
 - [老实人妻，但顶级魅魔](https://www.pusytgp.com/book/7pbjccq/)
@@ -174,7 +171,6 @@
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.pusytgp.com/book/7pbjbu8/)
 - [我有一座安全城](https://www.pusytgp.com/book/7pbjbp1/)
 - [全民求生:从小木屋到魔法农场](https://www.pusytgp.com/book/7pbjbo2/)
-- [猫猫也要养家糊口](https://www.pusytgp.com/book/7pbjbdj/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1343/index.md)

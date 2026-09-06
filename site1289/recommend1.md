@@ -1,13 +1,15 @@
 
 # 三三言情小说 - 全本网文免费阅读, 最新最热言情故事
 
-更新时间：2026-09-05 03:46:16
+更新时间：2026-09-06 03:47:06
 
 三三言情小说为您提供海量全本完结的言情小说资源，在这里您可以免费在线阅读最新、最受欢迎的爱情故事。无论您是喜欢经典还是追求潮流的新作，我们都有丰富的选择等待着您来探索。
 
 - [三三言情小说](https://www.zhaoxingangjiegou.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.zhaoxingangjiegou.com/book/1duot4n/)
+- [揣崽丧夫后被情敌强娶了](https://www.zhaoxingangjiegou.com/book/1duot4m/)
 - [八零法医，带全家致富](https://www.zhaoxingangjiegou.com/book/1duot4l/)
 - [星露谷，但日本战国](https://www.zhaoxingangjiegou.com/book/1duot4k/)
 - [欲和离？夫君他目不识丁](https://www.zhaoxingangjiegou.com/book/1duot4j/)
@@ -44,7 +46,6 @@
 - [同时扮演贵族学院F4和平民校花](https://www.zhaoxingangjiegou.com/book/1duot3k/)
 - [恶毒男配只想躺平](https://www.zhaoxingangjiegou.com/book/1duot3j/)
 - [怨明月不独照](https://www.zhaoxingangjiegou.com/book/1duot3i/)
-- [自知之明](https://www.zhaoxingangjiegou.com/book/1duot3h/)
 - [恐游作精女配求生指南](https://www.zhaoxingangjiegou.com/book/1duot3g/)
 - [谁都不爱的和亲公主](https://www.zhaoxingangjiegou.com/book/1duot3f/)
 - [谁说踢球就不能成为名侦探[足球]](https://www.zhaoxingangjiegou.com/book/1duot3e/)
@@ -83,7 +84,6 @@
 - [末世八年春，游戏降临](https://www.zhaoxingangjiegou.com/book/1duot2c/)
 - [我们生活玩家是这样的](https://www.zhaoxingangjiegou.com/book/1duot1n/)
 - [我司艺人永不塌房](https://www.zhaoxingangjiegou.com/book/1duot1a/)
-- [[综英美]让我统治哥谭！！！](https://www.zhaoxingangjiegou.com/book/1duosu6/)
 - [十九世纪贵族厨房（美食）](https://www.zhaoxingangjiegou.com/book/1duossb/)
 - [星际团宠小人鱼](https://www.zhaoxingangjiegou.com/book/1duoss5/)
 - [始乱终弃清冷首辅后](https://www.zhaoxingangjiegou.com/book/1duoss3/)
@@ -91,14 +91,12 @@
 - [原配夫人](https://www.zhaoxingangjiegou.com/book/1duosrl/)
 - [[封神]圣人生欲](https://www.zhaoxingangjiegou.com/book/1duosql/)
 - [高调装神，猥琐发育](https://www.zhaoxingangjiegou.com/book/1duosqh/)
-- [假少爷不想活了](https://www.zhaoxingangjiegou.com/book/1duosqg/)
+- [假少爷离开后](https://www.zhaoxingangjiegou.com/book/1duosqg/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.zhaoxingangjiegou.com/book/1duosp4/)
 - [直男咒术师的限制级游戏](https://www.zhaoxingangjiegou.com/book/1duoso6/)
-- [绝不会喜欢五条君的！](https://www.zhaoxingangjiegou.com/book/1duore2/)
 - [六零之成了卷王的妹妹](https://www.zhaoxingangjiegou.com/book/1duordg/)
 - [路人攻了主角攻［快穿］](https://www.zhaoxingangjiegou.com/book/1duorab/)
 - [昭暮](https://www.zhaoxingangjiegou.com/book/1duohpd/)
-- [古代种田养娃日常](https://www.zhaoxingangjiegou.com/book/1dunrhn/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.zhaoxingangjiegou.com/book/1dunr34/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.zhaoxingangjiegou.com/book/1dunbt6/)
 - [[足球]足坛人生模拟器](https://www.zhaoxingangjiegou.com/book/1dun1rj/)
@@ -143,9 +141,8 @@
 - [逃出金丝笼，我力挽山河开国称帝](https://www.zhaoxingangjiegou.com/book/4j3cts/)
 - [多梦你一会儿](https://www.zhaoxingangjiegou.com/book/4j3aif/)
 - [韩团绿卡不想忍了](https://www.zhaoxingangjiegou.com/book/4j39h0/)
-- [娶了女装心机太子](https://www.zhaoxingangjiegou.com/book/4j38cv/)
 - [被糟蹋的老实人决定反击](https://www.zhaoxingangjiegou.com/book/4j37os/)
-- [八零恶毒后妈杀疯了](https://www.zhaoxingangjiegou.com/book/4j370d/)
+- [卷王后妈，八零养娃](https://www.zhaoxingangjiegou.com/book/4j370d/)
 - [清冷丞相怀了死对头的崽](https://www.zhaoxingangjiegou.com/book/4j36f6/)
 - [村霸非要入赘受气包](https://www.zhaoxingangjiegou.com/book/4j365r/)
 - [这个位面归我了！[经营]](https://www.zhaoxingangjiegou.com/book/4j34lf/)
@@ -160,7 +157,6 @@
 - [权宋一只统](https://www.zhaoxingangjiegou.com/book/4j2rdh/)
 - [爱好和平但狂拆机甲](https://www.zhaoxingangjiegou.com/book/4j2qsm/)
 - [95美国贵族高中模拟](https://www.zhaoxingangjiegou.com/book/emlof/)
-- [猫猫也要养家糊口](https://www.zhaoxingangjiegou.com/book/emlmo/)
 - [大瑛弟国](https://www.zhaoxingangjiegou.com/book/emlhd/)
 - [我有一座安全城](https://www.zhaoxingangjiegou.com/book/emldl/)
 - [苏娘子汴京摆摊日常（美食）](https://www.zhaoxingangjiegou.com/book/eml3d/)

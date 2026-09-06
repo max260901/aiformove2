@@ -1,17 +1,18 @@
 
 # 佚名奇书小说 - 免费更新的小说阅读网站
 
-更新时间：2026-09-05 03:44:41
+更新时间：2026-09-06 03:45:30
 
 佚名奇书小说提供全网各类热门小说在线阅读服务，支持免费观看。这里汇集了丰富的小说资源，包括但不限于都市、玄幻、武侠等多种类型，并且保证章节更新及时，页面设计清爽无广告干扰，是广大书友不可多得的好去处。
 
 - [佚名奇书小说](https://www.yimingeduai.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.yimingeduai.com/book/6adnjhg/)
+- [揣崽丧夫后被情敌强娶了](https://www.yimingeduai.com/book/6adnjfd/)
 - [从1951开始](https://www.yimingeduai.com/book/6adng45/)
 - [康熙宠妃日常](https://www.yimingeduai.com/book/6adng43/)
 - [全民求生，但剑三](https://www.yimingeduai.com/book/6adng3v/)
-- [自知之明](https://www.yimingeduai.com/book/6adng3q/)
 - [国师](https://www.yimingeduai.com/book/6adng3n/)
 - [强取师尊后](https://www.yimingeduai.com/book/6adng3m/)
 - [正是冬雪沸腾时](https://www.yimingeduai.com/book/6adng3k/)
@@ -101,7 +102,6 @@
 - [如何正确哄睡暴君](https://www.yimingeduai.com/book/6adlbf5/)
 - [我骗家里的钱养你啊](https://www.yimingeduai.com/book/6adlasa/)
 - [同时扮演贵族学院F4和平民校花](https://www.yimingeduai.com/book/6adl9ut/)
-- [[综英美]让我统治哥谭！！！](https://www.yimingeduai.com/book/6adl82t/)
 - [村霸非要入赘受气包](https://www.yimingeduai.com/book/6adl784/)
 - [被糟蹋的老实人决定反击](https://www.yimingeduai.com/book/6adl6tm/)
 - [老实人妻，但顶级魅魔](https://www.yimingeduai.com/book/6adl3h0/)
@@ -142,17 +142,15 @@
 - [假意逢承](https://www.yimingeduai.com/book/6adjdb3/)
 - [苏娘子汴京摆摊日常（美食）](https://www.yimingeduai.com/book/6adjcac/)
 - [妻主风流（女尊）](https://www.yimingeduai.com/book/6adjc9t/)
-- [绝不会喜欢五条君的！](https://www.yimingeduai.com/book/6adja9f/)
 - [爱好和平但狂拆机甲](https://www.yimingeduai.com/book/6adj6mb/)
 - [你让魔王组建勇者小队？](https://www.yimingeduai.com/book/6adj5s2/)
 - [全民求生:从小木屋到魔法农场](https://www.yimingeduai.com/book/6adi8o2/)
-- [八零恶毒后妈杀疯了](https://www.yimingeduai.com/book/6adi8jp/)
+- [卷王后妈，八零养娃](https://www.yimingeduai.com/book/6adi8jp/)
 - [海岛求生：生活玩家种田囤货](https://www.yimingeduai.com/book/6adi8em/)
 - [六零之成了卷王的妹妹](https://www.yimingeduai.com/book/6adi89j/)
 - [原配夫人](https://www.yimingeduai.com/book/6adi87a/)
 - [十九世纪贵族厨房（美食）](https://www.yimingeduai.com/book/6adi841/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.yimingeduai.com/book/6adi811/)
-- [猫猫也要养家糊口](https://www.yimingeduai.com/book/6adi809/)
 - [始乱终弃清冷首辅后](https://www.yimingeduai.com/book/6adi7lr/)
 - [在民俗惊悚片被诸神庇护](https://www.yimingeduai.com/book/6adi7kq/)
 - [巨物致富：回乡开钓场](https://www.yimingeduai.com/book/6adi7il/)
@@ -162,7 +160,6 @@
 - [高调装神，猥琐发育](https://www.yimingeduai.com/book/6adi75l/)
 - [星际团宠小人鱼](https://www.yimingeduai.com/book/6adi74q/)
 - [[娱乐圈]过分美丽的她](https://www.yimingeduai.com/book/6adi742/)
-- [古代种田养娃日常](https://www.yimingeduai.com/book/6adi72p/)
 - [我是唯一地上神国](https://www.yimingeduai.com/book/6adi70r/)
 - [五十年代港城日常](https://www.yimingeduai.com/book/6adi6nm/)
 - [我有一座安全城](https://www.yimingeduai.com/book/6adi6ln/)
@@ -170,11 +167,10 @@
 - [九零首富的替嫁小媳妇](https://www.yimingeduai.com/book/6adi6g3/)
 - [95美国贵族高中模拟](https://www.yimingeduai.com/book/6adi6e5/)
 - [大瑛弟国](https://www.yimingeduai.com/book/6adi6bh/)
-- [假少爷不想活了](https://www.yimingeduai.com/book/6adi6a2/)
+- [假少爷离开后](https://www.yimingeduai.com/book/6adi6a2/)
 - [[封神]圣人生欲](https://www.yimingeduai.com/book/6adi68f/)
 - [高门小婢](https://www.yimingeduai.com/book/6adi666/)
 - [完蛋！被恨孕男包围了！](https://www.yimingeduai.com/book/6adi5nm/)
-- [娶了女装心机太子](https://www.yimingeduai.com/book/6adi5jn/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1399/index.md)

@@ -1,13 +1,15 @@
 
 # 新乐文小说 - 最热门免费在线阅读平台 | 玄幻、网游、言情、穿越、都市全本小说
 
-更新时间：2026-09-05 03:31:32
+更新时间：2026-09-06 03:32:29
 
 新乐文小说为您提供一个无广告无弹窗的纯净阅读环境，专注于玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读体验。在这里可以找到最新最热的小说章节更新，享受舒适的阅读时光。
 
 - [新乐文小说](https://www.ksqinlida.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.ksqinlida.com/book/1svdokl/)
+- [揣崽丧夫后被情敌强娶了](https://www.ksqinlida.com/book/1svdokk/)
 - [万人嫌从末世回来了](https://www.ksqinlida.com/book/1svdokj/)
 - [[足球]小小鸟堂堂来袭](https://www.ksqinlida.com/book/1svdoki/)
 - [强取师尊后](https://www.ksqinlida.com/book/1svdokh/)
@@ -68,7 +70,6 @@
 - [谁说踢球就不能成为名侦探[足球]](https://www.ksqinlida.com/book/1svdoiq/)
 - [全民求生，但剑三](https://www.ksqinlida.com/book/1svdoio/)
 - [魔咒请说普通话[西幻]](https://www.ksqinlida.com/book/1svdoin/)
-- [自知之明](https://www.ksqinlida.com/book/1svdoim/)
 - [烈火焚身[巴黎圣母院]](https://www.ksqinlida.com/book/1svdoil/)
 - [我只想上京赶考啊[聊斋]](https://www.ksqinlida.com/book/1svdoik/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.ksqinlida.com/book/1svdoij/)
@@ -81,7 +82,6 @@
 - [清穿女回来后[天幕]](https://www.ksqinlida.com/book/1svdoic/)
 - [国运求生：我的金手指是生命树](https://www.ksqinlida.com/book/1svdoib/)
 - [同时扮演贵族学院F4和平民校花](https://www.ksqinlida.com/book/1svdoia/)
-- [[综英美]让我统治哥谭！！！](https://www.ksqinlida.com/book/1svdofn/)
 - [我司艺人永不塌房](https://www.ksqinlida.com/book/1svdof7/)
 - [我们生活玩家是这样的](https://www.ksqinlida.com/book/1svdodb/)
 - [九零首富的替嫁小媳妇](https://www.ksqinlida.com/book/1svdoci/)
@@ -91,14 +91,12 @@
 - [始乱终弃清冷首辅后](https://www.ksqinlida.com/book/1svdobk/)
 - [星际团宠小人鱼](https://www.ksqinlida.com/book/1svdob0/)
 - [高调装神，猥琐发育](https://www.ksqinlida.com/book/1svdoah/)
-- [假少爷不想活了](https://www.ksqinlida.com/book/1svdoae/)
+- [假少爷离开后](https://www.ksqinlida.com/book/1svdoae/)
 - [直男咒术师的限制级游戏](https://www.ksqinlida.com/book/1svdo8f/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.ksqinlida.com/book/1svdo74/)
-- [绝不会喜欢五条君的！](https://www.ksqinlida.com/book/1svdmu9/)
 - [六零之成了卷王的妹妹](https://www.ksqinlida.com/book/1svdmtv/)
 - [路人攻了主角攻［快穿］](https://www.ksqinlida.com/book/1svdmrd/)
 - [昭暮](https://www.ksqinlida.com/book/1svddb9/)
-- [古代种田养娃日常](https://www.ksqinlida.com/book/1svd1rh/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.ksqinlida.com/book/1svd14c/)
 - [上个鬼班[无限]](https://www.ksqinlida.com/book/1svc3oa/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ksqinlida.com/book/1svc2q3/)
@@ -143,11 +141,10 @@
 - [逃出金丝笼，我力挽山河开国称帝](https://www.ksqinlida.com/book/635d53/)
 - [多梦你一会儿](https://www.ksqinlida.com/book/635cmb/)
 - [被糟蹋的老实人决定反击](https://www.ksqinlida.com/book/635bd6/)
-- [娶了女装心机太子](https://www.ksqinlida.com/book/635b9q/)
 - [韩团绿卡不想忍了](https://www.ksqinlida.com/book/635b5q/)
 - [这个位面归我了！[经营]](https://www.ksqinlida.com/book/6357pn/)
 - [村霸非要入赘受气包](https://www.ksqinlida.com/book/6357ad/)
-- [八零恶毒后妈杀疯了](https://www.ksqinlida.com/book/6356r2/)
+- [卷王后妈，八零养娃](https://www.ksqinlida.com/book/6356r2/)
 - [清冷丞相怀了死对头的崽](https://www.ksqinlida.com/book/6356hs/)
 - [和山神搭伙开农场的日子](https://www.ksqinlida.com/book/635502/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.ksqinlida.com/book/63541h/)
@@ -169,7 +166,6 @@
 - [海岛求生：生活玩家种田囤货](https://www.ksqinlida.com/book/jgdn4/)
 - [五十年代港城日常](https://www.ksqinlida.com/book/jgdgh/)
 - [大瑛弟国](https://www.ksqinlida.com/book/jgdfo/)
-- [猫猫也要养家糊口](https://www.ksqinlida.com/book/jgder/)
 - [我有一座安全城](https://www.ksqinlida.com/book/1uev1/)
 - [苏娘子汴京摆摊日常（美食）](https://www.ksqinlida.com/book/1ueqr/)
 - [华夏神明震撼星际](https://www.ksqinlida.com/book/1uek8/)

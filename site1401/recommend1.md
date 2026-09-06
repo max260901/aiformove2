@@ -1,13 +1,15 @@
 
 # 曹操SPA小说 - 小说的海洋，文学的殿堂 | 在线阅读与下载原创小说
 
-更新时间：2026-09-05 03:23:35
+更新时间：2026-09-06 03:24:25
 
 曹操SPA小说是一个专注于优质小说和文学创作的网站，这里是书迷们的天堂，提供丰富的原创网络小说、经典文学作品在线阅读与下载，致力于打造一个充满灵感与创意的文学世界。
 
 - [曹操SPA小说](https://www.caocaospa.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.caocaospa.com/book/8q1ubau/)
+- [和八个男人在极寒游戏求生](https://www.caocaospa.com/book/8q1ub9o/)
 - [全民求生，但剑三](https://www.caocaospa.com/book/8q1u7u3/)
 - [国运求生：我的金手指是生命树](https://www.caocaospa.com/book/8q1u7u1/)
 - [在年代文里跑运输](https://www.caocaospa.com/book/8q1u7tv/)
@@ -56,7 +58,6 @@
 - [大佬的漂亮老婆回来带崽了[八零]](https://www.caocaospa.com/book/8q1u7qf/)
 - [病美人重生日记](https://www.caocaospa.com/book/8q1u7qb/)
 - [前妻她肯定会后悔](https://www.caocaospa.com/book/8q1u7q9/)
-- [自知之明](https://www.caocaospa.com/book/8q1u7q8/)
 - [清穿女回来后[天幕]](https://www.caocaospa.com/book/8q1u7q4/)
 - [漫画取材所引发的修罗场](https://www.caocaospa.com/book/8q1u7q3/)
 - [我们小区穿末世](https://www.caocaospa.com/book/8q1u7q1/)
@@ -98,7 +99,6 @@
 - [被天使之王骗婚后[诡秘之主]](https://www.caocaospa.com/book/8q1s636/)
 - [假金丝雀深陷修罗场](https://www.caocaospa.com/book/8q1s5vm/)
 - [苏娘子汴京摆摊日常（美食）](https://www.caocaospa.com/book/8q1s5s4/)
-- [[综英美]让我统治哥谭！！！](https://www.caocaospa.com/book/8q1s5e9/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.caocaospa.com/book/8q1s43g/)
 - [死对头又在挑衅我](https://www.caocaospa.com/book/8q1s3kq/)
 - [美貌单出，杀穿港娱［八零］](https://www.caocaospa.com/book/8q1s33m/)
@@ -142,7 +142,6 @@
 - [娘娘扶摇直上](https://www.caocaospa.com/book/8q1qdq9/)
 - [恶犬攻绑定上司的乖狗系统](https://www.caocaospa.com/book/8q1qc2l/)
 - [权宋一只统](https://www.caocaospa.com/book/8q1qbmr/)
-- [绝不会喜欢五条君的！](https://www.caocaospa.com/book/8q1q9h0/)
 - [爱好和平但狂拆机甲](https://www.caocaospa.com/book/8q1q7gb/)
 - [你让魔王组建勇者小队？](https://www.caocaospa.com/book/8q1q4da/)
 - [完蛋！被恨孕男包围了！](https://www.caocaospa.com/book/8q1p7ph/)
@@ -156,14 +155,12 @@
 - [[娱乐圈]过分美丽的她](https://www.caocaospa.com/book/8q1p6ls/)
 - [五十年代港城日常](https://www.caocaospa.com/book/8q1p6lc/)
 - [95美国贵族高中模拟](https://www.caocaospa.com/book/8q1p6b5/)
-- [假少爷不想活了](https://www.caocaospa.com/book/8q1p6a3/)
+- [假少爷离开后](https://www.caocaospa.com/book/8q1p6a3/)
 - [原配夫人](https://www.caocaospa.com/book/8q1p61d/)
-- [八零恶毒后妈杀疯了](https://www.caocaospa.com/book/8q1p60t/)
+- [卷王后妈，八零养娃](https://www.caocaospa.com/book/8q1p60t/)
 - [九零首富的替嫁小媳妇](https://www.caocaospa.com/book/8q1p5ub/)
 - [星际团宠小人鱼](https://www.caocaospa.com/book/8q1p5tj/)
-- [娶了女装心机太子](https://www.caocaospa.com/book/8q1p5qu/)
 - [日化人生[科研]](https://www.caocaospa.com/book/8q1p5of/)
-- [古代种田养娃日常](https://www.caocaospa.com/book/8q1p5le/)
 - [巨物致富：回乡开钓场](https://www.caocaospa.com/book/8q1p5jl/)
 - [十九世纪贵族厨房（美食）](https://www.caocaospa.com/book/8q1p5iu/)
 - [我有一座安全城](https://www.caocaospa.com/book/8q1p5hm/)
@@ -173,7 +170,6 @@
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.caocaospa.com/book/8q1p59l/)
 - [始乱终弃清冷首辅后](https://www.caocaospa.com/book/8q1p55v/)
 - [大瑛弟国](https://www.caocaospa.com/book/8q1p52a/)
-- [猫猫也要养家糊口](https://www.caocaospa.com/book/8q1p4qg/)
 - [高调装神，猥琐发育](https://www.caocaospa.com/book/8q1p4kh/)
 ## 相关内容
 - [README](/README.md)

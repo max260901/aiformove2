@@ -1,7 +1,7 @@
 
 # 爱阅读-最新优质免费无弹窗小说在线阅读
 
-更新时间：2026-09-05 03:45:44
+更新时间：2026-09-06 03:46:33
 
 爱阅读提供清爽干净、页面整洁没弹窗的网络小说阅读体验。这里有大量的免费小说、完本小说供您选择，包括热门言情小说、玄幻小说、仙侠小说等多种类型。是广大书友必备的纯绿色小说阅读网站。
 
@@ -14,6 +14,7 @@
 - [自知之明](https://www.yuedu788.com/book/1on7bl0/)
 - [全世界名为爱的恶意](https://www.yuedu788.com/book/1on7bjn/)
 - [[综英美]和亲友群穿哥谭以后](https://www.yuedu788.com/book/1on7bji/)
+- [穿为龙傲天发妻后](https://www.yuedu788.com/book/1on7bi4/)
 - [禁止继承限制级雌君](https://www.yuedu788.com/book/1on7bhu/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.yuedu788.com/book/1on7bgv/)
 - [修仙界都为我神魂颠倒](https://www.yuedu788.com/book/1on79ht/)
@@ -31,11 +32,9 @@
 - [[足球]番外乐子集](https://www.yuedu788.com/book/1on722n/)
 - [我超凶的！[快穿]](https://www.yuedu788.com/book/1on706o/)
 - [我比反派先崩坏[快穿]](https://www.yuedu788.com/book/1on6vfr/)
-- [我的烧烤摊超美味[美食]](https://www.yuedu788.com/book/1on6v5p/)
 - [渡鬼](https://www.yuedu788.com/book/1on6v36/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yuedu788.com/book/1on6v27/)
 - [cos温迪后玩到真崩铁了](https://www.yuedu788.com/book/1on6r10/)
-- [从异世界穿回来后](https://www.yuedu788.com/book/1on6qo9/)
 - [我有嘉宾](https://www.yuedu788.com/book/1on6qff/)
 - [娇气点怎么啦？［快穿］](https://www.yuedu788.com/book/1on6qbv/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.yuedu788.com/book/1on6pod/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.yuedu788.com/book/1on64qa/)
 - [昭暮](https://www.yuedu788.com/book/1on63in/)
 - [你，后室管理员](https://www.yuedu788.com/book/1on5vqp/)
-- [星际团宠小人鱼](https://www.yuedu788.com/book/1on5von/)
 - [高调装神，猥琐发育](https://www.yuedu788.com/book/1on5om4/)
 - [伪装路人后成了反派首领](https://www.yuedu788.com/book/1on5ikj/)
 - [求求你们别吃了](https://www.yuedu788.com/book/1on5ifj/)
@@ -302,7 +300,6 @@
 - [好好做1](https://www.yuedu788.com/book/1on44jp/)
 - [废土猫猫求生指南](https://www.yuedu788.com/book/1on44fa/)
 - [金发室友有肌肤饥渴症](https://www.yuedu788.com/book/1on44bu/)
-- [多梦你一会儿](https://www.yuedu788.com/book/1on44bq/)
 - [[封神]圣人生欲](https://www.yuedu788.com/book/1on44b3/)
 - [贵族学院的直男跟班](https://www.yuedu788.com/book/1on449r/)
 - [修仙回来后开了间民宿](https://www.yuedu788.com/book/1on4472/)
@@ -392,7 +389,6 @@
 - [女beta的星际悠闲生活](https://www.yuedu788.com/book/1on3u65/)
 - [隔壁班的松田君](https://www.yuedu788.com/book/1on3u47/)
 - [御厨传人的小镇饭馆 [美食]](https://www.yuedu788.com/book/1on3u1u/)
-- [和前女友的心上人he了](https://www.yuedu788.com/book/1on3u04/)
 - [每天都在和太宰互换身体](https://www.yuedu788.com/book/1on3tu7/)
 - [某柯学的正义伙伴](https://www.yuedu788.com/book/1on3tsf/)
 - [举朝上下为我的神仙人设头疼中](https://www.yuedu788.com/book/1on3ts9/)
@@ -405,6 +401,7 @@
 - [神之子与排球的适配性](https://www.yuedu788.com/book/1on3t0j/)
 - [青山不渡](https://www.yuedu788.com/book/1on3sun/)
 - [癫骨](https://www.yuedu788.com/book/1on3su9/)
+- [被阴湿坏女人缠上后](https://www.yuedu788.com/book/1on3spt/)
 - [普通高中生，但兼职咒术师](https://www.yuedu788.com/book/1on3sm4/)
 - [国舅太难追了](https://www.yuedu788.com/book/1on3sll/)
 - [失忆后，和五条激情互演](https://www.yuedu788.com/book/1on3sf5/)
@@ -429,6 +426,7 @@
 - [幼崽假少爷选择回归寒门](https://www.yuedu788.com/book/1on3ge6/)
 - [[足球]小小鸟堂堂来袭](https://www.yuedu788.com/book/1on3fmp/)
 - [青城玩家明明超强却过分谨慎](https://www.yuedu788.com/book/1on3eo7/)
+- [欢迎来到重生点](https://www.yuedu788.com/book/1on3eiq/)
 - [好巧，你也是妹控？[综崩铁]](https://www.yuedu788.com/book/1on3dtc/)
 - [矩阵干扰](https://www.yuedu788.com/book/1on3a7t/)
 - [侯府打工人](https://www.yuedu788.com/book/1on3a63/)

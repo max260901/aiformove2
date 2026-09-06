@@ -1,13 +1,15 @@
 
 # 故事来书吧-免费阅读全网最新最热小说
 
-更新时间：2026-09-05 03:27:46
+更新时间：2026-09-06 03:28:41
 
 故事来书吧提供海量免费无弹窗小说在线阅读服务，涵盖言情、都市、玄幻、武侠等多种类型，让你随时随地享受阅读的乐趣。
 
 - [故事来书吧](https://www.gushi688.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.gushi688.com/book/5121cvm/)
+- [和八个男人在极寒游戏求生](https://www.gushi688.com/book/5121cvl/)
 - [世界伏于她刀下[无限]](https://www.gushi688.com/book/5121cvj/)
 - [漫画取材所引发的修罗场](https://www.gushi688.com/book/5121cvi/)
 - [[综英美]哥谭市民，在线抽卡](https://www.gushi688.com/book/5121cvb/)
@@ -40,7 +42,6 @@
 - [二次分化后他怀了死对头的崽](https://www.gushi688.com/book/5121ct6/)
 - [欲加之罪](https://www.gushi688.com/book/5121ct2/)
 - [我们小区穿末世](https://www.gushi688.com/book/5121csq/)
-- [自知之明](https://www.gushi688.com/book/5121csm/)
 - [热恋过期需重追](https://www.gushi688.com/book/5121csi/)
 - [穿咒术，但杀猴现场](https://www.gushi688.com/book/5121csh/)
 - [怨明月不独照](https://www.gushi688.com/book/5121csf/)
@@ -125,9 +126,8 @@
 - [阴阳师也可以打网球](https://www.gushi688.com/book/511u686/)
 - [和治君只是饭搭子的关系](https://www.gushi688.com/book/511u60o/)
 - [如何嫁给当朝首辅](https://www.gushi688.com/book/511u5tb/)
-- [[综英美]让我统治哥谭！！！](https://www.gushi688.com/book/511u5k1/)
 - [在魔法贵族学院当白月光](https://www.gushi688.com/book/511u4s7/)
-- [八零恶毒后妈杀疯了](https://www.gushi688.com/book/511u36a/)
+- [卷王后妈，八零养娃](https://www.gushi688.com/book/511u36a/)
 - [五条老师与他的封建妻子](https://www.gushi688.com/book/511u2br/)
 - [我司艺人永不塌房](https://www.gushi688.com/book/511tvqq/)
 - [我187了，你敢见我吗？](https://www.gushi688.com/book/511tvko/)
@@ -145,7 +145,6 @@
 - [带清冷女主回乡养螃蟹[种田]](https://www.gushi688.com/book/511tblf/)
 - [村霸非要入赘受气包](https://www.gushi688.com/book/511taan/)
 - [清冷丞相怀了死对头的崽](https://www.gushi688.com/book/511taa7/)
-- [娶了女装心机太子](https://www.gushi688.com/book/511ta5s/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.gushi688.com/book/511t8nt/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.gushi688.com/book/511t85g/)
 - [和山神搭伙开农场的日子](https://www.gushi688.com/book/511t70i/)
@@ -155,8 +154,7 @@
 - [权宋一只统](https://www.gushi688.com/book/511suum/)
 - [爱好和平但狂拆机甲](https://www.gushi688.com/book/511sp5i/)
 - [六零之成了卷王的妹妹](https://www.gushi688.com/book/511rrqv/)
-- [假少爷不想活了](https://www.gushi688.com/book/511rrep/)
-- [绝不会喜欢五条君的！](https://www.gushi688.com/book/511rrb7/)
+- [假少爷离开后](https://www.gushi688.com/book/511rrep/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.gushi688.com/book/511rra7/)
 - [成为养成系练习生后](https://www.gushi688.com/book/511rr53/)
 - [高门小婢](https://www.gushi688.com/book/511rr1u/)
@@ -169,12 +167,10 @@
 - [[娱乐圈]过分美丽的她](https://www.gushi688.com/book/511rpqt/)
 - [我有一座安全城](https://www.gushi688.com/book/511rppg/)
 - [95美国贵族高中模拟](https://www.gushi688.com/book/511rpl8/)
-- [古代种田养娃日常](https://www.gushi688.com/book/511rphf/)
 - [日化人生[科研]](https://www.gushi688.com/book/511rpaj/)
 - [五十年代港城日常](https://www.gushi688.com/book/511rp87/)
 - [全民求生:从小木屋到魔法农场](https://www.gushi688.com/book/511rp6q/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.gushi688.com/book/511rotp/)
-- [猫猫也要养家糊口](https://www.gushi688.com/book/511roju/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1347/index.md)

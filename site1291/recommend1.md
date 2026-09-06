@@ -1,13 +1,15 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-09-05 03:35:31
+更新时间：2026-09-06 03:36:27
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
 - [笔趣阁啦](https://www.qingyuchun.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.qingyuchun.com/book/10578mk/)
+- [揣崽丧夫后被情敌强娶了](https://www.qingyuchun.com/book/10578mj/)
 - [禁止继承限制级雌君](https://www.qingyuchun.com/book/10578mi/)
 - [万人嫌从末世回来了](https://www.qingyuchun.com/book/10578mh/)
 - [好心的俄罗斯人](https://www.qingyuchun.com/book/10578mg/)
@@ -72,7 +74,6 @@
 - [欲加之罪](https://www.qingyuchun.com/book/10578kk/)
 - [我们小区穿末世](https://www.qingyuchun.com/book/10578kj/)
 - [谁说踢球就不能成为名侦探[足球]](https://www.qingyuchun.com/book/10578ki/)
-- [自知之明](https://www.qingyuchun.com/book/10578kh/)
 - [穿为龙傲天发妻后](https://www.qingyuchun.com/book/10578kg/)
 - [恐游里的邻居们[万人迷]](https://www.qingyuchun.com/book/10578kf/)
 - [魔改剧本后我爆火了[娱乐圈]](https://www.qingyuchun.com/book/10578ke/)
@@ -83,7 +84,6 @@
 - [等我吃腻了再倒闭可以吗](https://www.qingyuchun.com/book/10578k9/)
 - [我们生活玩家是这样的](https://www.qingyuchun.com/book/10578j6/)
 - [我司艺人永不塌房](https://www.qingyuchun.com/book/10578hr/)
-- [[综英美]让我统治哥谭！！！](https://www.qingyuchun.com/book/10578hk/)
 - [[封神]圣人生欲](https://www.qingyuchun.com/book/10578eh/)
 - [九零首富的替嫁小媳妇](https://www.qingyuchun.com/book/10578ea/)
 - [始乱终弃清冷首辅后](https://www.qingyuchun.com/book/10578e6/)
@@ -91,14 +91,12 @@
 - [原配夫人](https://www.qingyuchun.com/book/10578do/)
 - [十九世纪贵族厨房（美食）](https://www.qingyuchun.com/book/10578ci/)
 - [高调装神，猥琐发育](https://www.qingyuchun.com/book/10578ce/)
-- [假少爷不想活了](https://www.qingyuchun.com/book/10578cd/)
+- [假少爷离开后](https://www.qingyuchun.com/book/10578cd/)
 - [直男咒术师的限制级游戏](https://www.qingyuchun.com/book/105789t/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.qingyuchun.com/book/105787s/)
-- [绝不会喜欢五条君的！](https://www.qingyuchun.com/book/1057706/)
 - [六零之成了卷王的妹妹](https://www.qingyuchun.com/book/10576va/)
 - [路人攻了主角攻［快穿］](https://www.qingyuchun.com/book/10576u5/)
 - [昭暮](https://www.qingyuchun.com/book/1056tbq/)
-- [古代种田养娃日常](https://www.qingyuchun.com/book/1056hsf/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.qingyuchun.com/book/1056hi7/)
 - [上个鬼班[无限]](https://www.qingyuchun.com/book/1055ia9/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.qingyuchun.com/book/1055h0e/)
@@ -142,14 +140,13 @@
 - [妻主风流（女尊）](https://www.qingyuchun.com/book/36udu4/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.qingyuchun.com/book/36uc15/)
 - [多梦你一会儿](https://www.qingyuchun.com/book/36ub5l/)
-- [娶了女装心机太子](https://www.qingyuchun.com/book/36u9je/)
 - [被糟蹋的老实人决定反击](https://www.qingyuchun.com/book/36u89q/)
 - [韩团绿卡不想忍了](https://www.qingyuchun.com/book/36u81t/)
 - [村霸非要入赘受气包](https://www.qingyuchun.com/book/36u7fh/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.qingyuchun.com/book/36u7fc/)
 - [这个位面归我了！[经营]](https://www.qingyuchun.com/book/36u6hk/)
 - [清冷丞相怀了死对头的崽](https://www.qingyuchun.com/book/36u54c/)
-- [八零恶毒后妈杀疯了](https://www.qingyuchun.com/book/36u4nt/)
+- [卷王后妈，八零养娃](https://www.qingyuchun.com/book/36u4nt/)
 - [和山神搭伙开农场的日子](https://www.qingyuchun.com/book/36u251/)
 - [假意逢承](https://www.qingyuchun.com/book/36u116/)
 - [心动嫌疑人](https://www.qingyuchun.com/book/36u0bn/)
@@ -170,7 +167,6 @@
 - [五十年代港城日常](https://www.qingyuchun.com/book/a9b3p/)
 - [全民求生:从小木屋到魔法农场](https://www.qingyuchun.com/book/a9b31/)
 - [在魔法贵族学院当白月光](https://www.qingyuchun.com/book/a9asa/)
-- [猫猫也要养家糊口](https://www.qingyuchun.com/book/a9arn/)
 - [开局绑定郭奉孝，谋定三国风云](https://www.qingyuchun.com/book/a9aol/)
 - [华夏神明震撼星际](https://www.qingyuchun.com/book/a9ao9/)
 - [[娱乐圈]过分美丽的她](https://www.qingyuchun.com/book/a9a60/)

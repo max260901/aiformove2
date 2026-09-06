@@ -1,13 +1,15 @@
 
 # 科幻读书-免费小说阅读|言情小说|小说排行榜|全本完本小说下载
 
-更新时间：2026-09-05 03:30:45
+更新时间：2026-09-06 03:31:42
 
 科幻读书提供海量完结全本小说在线阅读服务，涵盖言情、都市、耽美、穿越等多种类型，并定期更新连载章节及发布最新小说排行榜单。支持有声小说推荐与下载。
 
 - [科幻读书](https://www.kehuan918.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.kehuan918.com/book/1d56hds/)
+- [和八个男人在极寒游戏求生](https://www.kehuan918.com/book/1d56hdr/)
 - [怨明月不独照](https://www.kehuan918.com/book/1d56hdq/)
 - [穿为龙傲天发妻后](https://www.kehuan918.com/book/1d56hdp/)
 - [二次分化后他怀了死对头的崽](https://www.kehuan918.com/book/1d56hdo/)
@@ -33,7 +35,6 @@
 - [娘娘扶摇直上](https://www.kehuan918.com/book/1d56hc4/)
 - [国师](https://www.kehuan918.com/book/1d56hc2/)
 - [[足球]雏鸟](https://www.kehuan918.com/book/1d56hc1/)
-- [自知之明](https://www.kehuan918.com/book/1d56hbt/)
 - [魔改剧本后我爆火了[娱乐圈]](https://www.kehuan918.com/book/1d56hbr/)
 - [我只想上京赶考啊[聊斋]](https://www.kehuan918.com/book/1d56hbp/)
 - [[综英美]哥谭市民，在线抽卡](https://www.kehuan918.com/book/1d56hbo/)
@@ -123,11 +124,10 @@
 - [和贵志君是世界第一的好朋友](https://www.kehuan918.com/book/1d53c1i/)
 - [阴阳师也可以打网球](https://www.kehuan918.com/book/1d53bpj/)
 - [[封神]圣人生欲](https://www.kehuan918.com/book/1d53b3v/)
-- [[综英美]让我统治哥谭！！！](https://www.kehuan918.com/book/1d53av2/)
 - [如何嫁给当朝首辅](https://www.kehuan918.com/book/1d53aj5/)
 - [和治君只是饭搭子的关系](https://www.kehuan918.com/book/1d53agt/)
 - [在魔法贵族学院当白月光](https://www.kehuan918.com/book/1d538pr/)
-- [八零恶毒后妈杀疯了](https://www.kehuan918.com/book/1d537go/)
+- [卷王后妈，八零养娃](https://www.kehuan918.com/book/1d537go/)
 - [五条老师与他的封建妻子](https://www.kehuan918.com/book/1d536ri/)
 - [我187了，你敢见我吗？](https://www.kehuan918.com/book/1d534um/)
 - [我司艺人永不塌房](https://www.kehuan918.com/book/1d53403/)
@@ -142,7 +142,6 @@
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.kehuan918.com/book/1d52i9g/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.kehuan918.com/book/1d52hjo/)
 - [这个位面归我了！[经营]](https://www.kehuan918.com/book/1d52gck/)
-- [娶了女装心机太子](https://www.kehuan918.com/book/1d52ee1/)
 - [清冷丞相怀了死对头的崽](https://www.kehuan918.com/book/1d52dqa/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.kehuan918.com/book/1d52ddm/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.kehuan918.com/book/1d52cr1/)
@@ -164,12 +163,9 @@
 - [日化人生[科研]](https://www.kehuan918.com/book/1d50vmg/)
 - [高门小婢](https://www.kehuan918.com/book/1d50vbb/)
 - [成为养成系练习生后](https://www.kehuan918.com/book/1d50uto/)
-- [绝不会喜欢五条君的！](https://www.kehuan918.com/book/1d50ure/)
 - [我有一座安全城](https://www.kehuan918.com/book/1d50ui3/)
-- [猫猫也要养家糊口](https://www.kehuan918.com/book/1d50ug5/)
-- [假少爷不想活了](https://www.kehuan918.com/book/1d50ufd/)
+- [假少爷离开后](https://www.kehuan918.com/book/1d50ufd/)
 - [六零之成了卷王的妹妹](https://www.kehuan918.com/book/1d50tkm/)
-- [古代种田养娃日常](https://www.kehuan918.com/book/1d50tj3/)
 - [清澈女大的六零年代](https://www.kehuan918.com/book/1d50til/)
 - [95美国贵族高中模拟](https://www.kehuan918.com/book/1d50th6/)
 - [巨物致富：回乡开钓场](https://www.kehuan918.com/book/1d50tei/)

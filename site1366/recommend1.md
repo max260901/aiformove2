@@ -1,13 +1,15 @@
 
 # 科幻188文学网-最新章节全文小说免费阅读
 
-更新时间：2026-09-05 03:30:30
+更新时间：2026-09-06 03:31:26
 
 科幻188文学网给广大网友提供最好的小说阅读服务，全站小说均可免费阅读且无任何弹窗干扰。这里是你寻找最新最全小说内容的理想之地。
 
 - [科幻188文学网](https://www.kehuan188.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.kehuan188.com/book/56q39i3/)
+- [揣崽丧夫后被情敌强娶了](https://www.kehuan188.com/book/56q39i2/)
 - [病美人重生日记](https://www.kehuan188.com/book/56q39hv/)
 - [魔尊闭关十年连生十一子？！](https://www.kehuan188.com/book/56q39hu/)
 - [好心的俄罗斯人](https://www.kehuan188.com/book/56q39hl/)
@@ -34,7 +36,6 @@
 - [魔法种田，从退队经营农场开始](https://www.kehuan188.com/book/56q39g9/)
 - [双生子反派的端水抑郁妈[九零]](https://www.kehuan188.com/book/56q39g3/)
 - [星露谷，但日本战国](https://www.kehuan188.com/book/56q39g1/)
-- [自知之明](https://www.kehuan188.com/book/56q39g0/)
 - [万人嫌从末世回来了](https://www.kehuan188.com/book/56q39ft/)
 - [恐游里的邻居们[万人迷]](https://www.kehuan188.com/book/56q39fs/)
 - [强取师尊后](https://www.kehuan188.com/book/56q39fq/)
@@ -120,14 +121,13 @@
 - [苏娘子汴京摆摊日常（美食）](https://www.kehuan188.com/book/56q09k9/)
 - [漂亮女配是万人迷［快穿］](https://www.kehuan188.com/book/56q097e/)
 - [和治君只是饭搭子的关系](https://www.kehuan188.com/book/56q048b/)
-- [[综英美]让我统治哥谭！！！](https://www.kehuan188.com/book/56q042d/)
 - [如何嫁给当朝首辅](https://www.kehuan188.com/book/56q03r0/)
 - [阴阳师也可以打网球](https://www.kehuan188.com/book/56q03df/)
 - [多梦你一会儿](https://www.kehuan188.com/book/56q02oo/)
 - [[封神]圣人生欲](https://www.kehuan188.com/book/56q0222/)
 - [和贵志君是世界第一的好朋友](https://www.kehuan188.com/book/56q01qv/)
 - [在魔法贵族学院当白月光](https://www.kehuan188.com/book/56q00nl/)
-- [八零恶毒后妈杀疯了](https://www.kehuan188.com/book/56pvvrq/)
+- [卷王后妈，八零养娃](https://www.kehuan188.com/book/56pvvrq/)
 - [五条老师与他的封建妻子](https://www.kehuan188.com/book/56pvurj/)
 - [我司艺人永不塌房](https://www.kehuan188.com/book/56pvunl/)
 - [我187了，你敢见我吗？](https://www.kehuan188.com/book/56pvrse/)
@@ -143,7 +143,6 @@
 - [这个位面归我了！[经营]](https://www.kehuan188.com/book/56pva44/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.kehuan188.com/book/56pv9kb/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.kehuan188.com/book/56pv6t6/)
-- [娶了女装心机太子](https://www.kehuan188.com/book/56pv64e/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.kehuan188.com/book/56pv5l3/)
 - [清冷丞相怀了死对头的崽](https://www.kehuan188.com/book/56pv51m/)
 - [村霸非要入赘受气包](https://www.kehuan188.com/book/56pv50r/)
@@ -154,17 +153,14 @@
 - [恶犬攻绑定上司的乖狗系统](https://www.kehuan188.com/book/56pus4f/)
 - [权宋一只统](https://www.kehuan188.com/book/56puonb/)
 - [爱好和平但狂拆机甲](https://www.kehuan188.com/book/56puk0m/)
-- [绝不会喜欢五条君的！](https://www.kehuan188.com/book/56pto7k/)
 - [清澈女大的六零年代](https://www.kehuan188.com/book/56pto5i/)
-- [假少爷不想活了](https://www.kehuan188.com/book/56ptnng/)
+- [假少爷离开后](https://www.kehuan188.com/book/56ptnng/)
 - [直男咒术师的限制级游戏](https://www.kehuan188.com/book/56ptnln/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.kehuan188.com/book/56ptnga/)
-- [猫猫也要养家糊口](https://www.kehuan188.com/book/56ptng2/)
 - [[娱乐圈]过分美丽的她](https://www.kehuan188.com/book/56ptn62/)
 - [我是唯一地上神国](https://www.kehuan188.com/book/56ptmvc/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kehuan188.com/book/56ptmsm/)
 - [成为养成系练习生后](https://www.kehuan188.com/book/56ptmnq/)
-- [古代种田养娃日常](https://www.kehuan188.com/book/56ptmmb/)
 - [海岛求生：生活玩家种田囤货](https://www.kehuan188.com/book/56ptmji/)
 - [五十年代港城日常](https://www.kehuan188.com/book/56ptlu9/)
 - [全民求生:从小木屋到魔法农场](https://www.kehuan188.com/book/56ptls5/)

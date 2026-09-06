@@ -1,13 +1,14 @@
 
 # 科幻读书-免费小说阅读|言情小说|小说排行榜|全本完本小说下载
 
-更新时间：2026-09-05 03:30:45
+更新时间：2026-09-06 03:31:42
 
 科幻读书提供海量完结全本小说在线阅读服务，涵盖言情、都市、耽美、穿越等多种类型，并定期更新连载章节及发布最新小说排行榜单。支持有声小说推荐与下载。
 
 - [科幻读书](https://www.kehuan918.com/)
 
 ## 最新小说
+- [穿为龙傲天发妻后](https://www.kehuan918.com/book/1d56hdp/)
 - [禁止继承限制级雌君](https://www.kehuan918.com/book/1d56hdl/)
 - [全世界名为爱的恶意](https://www.kehuan918.com/book/1d56hcm/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.kehuan918.com/book/1d56hce/)
@@ -33,9 +34,7 @@
 - [我比反派先崩坏[快穿]](https://www.kehuan918.com/book/1d5656d/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kehuan918.com/book/1d564uf/)
 - [渡鬼](https://www.kehuan918.com/book/1d564su/)
-- [我的烧烤摊超美味[美食]](https://www.kehuan918.com/book/1d564qq/)
 - [cos温迪后玩到真崩铁了](https://www.kehuan918.com/book/1d560ou/)
-- [从异世界穿回来后](https://www.kehuan918.com/book/1d560hu/)
 - [我有嘉宾](https://www.kehuan918.com/book/1d5608m/)
 - [娇气点怎么啦？［快穿］](https://www.kehuan918.com/book/1d56044/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.kehuan918.com/book/1d55ved/)
@@ -57,7 +56,6 @@
 - [侦探立于百万生命之上](https://www.kehuan918.com/book/1d55b7v/)
 - [特殊魅力值，已到账](https://www.kehuan918.com/book/1d55ag6/)
 - [昭暮](https://www.kehuan918.com/book/1d559c9/)
-- [星际团宠小人鱼](https://www.kehuan918.com/book/1d555km/)
 - [你，后室管理员](https://www.kehuan918.com/book/1d555i5/)
 - [高调装神，猥琐发育](https://www.kehuan918.com/book/1d54udq/)
 - [我在无限游戏里假扮NPC[无限流]](https://www.kehuan918.com/book/1d54oa3/)
@@ -276,7 +274,6 @@
 - [恶毒女配是绝色美人[快穿]](https://www.kehuan918.com/book/1d53cic/)
 - [穿进民国后宅从杂役做起](https://www.kehuan918.com/book/1d53cei/)
 - [[综武侠]万人迷小姐想要富贵荣华](https://www.kehuan918.com/book/1d53cdo/)
-- [多梦你一会儿](https://www.kehuan918.com/book/1d53cao/)
 - [异种大食堂[无限]](https://www.kehuan918.com/book/1d53c6s/)
 - [贵族学院的直男跟班](https://www.kehuan918.com/book/1d53c5n/)
 - [限时心动](https://www.kehuan918.com/book/1d53c47/)
@@ -392,7 +389,6 @@
 - [少年天师，国外爆红](https://www.kehuan918.com/book/1d53444/)
 - [蝴蝶园](https://www.kehuan918.com/book/1d5343g/)
 - [在家不许汪汪大叫](https://www.kehuan918.com/book/1d5340p/)
-- [和前女友的心上人he了](https://www.kehuan918.com/book/1d533o6/)
 - [癫骨](https://www.kehuan918.com/book/1d533kg/)
 - [青空来信](https://www.kehuan918.com/book/1d533ib/)
 - [在重男兄弟间夹缝求生](https://www.kehuan918.com/book/1d533hs/)
@@ -420,6 +416,7 @@
 - [请问夫君你哪位](https://www.kehuan918.com/book/1d5318s/)
 - [小狗向导，世界瑰宝！](https://www.kehuan918.com/book/1d5310e/)
 - [司寝宫女](https://www.kehuan918.com/book/1d530t1/)
+- [被阴湿坏女人缠上后](https://www.kehuan918.com/book/1d530ro/)
 - [放开那个黑暗哨兵！](https://www.kehuan918.com/book/1d530r9/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.kehuan918.com/book/1d52umq/)
 - [求生游戏：当邪神成为生活玩家后](https://www.kehuan918.com/book/1d52t45/)
@@ -430,6 +427,7 @@
 - [幼崽假少爷选择回归寒门](https://www.kehuan918.com/book/1d52lih/)
 - [好巧，你也是妹控？[综崩铁]](https://www.kehuan918.com/book/1d52ke1/)
 - [青城玩家明明超强却过分谨慎](https://www.kehuan918.com/book/1d52k0f/)
+- [欢迎来到重生点](https://www.kehuan918.com/book/1d52j6g/)
 - [矩阵干扰](https://www.kehuan918.com/book/1d52hlu/)
 - [侯府打工人](https://www.kehuan918.com/book/1d52h9d/)
 - [法外狂猫](https://www.kehuan918.com/book/1d52g6a/)

@@ -1,13 +1,15 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-09-05 03:33:59
+更新时间：2026-09-06 03:34:55
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。
 
 - [顶点中文免费阅读网](https://www.panyuplastic.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.panyuplastic.com/book/6h8ug3s/)
+- [揣崽丧夫后被情敌强娶了](https://www.panyuplastic.com/book/6h8ug3r/)
 - [漫画取材所引发的修罗场](https://www.panyuplastic.com/book/6h8ug3q/)
 - [正是冬雪沸腾时](https://www.panyuplastic.com/book/6h8ug3p/)
 - [人，今晚土拨鼠站岗](https://www.panyuplastic.com/book/6h8ug3o/)
@@ -64,7 +66,6 @@
 - [仙尊心尖宠，但被魔尊抢了](https://www.panyuplastic.com/book/6h8ug24/)
 - [清穿女回来后[天幕]](https://www.panyuplastic.com/book/6h8ug17/)
 - [好心的俄罗斯人](https://www.panyuplastic.com/book/6h8ug11/)
-- [自知之明](https://www.panyuplastic.com/book/6h8ug0q/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.panyuplastic.com/book/6h8ug0c/)
 - [魔法种田，从退队经营农场开始](https://www.panyuplastic.com/book/6h8ufvr/)
 - [等我吃腻了再倒闭可以吗](https://www.panyuplastic.com/book/6h8ufup/)
@@ -80,15 +81,13 @@
 - [原配夫人](https://www.panyuplastic.com/book/6h8ufpk/)
 - [始乱终弃清冷首辅后](https://www.panyuplastic.com/book/6h8ufpj/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.panyuplastic.com/book/6h8ufoa/)
-- [假少爷不想活了](https://www.panyuplastic.com/book/6h8ufo2/)
+- [假少爷离开后](https://www.panyuplastic.com/book/6h8ufo2/)
 - [同时扮演贵族学院F4和平民校花](https://www.panyuplastic.com/book/6h8ufng/)
 - [我司艺人永不塌房](https://www.panyuplastic.com/book/6h8ufn4/)
 - [[封神]圣人生欲](https://www.panyuplastic.com/book/6h8ufmo/)
 - [我骗家里的钱养你啊](https://www.panyuplastic.com/book/6h8ufme/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.panyuplastic.com/book/6h8ufm2/)
-- [[综英美]让我统治哥谭！！！](https://www.panyuplastic.com/book/6h8ufl0/)
 - [直男咒术师的限制级游戏](https://www.panyuplastic.com/book/6h8ufk9/)
-- [绝不会喜欢五条君的！](https://www.panyuplastic.com/book/6h8uecr/)
 - [六零之成了卷王的妹妹](https://www.panyuplastic.com/book/6h8uecp/)
 - [路人攻了主角攻［快穿］](https://www.panyuplastic.com/book/6h8uec1/)
 - [十九世纪贵族厨房（美食）](https://www.panyuplastic.com/book/6h8uebs/)
@@ -101,7 +100,7 @@
 - [九零首富的替嫁小媳妇](https://www.panyuplastic.com/book/6h8t9vh/)
 - [神豪文男主是我爸](https://www.panyuplastic.com/book/6h8t9ve/)
 - [如何嫁给当朝首辅](https://www.panyuplastic.com/book/6h8t9v7/)
-- [八零恶毒后妈杀疯了](https://www.panyuplastic.com/book/6h8t6d8/)
+- [卷王后妈，八零养娃](https://www.panyuplastic.com/book/6h8t6d8/)
 - [韩团绿卡不想忍了](https://www.panyuplastic.com/book/6h8t6d4/)
 - [多梦你一会儿](https://www.panyuplastic.com/book/6h8t6cr/)
 - [我与龙傲天寿命共享](https://www.panyuplastic.com/book/6h8t6ch/)
@@ -119,7 +118,6 @@
 - [五条老师与他的封建妻子](https://www.panyuplastic.com/book/6h8t5u5/)
 - [[娱乐圈]过分美丽的她](https://www.panyuplastic.com/book/6h8t5u4/)
 - [美貌单出，杀穿港娱［八零］](https://www.panyuplastic.com/book/6h8t5si/)
-- [古代种田养娃日常](https://www.panyuplastic.com/book/6h8t5s2/)
 - [心动嫌疑人](https://www.panyuplastic.com/book/6h8t5pq/)
 - [沈助理又在隐藏他的超能力](https://www.panyuplastic.com/book/6h8t5n3/)
 - [阴阳师也可以打网球](https://www.panyuplastic.com/book/6h8t5eo/)
@@ -133,7 +131,6 @@
 - [成为养成系练习生后](https://www.panyuplastic.com/book/6h8s6pg/)
 - [巨物致富：回乡开钓场](https://www.panyuplastic.com/book/6h8s6p7/)
 - [日化人生[科研]](https://www.panyuplastic.com/book/6h8s6p4/)
-- [娶了女装心机太子](https://www.panyuplastic.com/book/6h8s6o8/)
 - [漂亮女配是万人迷［快穿］](https://www.panyuplastic.com/book/6h8s6fo/)
 - [在卷王和废物之间选择做吉祥物](https://www.panyuplastic.com/book/6h8s6ej/)
 - [假意逢承](https://www.panyuplastic.com/book/6h8s676/)
@@ -144,7 +141,6 @@
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.panyuplastic.com/book/6h8s57v/)
 - [在重生文里考科举](https://www.panyuplastic.com/book/6h8s536/)
 - [妻主风流（女尊）](https://www.panyuplastic.com/book/6h8s531/)
-- [猫猫也要养家糊口](https://www.panyuplastic.com/book/6h8s4pl/)
 - [起初，我只是想找个冤大头](https://www.panyuplastic.com/book/6h8s4dv/)
 - [假金丝雀深陷修罗场](https://www.panyuplastic.com/book/6h8s454/)
 - [这个位面归我了！[经营]](https://www.panyuplastic.com/book/6h8s42l/)

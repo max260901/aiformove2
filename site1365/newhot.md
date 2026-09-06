@@ -1,7 +1,7 @@
 
 # 书城读书网_免费小说在线阅读|无弹窗广告
 
-更新时间：2026-09-05 03:37:10
+更新时间：2026-09-06 03:38:05
 
 书城读书网是最热门的免费小说网站，提供包括玄幻、都市、言情等多种类型的小说在线阅读服务。这里不仅有最新章节的实时更新，还有全面的小说排行榜，让您轻松找到喜欢的作品。阅读体验极佳，全程无弹窗广告干扰，值得收藏！
 
@@ -11,6 +11,7 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.shucheng168.com/book/47fpabg/)
 - [禁止继承限制级雌君](https://www.shucheng168.com/book/47fpabe/)
 - [等我吃腻了再倒闭可以吗](https://www.shucheng168.com/book/47fpaar/)
+- [穿为龙傲天发妻后](https://www.shucheng168.com/book/47fpaa9/)
 - [清穿女回来后[天幕]](https://www.shucheng168.com/book/47fpa8g/)
 - [全世界名为爱的恶意](https://www.shucheng168.com/book/47fpa8c/)
 - [这个替嫁让我来！](https://www.shucheng168.com/book/47fpa83/)
@@ -31,11 +32,9 @@
 - [[足球]番外乐子集](https://www.shucheng168.com/book/47fp0nl/)
 - [我超凶的！[快穿]](https://www.shucheng168.com/book/47fout1/)
 - [我比反派先崩坏[快穿]](https://www.shucheng168.com/book/47fou4r/)
-- [我的烧烤摊超美味[美食]](https://www.shucheng168.com/book/47fots7/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shucheng168.com/book/47fotq8/)
 - [渡鬼](https://www.shucheng168.com/book/47fotpn/)
 - [cos温迪后玩到真崩铁了](https://www.shucheng168.com/book/47fopkg/)
-- [从异世界穿回来后](https://www.shucheng168.com/book/47fopfu/)
 - [我有嘉宾](https://www.shucheng168.com/book/47fop7g/)
 - [娇气点怎么啦？［快穿］](https://www.shucheng168.com/book/47fop28/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.shucheng168.com/book/47foodh/)
@@ -57,7 +56,6 @@
 - [侦探立于百万生命之上](https://www.shucheng168.com/book/47fo47f/)
 - [特殊魅力值，已到账](https://www.shucheng168.com/book/47fo3jj/)
 - [昭暮](https://www.shucheng168.com/book/47fo26p/)
-- [星际团宠小人鱼](https://www.shucheng168.com/book/47fnukd/)
 - [你，后室管理员](https://www.shucheng168.com/book/47fnugt/)
 - [高调装神，猥琐发育](https://www.shucheng168.com/book/47fnn9t/)
 - [我在无限游戏里假扮NPC[无限流]](https://www.shucheng168.com/book/47fnh9u/)
@@ -278,7 +276,6 @@
 - [乙骨同学很好欺负](https://www.shucheng168.com/book/47fm5ca/)
 - [拯救美强惨女主进行时[快穿]](https://www.shucheng168.com/book/47fm5bv/)
 - [被小蜘蛛听见心声后](https://www.shucheng168.com/book/47fm58k/)
-- [多梦你一会儿](https://www.shucheng168.com/book/47fm56o/)
 - [炮灰的我该如何上位？](https://www.shucheng168.com/book/47fm56b/)
 - [战死的阿爹回来了[年代]](https://www.shucheng168.com/book/47fm51n/)
 - [被四皇错看成小动物后](https://www.shucheng168.com/book/47fm512/)
@@ -383,7 +380,6 @@
 - [忍界观察日记](https://www.shucheng168.com/book/47fltrp/)
 - [女beta的星际悠闲生活](https://www.shucheng168.com/book/47fltk6/)
 - [贵族学院F4中的第四人](https://www.shucheng168.com/book/47fltjs/)
-- [和前女友的心上人he了](https://www.shucheng168.com/book/47flthd/)
 - [小寡夫还有两幅面孔](https://www.shucheng168.com/book/47fltef/)
 - [[全职高手]卸载键在哪里](https://www.shucheng168.com/book/47fltcs/)
 - [少年天师，国外爆红](https://www.shucheng168.com/book/47fltac/)
@@ -412,6 +408,7 @@
 - [某柯学的正义伙伴](https://www.shucheng168.com/book/47flqqn/)
 - [我靠玛丽苏系统伪装神女](https://www.shucheng168.com/book/47flqmc/)
 - [每天都在和太宰互换身体](https://www.shucheng168.com/book/47flqkj/)
+- [被阴湿坏女人缠上后](https://www.shucheng168.com/book/47flqg8/)
 - [[足球]罗蜜第一志愿](https://www.shucheng168.com/book/47flqfn/)
 - [咒术师，但队友是侦探](https://www.shucheng168.com/book/47flqb1/)
 - [末世山居日常](https://www.shucheng168.com/book/47flq4l/)
@@ -430,6 +427,7 @@
 - [幼崽假少爷选择回归寒门](https://www.shucheng168.com/book/47fleel/)
 - [好巧，你也是妹控？[综崩铁]](https://www.shucheng168.com/book/47flcgh/)
 - [青城玩家明明超强却过分谨慎](https://www.shucheng168.com/book/47flcbj/)
+- [欢迎来到重生点](https://www.shucheng168.com/book/47flc52/)
 - [矩阵干扰](https://www.shucheng168.com/book/47fla1o/)
 - [好兄弟暴富后非要跟我结婚](https://www.shucheng168.com/book/47fl97c/)
 - [侯府打工人](https://www.shucheng168.com/book/47fl8m3/)

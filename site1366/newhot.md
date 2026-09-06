@@ -1,7 +1,7 @@
 
 # 科幻188文学网-最新章节全文小说免费阅读
 
-更新时间：2026-09-05 03:30:30
+更新时间：2026-09-06 03:31:26
 
 科幻188文学网给广大网友提供最好的小说阅读服务，全站小说均可免费阅读且无任何弹窗干扰。这里是你寻找最新最全小说内容的理想之地。
 
@@ -10,6 +10,7 @@
 ## 最新小说
 - [这个替嫁让我来！](https://www.kehuan188.com/book/56q39hk/)
 - [全世界名为爱的恶意](https://www.kehuan188.com/book/56q39gu/)
+- [穿为龙傲天发妻后](https://www.kehuan188.com/book/56q39gr/)
 - [自知之明](https://www.kehuan188.com/book/56q39g0/)
 - [清穿女回来后[天幕]](https://www.kehuan188.com/book/56q39f3/)
 - [[综英美]和亲友群穿哥谭以后](https://www.kehuan188.com/book/56q39f0/)
@@ -32,10 +33,8 @@
 - [我超凶的！[快穿]](https://www.kehuan188.com/book/56q2u3k/)
 - [我比反派先崩坏[快穿]](https://www.kehuan188.com/book/56q2ta1/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kehuan188.com/book/56q2t1j/)
-- [我的烧烤摊超美味[美食]](https://www.kehuan188.com/book/56q2t12/)
 - [渡鬼](https://www.kehuan188.com/book/56q2suv/)
 - [cos温迪后玩到真崩铁了](https://www.kehuan188.com/book/56q2otk/)
-- [从异世界穿回来后](https://www.kehuan188.com/book/56q2om5/)
 - [我有嘉宾](https://www.kehuan188.com/book/56q2ocv/)
 - [娇气点怎么啦？［快穿］](https://www.kehuan188.com/book/56q2oab/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.kehuan188.com/book/56q2nl2/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.kehuan188.com/book/56q22qm/)
 - [昭暮](https://www.kehuan188.com/book/56q21j8/)
 - [你，后室管理员](https://www.kehuan188.com/book/56q1tro/)
-- [星际团宠小人鱼](https://www.kehuan188.com/book/56q1tri/)
 - [高调装神，猥琐发育](https://www.kehuan188.com/book/56q1mkc/)
 - [乱步他哥，但武力值max](https://www.kehuan188.com/book/56q1foo/)
 - [穿成猫的咒术高专生活](https://www.kehuan188.com/book/56q1fjo/)
@@ -295,7 +293,6 @@
 - [限时心动](https://www.kehuan188.com/book/56q032f/)
 - [被小蜘蛛听见心声后](https://www.kehuan188.com/book/56q02se/)
 - [漫画路人绑定系统后](https://www.kehuan188.com/book/56q02qq/)
-- [多梦你一会儿](https://www.kehuan188.com/book/56q02oo/)
 - [奶奶蛋糕店[美食]](https://www.kehuan188.com/book/56q02lv/)
 - [被四皇错看成小动物后](https://www.kehuan188.com/book/56q02lf/)
 - [如何在玛丽苏包围圈中生存](https://www.kehuan188.com/book/56q02ji/)
@@ -385,7 +382,6 @@
 - [表白现场翻车后](https://www.kehuan188.com/book/56pvsph/)
 - [骑！就要骑在宿敌头上作威作福](https://www.kehuan188.com/book/56pvsmr/)
 - [苦咒琉璃](https://www.kehuan188.com/book/56pvsig/)
-- [和前女友的心上人he了](https://www.kehuan188.com/book/56pvshv/)
 - [[全职高手]卸载键在哪里](https://www.kehuan188.com/book/56pvsh5/)
 - [变成鲛人了怎么办](https://www.kehuan188.com/book/56pvsdj/)
 - [当了卧底的我发现遍地熟人](https://www.kehuan188.com/book/56pvsat/)
@@ -410,6 +406,7 @@
 - [末世山居日常](https://www.kehuan188.com/book/56pvqak/)
 - [虫族治愈师，但恐虫](https://www.kehuan188.com/book/56pvq7m/)
 - [举朝上下为我的神仙人设头疼中](https://www.kehuan188.com/book/56pvq6s/)
+- [被阴湿坏女人缠上后](https://www.kehuan188.com/book/56pvq5o/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.kehuan188.com/book/56pvpjt/)
 - [在重男兄弟间夹缝求生](https://www.kehuan188.com/book/56pvpj8/)
 - [放开那个黑暗哨兵！](https://www.kehuan188.com/book/56pvpig/)
@@ -430,6 +427,7 @@
 - [盛夏晴浓](https://www.kehuan188.com/book/56pvdv4/)
 - [青城玩家明明超强却过分谨慎](https://www.kehuan188.com/book/56pvcdl/)
 - [好巧，你也是妹控？[综崩铁]](https://www.kehuan188.com/book/56pvbgc/)
+- [欢迎来到重生点](https://www.kehuan188.com/book/56pvbb7/)
 - [法外狂猫](https://www.kehuan188.com/book/56pv9vd/)
 - [矩阵干扰](https://www.kehuan188.com/book/56pv9fd/)
 - [侯府打工人](https://www.kehuan188.com/book/56pv9be/)

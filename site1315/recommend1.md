@@ -1,13 +1,15 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-09-05 03:31:50
+更新时间：2026-09-06 03:32:47
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
 - [连载小说网](https://www.lianzai007.com/)
 
 ## 最新小说
+- [和八个男人在极寒游戏求生](https://www.lianzai007.com/book/6g3n1mn/)
+- [揣崽丧夫后被情敌强娶了](https://www.lianzai007.com/book/6g3n1mm/)
 - [[足球]小小鸟堂堂来袭](https://www.lianzai007.com/book/6g3n1ml/)
 - [SSS级异种都是我前任](https://www.lianzai007.com/book/6g3n1mk/)
 - [八零法医，带全家致富](https://www.lianzai007.com/book/6g3n1mj/)
@@ -72,7 +74,6 @@
 - [病美人重生日记](https://www.lianzai007.com/book/6g3n1ko/)
 - [好心的俄罗斯人](https://www.lianzai007.com/book/6g3n1kn/)
 - [魔法种田，从退队经营农场开始](https://www.lianzai007.com/book/6g3n1km/)
-- [自知之明](https://www.lianzai007.com/book/6g3n1kl/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.lianzai007.com/book/6g3n1kk/)
 - [星露谷，但日本战国](https://www.lianzai007.com/book/6g3n1kj/)
 - [占有欲Daddy是我老公？](https://www.lianzai007.com/book/6g3n1ki/)
@@ -83,7 +84,6 @@
 - [恐游作精女配求生指南](https://www.lianzai007.com/book/6g3n1kc/)
 - [我们生活玩家是这样的](https://www.lianzai007.com/book/6g3n1ig/)
 - [我司艺人永不塌房](https://www.lianzai007.com/book/6g3n1i4/)
-- [[综英美]让我统治哥谭！！！](https://www.lianzai007.com/book/6g3n1fv/)
 - [九零首富的替嫁小媳妇](https://www.lianzai007.com/book/6g3n1et/)
 - [[封神]圣人生欲](https://www.lianzai007.com/book/6g3n1ej/)
 - [星际团宠小人鱼](https://www.lianzai007.com/book/6g3n1eg/)
@@ -91,14 +91,12 @@
 - [始乱终弃清冷首辅后](https://www.lianzai007.com/book/6g3n1d7/)
 - [十九世纪贵族厨房（美食）](https://www.lianzai007.com/book/6g3n1cl/)
 - [高调装神，猥琐发育](https://www.lianzai007.com/book/6g3n1cj/)
-- [假少爷不想活了](https://www.lianzai007.com/book/6g3n1cg/)
+- [假少爷离开后](https://www.lianzai007.com/book/6g3n1cg/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.lianzai007.com/book/6g3n1bg/)
 - [直男咒术师的限制级游戏](https://www.lianzai007.com/book/6g3n1ad/)
-- [绝不会喜欢五条君的！](https://www.lianzai007.com/book/6g3mvvd/)
 - [六零之成了卷王的妹妹](https://www.lianzai007.com/book/6g3mvvb/)
 - [路人攻了主角攻［快穿］](https://www.lianzai007.com/book/6g3mvu2/)
 - [昭暮](https://www.lianzai007.com/book/6g3mmar/)
-- [古代种田养娃日常](https://www.lianzai007.com/book/6g3masa/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.lianzai007.com/book/6g3ma3d/)
 - [[足球]足坛人生模拟器](https://www.lianzai007.com/book/6g3l97c/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.lianzai007.com/book/6g3l7rn/)
@@ -144,12 +142,11 @@
 - [多梦你一会儿](https://www.lianzai007.com/book/kpvtdh/)
 - [被糟蹋的老实人决定反击](https://www.lianzai007.com/book/kpvsat/)
 - [韩团绿卡不想忍了](https://www.lianzai007.com/book/kpvrh8/)
-- [娶了女装心机太子](https://www.lianzai007.com/book/kpvr4s/)
 - [村霸非要入赘受气包](https://www.lianzai007.com/book/kpvq75/)
 - [这个位面归我了！[经营]](https://www.lianzai007.com/book/kpvq41/)
 - [让霸刀山庄重回忍界之巅[综剑三]](https://www.lianzai007.com/book/kpvpb9/)
 - [清冷丞相怀了死对头的崽](https://www.lianzai007.com/book/kpvob1/)
-- [八零恶毒后妈杀疯了](https://www.lianzai007.com/book/kpvnih/)
+- [卷王后妈，八零养娃](https://www.lianzai007.com/book/kpvnih/)
 - [和山神搭伙开农场的日子](https://www.lianzai007.com/book/kpvkgj/)
 - [心动嫌疑人](https://www.lianzai007.com/book/kpvk09/)
 - [在民俗惊悚片被诸神庇护](https://www.lianzai007.com/book/kpvjrr/)
@@ -163,7 +160,6 @@
 - [苏娘子汴京摆摊日常（美食）](https://www.lianzai007.com/book/22j469/)
 - [大瑛弟国](https://www.lianzai007.com/book/22j3vr/)
 - [我是唯一地上神国](https://www.lianzai007.com/book/22j3s6/)
-- [猫猫也要养家糊口](https://www.lianzai007.com/book/22j3o1/)
 - [华夏神明震撼星际](https://www.lianzai007.com/book/22j3en/)
 - [[娱乐圈]过分美丽的她](https://www.lianzai007.com/book/22j3bm/)
 - [95美国贵族高中模拟](https://www.lianzai007.com/book/22j34b/)

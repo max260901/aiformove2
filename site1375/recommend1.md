@@ -1,13 +1,15 @@
 
 # 精英文学 - 书友最值得收藏的小说免费阅读网
 
-更新时间：2026-09-05 03:42:50
+更新时间：2026-09-06 03:43:39
 
 精英文学为您提供一个干净舒适的阅读环境，作为书友最值得收藏的小说免费阅读网之一，我们致力于打造无广告干扰的最佳在线阅读体验。
 
 - [精英文学](https://www.xcposji.com/)
 
 ## 最新小说
+- [揣崽丧夫后被情敌强娶了](https://www.xcposji.com/book/jnmv6d/)
+- [和八个男人在极寒游戏求生](https://www.xcposji.com/book/jnmv5f/)
 - [世界伏于她刀下[无限]](https://www.xcposji.com/book/jnmrpr/)
 - [好心的俄罗斯人](https://www.xcposji.com/book/jnmrpq/)
 - [娘娘扶摇直上](https://www.xcposji.com/book/jnmrpl/)
@@ -30,7 +32,6 @@
 - [欲和离？夫君他目不识丁](https://www.xcposji.com/book/jnmrob/)
 - [恶毒男配只想躺平](https://www.xcposji.com/book/jnmro6/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.xcposji.com/book/jnmro0/)
-- [自知之明](https://www.xcposji.com/book/jnmrns/)
 - [[综英美]哥谭市民，在线抽卡](https://www.xcposji.com/book/jnmrnr/)
 - [全民求生，但剑三](https://www.xcposji.com/book/jnmrno/)
 - [暗恋的价格是三万块](https://www.xcposji.com/book/jnmrnm/)
@@ -107,7 +108,6 @@
 - [同时扮演贵族学院F4和平民校花](https://www.xcposji.com/book/jnk9n0/)
 - [路人攻了主角攻［快穿］](https://www.xcposji.com/book/jnk8e0/)
 - [苏娘子汴京摆摊日常（美食）](https://www.xcposji.com/book/jnk7qb/)
-- [[综英美]让我统治哥谭！！！](https://www.xcposji.com/book/jnk7id/)
 - [开局绑定郭奉孝，谋定三国风云](https://www.xcposji.com/book/jnk5sp/)
 - [直男咒术师的限制级游戏](https://www.xcposji.com/book/jnk3jo/)
 - [漂亮女配是万人迷［快穿］](https://www.xcposji.com/book/jnk1uv/)
@@ -135,7 +135,6 @@
 - [清冷丞相怀了死对头的崽](https://www.xcposji.com/book/jnj0pb/)
 - [带清冷女主回乡养螃蟹[种田]](https://www.xcposji.com/book/jnj0ib/)
 - [村霸非要入赘受气包](https://www.xcposji.com/book/jnivfe/)
-- [娶了女装心机太子](https://www.xcposji.com/book/jniv26/)
 - [逃出金丝笼，我力挽山河开国称帝](https://www.xcposji.com/book/jniujg/)
 - [和山神搭伙开农场的日子](https://www.xcposji.com/book/jniu2h/)
 - [[综英美]和亲友群穿哥谭以后](https://www.xcposji.com/book/jnisbl/)
@@ -143,7 +142,6 @@
 - [被糟蹋的老实人决定反击](https://www.xcposji.com/book/jniq87/)
 - [权宋一只统](https://www.xcposji.com/book/jnikom/)
 - [恶犬攻绑定上司的乖狗系统](https://www.xcposji.com/book/jnik4j/)
-- [绝不会喜欢五条君的！](https://www.xcposji.com/book/jnihn0/)
 - [爱好和平但狂拆机甲](https://www.xcposji.com/book/jnifgj/)
 - [你让魔王组建勇者小队？](https://www.xcposji.com/book/jnich0/)
 - [始乱终弃清冷首辅后](https://www.xcposji.com/book/jnhgjs/)
@@ -163,17 +161,15 @@
 - [五十年代港城日常](https://www.xcposji.com/book/jnhf6m/)
 - [大瑛弟国](https://www.xcposji.com/book/jnhf0a/)
 - [巨物致富：回乡开钓场](https://www.xcposji.com/book/jnherk/)
-- [假少爷不想活了](https://www.xcposji.com/book/jnheql/)
+- [假少爷离开后](https://www.xcposji.com/book/jnheql/)
 - [[娱乐圈]过分美丽的她](https://www.xcposji.com/book/jnhef6/)
 - [九零首富的替嫁小媳妇](https://www.xcposji.com/book/jnheep/)
 - [我是唯一地上神国](https://www.xcposji.com/book/jnhee4/)
-- [猫猫也要养家糊口](https://www.xcposji.com/book/jnhee2/)
 - [原配夫人](https://www.xcposji.com/book/jnhecl/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.xcposji.com/book/jnhecg/)
 - [高调装神，猥琐发育](https://www.xcposji.com/book/jnheam/)
 - [成为养成系练习生后](https://www.xcposji.com/book/jnhe5o/)
-- [八零恶毒后妈杀疯了](https://www.xcposji.com/book/jnhe5m/)
-- [古代种田养娃日常](https://www.xcposji.com/book/jnhdou/)
+- [卷王后妈，八零养娃](https://www.xcposji.com/book/jnhe5m/)
 - [95美国贵族高中模拟](https://www.xcposji.com/book/jnhdlq/)
 ## 相关内容
 - [README](/README.md)

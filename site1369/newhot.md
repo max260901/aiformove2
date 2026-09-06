@@ -1,7 +1,7 @@
 
 # 武侠文学网 - 值得收藏的小说阅读平台
 
-更新时间：2026-09-05 03:42:35
+更新时间：2026-09-06 03:43:24
 
 武侠文学网为您提供丰富多样的小说资源，在这里您可以找到最新最热门的小说作品。无论是经典文学还是现代流行小说，都是您值得收藏的阅读选择。
 
@@ -13,6 +13,7 @@
 - [自知之明](https://www.wuxia988.com/book/1ms38o3/)
 - [全世界名为爱的恶意](https://www.wuxia988.com/book/1ms38ms/)
 - [[综英美]和亲友群穿哥谭以后](https://www.wuxia988.com/book/1ms38mo/)
+- [穿为龙傲天发妻后](https://www.wuxia988.com/book/1ms38m5/)
 - [禁止继承限制级雌君](https://www.wuxia988.com/book/1ms38lv/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.wuxia988.com/book/1ms38le/)
 - [这个替嫁让我来！](https://www.wuxia988.com/book/1ms38kt/)
@@ -32,10 +33,8 @@
 - [我超凶的！[快穿]](https://www.wuxia988.com/book/1ms2tbu/)
 - [我比反派先崩坏[快穿]](https://www.wuxia988.com/book/1ms2sio/)
 - [渡鬼](https://www.wuxia988.com/book/1ms2sab/)
-- [我的烧烤摊超美味[美食]](https://www.wuxia988.com/book/1ms2s89/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wuxia988.com/book/1ms2s5j/)
 - [cos温迪后玩到真崩铁了](https://www.wuxia988.com/book/1ms2o4e/)
-- [从异世界穿回来后](https://www.wuxia988.com/book/1ms2ntr/)
 - [我有嘉宾](https://www.wuxia988.com/book/1ms2njr/)
 - [娇气点怎么啦？［快穿］](https://www.wuxia988.com/book/1ms2nh6/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.wuxia988.com/book/1ms2mpo/)
@@ -58,7 +57,6 @@
 - [特殊魅力值，已到账](https://www.wuxia988.com/book/1ms2200/)
 - [昭暮](https://www.wuxia988.com/book/1ms20mv/)
 - [你，后室管理员](https://www.wuxia988.com/book/1ms1stu/)
-- [星际团宠小人鱼](https://www.wuxia988.com/book/1ms1sq3/)
 - [高调装神，猥琐发育](https://www.wuxia988.com/book/1ms1lnv/)
 - [我在无限游戏里假扮NPC[无限流]](https://www.wuxia988.com/book/1ms1fog/)
 - [渣过我的主角全都重生了[快穿]](https://www.wuxia988.com/book/1ms1fkd/)
@@ -281,7 +279,6 @@
 - [战死的阿爹回来了[年代]](https://www.wuxia988.com/book/1ms03m4/)
 - [被四皇错看成小动物后](https://www.wuxia988.com/book/1ms03ls/)
 - [[综英美]穿越后和小红鸟灵魂互换了](https://www.wuxia988.com/book/1ms03f8/)
-- [多梦你一会儿](https://www.wuxia988.com/book/1ms03f6/)
 - [修仙回来后开了间民宿](https://www.wuxia988.com/book/1ms03cf/)
 - [[西汉]我打工给全家改命](https://www.wuxia988.com/book/1ms03bg/)
 - [[综武侠]万人迷小姐想要富贵荣华](https://www.wuxia988.com/book/1ms0387/)
@@ -374,7 +371,6 @@
 - [超忆症大佬在古代破案](https://www.wuxia988.com/book/1mrvsam/)
 - [经纪人砸钱整顿内娱爆火了](https://www.wuxia988.com/book/1mrvsa2/)
 - [隔壁班的松田君](https://www.wuxia988.com/book/1mrvs96/)
-- [和前女友的心上人he了](https://www.wuxia988.com/book/1mrvs94/)
 - [表白现场翻车后](https://www.wuxia988.com/book/1mrvs43/)
 - [败类](https://www.wuxia988.com/book/1mrvs2q/)
 - [苦咒琉璃](https://www.wuxia988.com/book/1mrvs1p/)
@@ -401,6 +397,7 @@
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.wuxia988.com/book/1mrvqjt/)
 - [直播捏玩具被榜一大哥撅了](https://www.wuxia988.com/book/1mrvqje/)
 - [高冷影后逼我标记她](https://www.wuxia988.com/book/1mrvqin/)
+- [被阴湿坏女人缠上后](https://www.wuxia988.com/book/1mrvqg9/)
 - [失忆后，和五条激情互演](https://www.wuxia988.com/book/1mrvqg2/)
 - [[足球]罗蜜第一志愿](https://www.wuxia988.com/book/1mrvqg0/)
 - [青空来信](https://www.wuxia988.com/book/1mrvq7j/)
@@ -429,6 +426,7 @@
 - [盛夏晴浓](https://www.wuxia988.com/book/1mrvdc3/)
 - [幼崽假少爷选择回归寒门](https://www.wuxia988.com/book/1mrvcsc/)
 - [好巧，你也是妹控？[综崩铁]](https://www.wuxia988.com/book/1mrvc91/)
+- [欢迎来到重生点](https://www.wuxia988.com/book/1mrvbbr/)
 - [青城玩家明明超强却过分谨慎](https://www.wuxia988.com/book/1mrvaum/)
 - [矩阵干扰](https://www.wuxia988.com/book/1mrv9eb/)
 - [法外狂猫](https://www.wuxia988.com/book/1mrv92r/)
